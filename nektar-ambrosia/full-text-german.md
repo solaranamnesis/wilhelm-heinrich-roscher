@@ -134,6 +134,42 @@ Die Bedeutung, welche Hermes als Diener der Götter, namentlich des Zeus hatte, 
 
 Wie die Winde in der Regel aus dem Aether oder den Wolken oder von den Gipfeln der Berge niederfahren* und --wegen des beständig darin herrschenden Luftzuges --- in Berghöhlen (Windhöhlen)* wohnend gedacht werden (vgl. Ausdrücke wie [GREEK] u. s. w.), so ist Hermes, der Sohn des Aethergottes Zeus und der Regenwolkennymphe [GREEK] ([GREEK] = lat. _pluvia_), entweder auf dem Olymp oder in der Höhle der Kyllene, d. i. des Hohlberges (vgl. [GREEK] mit lat. _caelum_), worunter man ursprünglich wohl den hohlen Wolkenberg verstand,* geboren.
 
+*) Dieselbe Vorstellung hat neuerdings Lenormant bei den Chaldäern nachgewiesen: Magie und Wahrsagekunst der Chaldäer. S. 28.
+
+*) In meinem Hermes S. 20 f. habe ich unterlassen zu erwähnen, dass die Kyllenische Höhle, in welcher H. geboren sein sollte, höchst wahrscheinlich eine sogen. Windhöhle war. Cornelius Meteorologie S. 232 sagt darüber: "Die Windhöhlen oder Wetterlöcher, meist in höheren Gebirgen vorkommend, sind durch kalte Luftströmungen charakterisirt, die aus ihnen mit grösserer oder geringerer Heftigkeit hervorbrechen. Häufig finden sich die Windhöhlen in Italien, so am Monte Testaccio zu Rom, auf der Insel Ischia, am Hügel bei San Marino, im Monte Eolo bei Terni... bei Chiavenna und bei Caprino unweit Lugano. Die meiste ßeachtung unter ihnen fand die Höhle des Monte Eolo, deren Eingang ein altes verfallenes Thor schliesst, durch dessen Spalten der Wind mit vielem Getöse heraus bläst... Im Sommer bläst kalte Luft aus dem Berge heraus, umgekehrt verhält es sich im Winter, wo die äussere Luft in die Höhle hineinzieht. [Hy. in Merc. 146 f.] Bei den meisten andern Windhöhlen hat man Gleiches beobachtet." Vgl. Sen. Nat. Q. 5, 14, 1: Repetam nunc, quod primo dixeram, edi e specu ventos recessuque anteriore terrarum. Der "Ebe" ist ein trockener warmer Wind, von dem die Kirgisen und Tataren meinen, dass er aus verborgenen Grotten ströme. Hamm im Ausland 1878. S. 764. Vielleicht hängt die Idee des [GREEK] hiermit zusammen. Stengel macht im Hermes 1881. S. 349 f. darauf aufmerksam, dass die Opfer an die Winde gleich Opfern an die unterirdischen Gottheiten und an die Todten gehalten worden sind.
+
+*) Von der Verwandtschaft der Begriffe "Wolke" und "Berg" handelt ausführlich Schwartz, Die poet. Naturanschauungen 2 (1879) S. 13 ff. Vgl. auch Lucr. 6, 159 u. 189. In Betreff der _cavae nubes_ s. Sen. Q. Nat. 2, 27, 4. Plin. n. h. 2, 133. Lucr. 6, 176. 195. 202. 272.
+
+Den an Schultern und Füssen beflügelten Winden (Boreaden)* vergleicht sieh der an Schultern oder Füssen beflügelte Hermes, wie jene, so wird auch dieser zugleich als schnell, gewandt und kraftvoll* gedacht (vgl. die Ausdrücke [GREEK] u. s. w.). Hiermit hängt die Funktion des Hermes als Gottes der Gymnastik und Agonistik zusammen.
+
+*) Vgl. auch Stephani, Boreas und die Boreaden, Petersburger Akademie. 1871. S. 6. 12. 15. 21. Wackernagel [GREEK] S. 6.
+
+*) Nachzutragen Hermes S. 33: Xen. Hell. 5, 4, 17. Sen. Q. Nat. 2, 22, 2. 5, 13, 3. Gell. N. A. 2, 22, 29.
+
+Der sehr verbreiteten Vorstellung von dem Stehlen, Rauben und Betrügen der Winde ([GREEK] u. s. w.)* entspricht der diebische, trügerische Charakter des Gottes, der unter Anderm auch als Entführer der Götterrinder (Wolken) auftritt.
+
+*) Nachzutragen S. 39: Sen. Q. Nat. 5, 13, 3: Hinc fere omnia pericula venti erupti de nubibus prodeunt, quibus armenta rapiantur et totae naves in sublime tollantur. ib. 2, 22, 2: Videamus, quantis procellae viribus ruant, quanto vertantur impetu turbines. id quod obvium fuit, dissipatur et rapitur et longe a loco suo proicitur. Liv. 21, 58, 7: nec quod statutum esset manebat omnia perscindente vento et rapiente, Od. [GREEK] 408: [GREEK] u. Ameis z. d. St. Xen. Hell. 5, 4, 17. Vgl. auch Schwartz, Poet. Naturanschauungen 2, 53. [GREEK] Athen. 1880. S. 43.
+
+Wie die Winde überall als göttliche Pfeifer und Sänger auftreten --- ich erinnere an die Mythen der Maruts, des Vaju und des Wodan und berufe mich auf Ausdrücke wie [GREEK], _ventus susurrans_, _aura sibilans_ u. s. w. --- so gilt Hermes zunächst als Erfinder des [GREEK] und der [GREEK], als der einfachsten Blasinstrumente, und sodann auch der Lyra.
+
+*) Nachzutragen S. 50: Hes. Theog. 708: [GREEK]. S. 52, Anm. 201: Sen. Q. Nat. 2, 28, 3 ventus... sibilat. Schwartz a. a. O. 59.
+
+Auch die Psychopompie des Hermes lässt sich leicht auf seine ursprüngliche Bedeutung als Windgott zurückführen, wenn man bedenkt, dass die Seelen ([GREEK], _animae_) von jeher luftartig gedacht wurden und demnach bei der Trennung vom Körper in das Reich des Windes oder der Luft, der sie entstammen, zurückkehren müssen.*
+
+*) Zu S. 58: Auch die Abchasen halten die Seelen für luftartig. Die Seelen derjenigen, deren Leichname nicht haben gefunden werden können, werden auf eigentümliche Weise in Schläuchen gefangen und dann bestattet. Ausland 1880. S. 1019 f. Noch der moderne Grieche flucht: [GREEK]. Schwartz, Ursprung d. Myth. 30, 2. Vgl. auch [GREEK] Athen. 1880. S. 44 f.
+
+Wie die Seelen scheinen aber auch die ihnen nahe verwandten Traumbilder aus der Luft zu stammen und den Schlafenden vom Winde zugeführt zu werden (vgl. Redensarten wie [GREEK] ist verwandt mit [GREEK]): darum ist Hermes zugleich Seelenführer und Traumgott oder Schlafgott geworden.*
+
+*) Zu S. 64 f.: Ap. Rh. 4, 877: [GREEK] (Thetis) [GREEK]. 2. _B_, 71: [GREEK]. Zu S. 66: In Betreff der Gleichsetzung von Seelen und Träumen ist nachzutragen Porphyr de antro n. 28: [GREEK]. Von der Verwandtschaft des Hermes mit Hypnos handelt G. Krüger in Jahrb. f. kl. Philol. 1863. S. 289 f. Vgl. auch Brunn in den Annali d. inst. 1868. S. 351 ff.
+
+Da ferner die Winde dem Ackerbauer und Hirten bald fruchtbare Regenwolken ([GREEK] Soph. fr. 233 D.) bald trockenes Wetter bringen und daher vielfach als befruchtend* uud zeugerisch gedacht werden (vgl. [GREEK], _genitabilis aura_, _Favonius_, [GREEK] u. s. w.) und sogar nach einem von Aristoteles und Plinius bezeugten Hirtenglauben die Befruchtung der Heerden hauptsächlich vom Winde abhängt,* so gilt Hermes als [GREEK] und [GREEK], als Verleiher des Heerdenreichthums und Hirtengott und wird oft phallisch dargestellt. Auch als Förderer der Gesundheit wurde er verehrt, weil die Winde oft die Luft von schädlichen Miasmen reinigen und dadurch Krankheiten abwehren oder mindern.*
+
+*) Zu S. 72 ff.: Geopon. 2, 26, 1: [GREEK], Mehr bei Hamm im Ausland 1878. S. 763 ff.
+
+*) Vgl. auch Aelian, nat. an. 7, 27.
+
+*) Vgl. Hamm im Ausland 1878. S. 763. Auch Rudra, der Sturmgott, wirkt wohlthätig, indem er die Luft von Miasmen reinigt. Kaegi, Zürcher Programm v. 1878. S. 24 f.
+
 ...
 
 # Kapitel 1.
