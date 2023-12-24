@@ -539,7 +539,42 @@ Schliesslich kommt in diesem Zusammenhange der Honig auch als Reinigungsmittel (
 
 **Ambrosia-Nektar als Speise, Trank, Salbe und Reinigungsmittel.**
 
-...
+Bereits im Abschnitte B des vorigen Kapitels haben wir gesehen, dass die Alten sich Nektar und Ambrosia nicht als verschiedene Substanzen, sondern nur als verschiedene Formen derselben Substanz dachten, welche flüssig das berauschende Getränk, in festerer Form aber die Speise der Götter bildete. So kam es, dass die beiden Benennungen Nektar und Ambrosia hie und da mit einander vertauscht werden konnten, so dass [GREEK] auch das Getränk, [GREEK] auch die Speise der Götter bezeichnete. Da wir schon bei dieser Untersuchung die sämmtlichen homerischen und hesiodischen Stellen, welche von Speise und Trank der Götter handeln, aufgezählt und eingehender besprochen haben, so ist es hier nur noch nötig, Ambrosia-Nektar auch als göttliche Salbe und Reinigungsmittel nachzuweisen.
+
+Die ältesten Belege für diesen Gebrauch der Ambrosia finden sich schon in der Ilias. [GREEK] 170 heisst es von der Hera:
+
+[GREEK].
+
+Wie mir scheint müssen wir an dieser Stelle zwei Arten von Ambrosia annehmen, deren erste der Hera als Seife ([GREEK]) diente, während unter dem [GREEK] eine ölige Salbe ([GREEK] vgl. unten Anm. 87) zu verstehen ist, welche hauptsächlich den Zweck hatte dem Körper einen angenehmen Wohlgeruch und der Haut einen besonderen Glanz und grössere Geschmeidigkeit zu verleihen. So entspricht die Handlung der Hera wohl am besten den beiden Manipulationen, welche Homer sonst den Menschen zuschreibt, ehe sie sich zum Mahle begeben, dem [GREEK] und [GREEK] (Il. 10, 578. Od. 6, 96).* Freilich wäre es auch möglich die Begriffe [GREEK] und [GREEK] in diesem Falle für identisch zu halten, und anzunehmen, dass die Reinigung des Körpers eben in der Salbung mit ambrosischem Oele bestand, weil sich viele schon mit der blossen Salbung begnügten und auf eine vorherige Abwaschung mittelst eines [GREEK] (Reinigungsmittels) verzichteten (vgl. Hermann, Gr. Privatalt. 2 § 28, 4). In letzterem Falle würde also [GREEK] ebenso wie anderwärts [GREEK] oder [GREEK] für [GREEK] stehen (S. 24). Der ersteren Auffassung scheint sich der Scholiast zu unserer Stelle angeschlossen zu haben, wenn er bemerkt: [GREEK] (Od. 4, 445) [GREEK] (Il. 19, 38). [GREEK].*
+
+*) Vgl. auch die übereinstimmenden Verse Od. [GREEK] 364 u. hy. in Ven. 61: [GREEK], wo, wie es scheint, [GREEK] und [GREEK] scharf zu scheiden ist. Od. [GREEK] 44 f. wird von dem Leichnam des Achilleus gesagt: [GREEK].
+
+*) Noch genauer sagt Eustath. p. 974, 49 f.: [GREEK]. Im Folgenden unterscheidet er davon das [GREEK], welches er als ein [GREEK] auffasst. Ebenso erklärt der Scholiast zu Ap. Rh. 4, 871 den Ausdruck [GREEK], den der Dichter von der Salbung des kleinen Achilleus gebraucht: [GREEK]. Wie dickflüssig oder salbenähnlich die Oele sein konnten, ersieht man übrigens aus dem Ausdruck [GREEK], den Diosk. 1, 37 so erklärt: [GREEK]. Vgl. auch Plin. h. n. 15, 7 u. 23. 50. Isid. Or. 17, 7, 11.
+
+Dieselbe Bedeutung wie hier die Ambrosia hat Od. [GREEK] 192 das [GREEK], womit Athene das schöne Antlitz der Penelope reinigt:
+
+[GREEK]...*
+
+Aehnlich wird das Wort auch Il. [GREEK] 667 f. gebraucht, wo Zeus dem Apollon befiehlt den blutigen Leichnam des Patroklos erst im Skamander zu waschen und alsdann mit Ambrosia zu salben:
+
+[GREEK]...
+
+Diese ambrosische Salbe dient auch gelegentlich ebenso wie der Genuss der ambrosischen Speise dazu, Menschen unsterblich, d. i. zu Göttern zu machen. So heisst es Hy. in Cer. 234 vom kleinen Demophoon, den Demeter unsterblich machen will:
+
+[GREEK].
+
+Genau dasselbe erzählen Apollonios Rhodios und Apollodoros* von der Thetis, als sie den Achilles unsterblich zu machen gedachte.
+
+Apoll. Rh. 4, 869:
+
+[GREEK].
+
+*) Schol. z. d. St. [GREEK].
+
+*) Vgl. Apollod. bibl. 3, 13, 6: [GREEK].
+
+Ebenso dachte man sich endlich Aphrodite den Adonis und Kyrene den Aristaios mit Nektar oder Ambrosia salbend.* Auch in letzterem Falle hat man sich die Ambrosia als eine Art Oel zu denken, weil es der Kyrene darauf ankommt ihren Sohn für den bevorstehenden Ringkampf mit dem Proteus zu stärken und vorzubereiten (vgl. Hermann, Gr. Privatalt. 2
+§ 37, 19). Auch aus diesen Stellen geht veieder unwiderleglich hervor, dass man sich unter Ambrosia keineswegs immer eine feste Substanz zu denken hat.
 
 # Kapitel 3.
 
