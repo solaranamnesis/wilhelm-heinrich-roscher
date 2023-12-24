@@ -16,13 +16,7 @@
 
 # Übersicht des Inhalts.
 
-## Kapitel 1.
-
-### A.
-
-...
-
-# Vorbemerkungen.
+## Vorbemerkungen.
 
 Ueber Aufgabe und Methode meiner mythologischen Untersuchungen. Ziel: die Ermittelung der Naturbasis eines Mythencomplexes und des Zusammenhanges aller einzelnen darin enthaltenen mythischen Anschauungen und Funktionen. Methode: Vergleichung sämmtlicher im Mythus und Kultus vorhandenen Vorstellungen mit den von den Alten an ein bestimmtes Naturobjekt geknüpften Anschauungen und Nachweis ähnlicher oder gleicher Ideen bei andern verwandten und nicht verwandten Völkern. Ueber die Beziehungen des Hermes zum Winde nebst Nachträgen zu meiner Monographie "Hermes der Windgott." Aehnlich sollen in der nachstehenden Untersuchung die Beziehungen des Nektars und der Ambrosia zum Honig nachgewiesen werden. Ueber den Deutungsversuch des Porphyrios und Bergks. Kurze Uebersicht über die gewonnenen Resultate.
 
