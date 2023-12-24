@@ -304,7 +304,175 @@ Eine ganz ähnliche Vorstellung tritt uns endlich auch in der finnischen Mytholo
 
 **Ambrosia = Götterspeise, Nektar = Göttertrank und umgekehrt. Diese Vertauschung der beiden Ausdrücke erklärt sich aus deren ursprünglicher Identität, insofern beide nur verschiedene Formen derselben Substanz (des Honigs) waren. Die homerische Sage von den Ambrosia bringenden Peleiai.**
 
-...
+Die gewöhnlichste, schon in den homerischen Gedichten häufigste Bedeutung des Wortes [GREEK] ist Götterspeise, während [GREEK] in der Regel als Göttertrank erscheint. So ist [GREEK] in allen Fällen, wo es eine Speise bezeichnet, wohl ursprünglich als ein Adjectivum feminini generis,* wozu ein Begriff wie [GREEK] zu ergänzen ist, zu fassen, es bedeutet also eigentlich Unsterblichkeitsspeise oder Nahrung der Unsterblichen (= Götter.)
+
+*) Vgl. [GREEK] (scil. [GREEK]), [GREEK] (scil. [GREEK]) u. s. w.
+
+Sehr häufig werden schon bei Homer und Hesiod die beiden Begriffe in der angegebenen Bedeutung neben einander gestellt.*
+
+*) Vgl. ähnliche Zusammenstellungen wie [GREEK] (Homer), [GREEK] (Homer u. Xenophon.)
+
+Il. _T_, 352:
+
+[GREEK].
+
+Od. [GREEK] 199:
+
+[GREEK].
+
+ib. 92:
+
+[GREEK].
+
+Od. [GREEK] 359 (vom Weine des Odysseus):
+
+[GREEK].
+
+Hes. Theog. 639:
+
+[GREEK].
+
+ib. 796:
+
+[GREEK].
+
+Hy. in Merc. 248 findet Apollon in der Kyllenischen Höhle:
+
+[GREEK].
+
+Hy. in Cer. 49:
+
+[GREEK].
+
+Hy. in Ap. Del. 123:
+
+[GREEK].
+
+Sehr eigenthümlich ist, wenn man diese Verse damit vergleicht, eine Stelle im Hy. in Ven. 231, wo von der Eos erzählt wird, dass sie den Tithonos mit Götterspeise ernährt habe:
+
+[GREEK].
+
+Augenscheinlich sollte man hier entweder den Begriff [GREEK] allein oder [GREEK] erwarten, [GREEK] aber ist unverständlich.* Eine Aenderung scheint demnach nothwendig. Am einfachsten ist es wohl in diesem Falle nach Analogie von Ausdrücken wie [GREEK] (Hy. in Ap. Del. 127 in Ven. 260), [GREEK] (Il. _N_ 35. _E_ 369), [GREEK] (Od. [GREEK] 365, Hy. in Ven. 61), [GREEK] (Il. [GREEK] 171), [GREEK] (Od. [GREEK] 192) zu lesen [GREEK]* [GREEK].*
+
+*) Auch Bergk (Jahrb. f. class Phil. 1860, S. 380) nimmt Anstoss an diesem Verse. Das blosse [GREEK] bedeutet an sich menschliche (nicht göttliche) Nahrung. Vgl. Hy. in Cer. 236: [GREEK] (Demophon), [GREEK].
+
+*) In Betreff der beiden Hiatus vgl. Kühner, Ausführl. Gr. d. gr. Spr. 2 1. 153 f. u. 81.
+
+*) Vgl. übrigens Nägelsbach, Hom. Theol. S. 15, der [GREEK] mit Brod und Ambrosia erklärt, was Bergk, mit dessen Annahme eines [GREEK] ich mich aber nicht einverstanden erklären kann, mit Recht verwirft (Fleckeisens Jahrb. 1860. S. 380 f.)
+
+Ausserdem finden sich noch einige Stellen, wo [GREEK] in der Bedeutung Götterspeise und [GREEK] = Göttertrank allein gebraucht sind (Il. _A._ 597. [GREEK] 3. Od. [GREEK] 62. Hy. in Ap. Del. 10).
+
+Höchst merkwürdig ist es nun, dass neben dieser gewöhnlichen Tradition, wonach [GREEK] die Speise, [GREEK] den Trank der Götter bezeichnete, eine andere mehrfach bezeugte bestand, worin dieses Verhältniss geradezu umgekehrt erscheint. Das Hauptzeugniss dafür findet sich bei Athenaios, 39 _a_: [GREEK]
+
+[GREEK].
+
+Dass dies nicht etwa ein Witz des Anaxandrides sondern ernsthaft zu nehmen ist, geht aus den unmittelbar darauffolgenden Zeugnissen des Alkman und der Sappho zur Genüge hervor: [GREEK]
+
+[GREEK].*
+
+*) Vgl. auch Eustath. p. 1633, 1.
+
+Dieselbe Vorstellung liegt vielleicht auch den schönen Versen des Euripides (Hippol. 748) zu Grunde, wo es von dem Göttergarten im äussersten Westen heisst:
+
+[GREEK].
+
+Wie ist nun dieser eigenthümliche Widerspruch der beiden verschiedenen Traditionen zu lösen? Bergk, welcher im Hinblick auf die Tatsache, dass die andern Völker (Inder und Germanen) nur einen Göttertrank, keine Götterspeise kennen, von einem ursprünglichen Unterschied der beiden Begriffe nichts wissen will, sondern in [GREEK] nur eine zweite Bezeichnung des Göttertranks erkennt, sagt (Fleckeisens Jahrb. 1860. S. 379 f.) Folgendes: "Keine dieser Stellen nötigt jene Ausdrücke von einander zu halten: die angemessenste Erklärung ist überall die, dass man annimmt, die allgemeine Bezeichnung sei auch hier wie so oft mit einer spezielleren verbunden, um den Begriff vollständig zu erschöpfen, ungefähr wie man [GREEK] und Aehnliches verbunden findet." Dass diese Erklärung jedoch angesichts solcher Stellen wie Od. [GREEK] 93:
+
+[GREEK].*
+
+*) Um diese Stelle, an welcher Bergks Erklärung allerdings scheitert, zu entkräften, will er sie zu einem Produkt späterer Phantasie machen. Dass der Begriff der Götterspeise bei den Griechen uralt ist, ersieht man aus dem Worte [GREEK], was Hesych. mit [GREEK] erklärt (vgl. auch Arcad. de acc. p. 122, 26: [GREEK] und Aischrion b. Ath. 296 f.: [GREEK] ([GREEK] der durch den Genuss einer Pflanze unsterblich wurde), [GREEK]). Es liegt die Vermuthung nahe, dass [GREEK] mit dem lat. _far_ verwandt ist und sonach eine von dem Dinkel oder Spelt abstrahirte Götterspeise darstellen sollte.
+
+und Theog. 640:
+
+[GREEK].
+
+zu kühn ist und dass zwischen Ausdrücken wie [GREEK] und [GREEK] ein grosser Unterschied besteht, dürfte einleuchtend sein. Die Möglichkeit der beiden verschiedenen Traditionen erklärt sich wohl am besten auf andere Weise, nämlich durch die Annahme, dass [GREEK] und [GREEK] nur verschiedene Formen einer und derselben Substanz, d. i. des Honigs sind, welchen man, wie wir später sehen werden, nicht bloss für die Nahrung der Götter hielt, sondern dem man auch geradezu die Fähigkeit unsterblich zu machen zuschrieb.
+
+An sich ist Honig zwar eine Speise, aber durch Verdünnung mit Wasser nimmt er den Charakter eines Getränkes an, welches gegohren sogar eine berauschende Wirkung zu äussern im Stande ist.
+
+Ein solches berauschendes Honiggetränk nennt man bekanntlich Meth, und es ist nicht zu bezweifeln, dass dieser, wie bei andern Völkern, so auch bei den Griechen der Urzeit, welche noch keine Weinkultur kannte, die Rolle des Weines spielte (vgl. Victor Hehn, Kulturpflanzen und Haustiere 2 S. 134 und unten Kap. 2, A); zumal da sich Spuren davon noch in der Mythologie erhalten haben. Bedenkt man nun, dass der Göttertrank der Inder* und Germanen* und auch der späteren Griechen, denen der Nektar offenbar als eine Art Wein galt,* eigentlich identisch war mit dem berauschenden Menschentrank (Soma, Meth, Wein) und dass man dessen Wirkung sogar zu einer göttlichen Person steigerte (Soma als Gott, Dionysos), so lässt sich dasselbe auch von dem Honigmeth der griechischen Urzeit vermuthen.
+
+*) Soma bezeichnete ursprünglich den Saft, welcher aus dem saftigen Kraut einer Pflanze gepresst wurde. Diese brachte einst ein schön beschwingter Falke aus der Ferne, vom höchsten Himmel, oder von den Bergen her, wohin sie Varuna gesetzt, der Weltenordner. Ihr Saft, geläutert, mit Milch und Mehl gemischt, und einige Zeit der Gährung überlassen, zeigte berauschende Wirkungen und war der allbeliebte Trank der Arier, des Opfers Seele und Zierde, der Männer Freude. Ihn trinkt der Kranke als Arznei, sein Genuss stärkt die Glieder, hält alles Siechthum fern und dehnet lang das Leben. Der Trunk heisst den Sänger seine Stimme erheben und begeistert ihn zum Lied; er giebt ihm überirdische Kraft, so dass er sich selbst unsterblich dünkt (Amṛta = [GREEK]!). Die Macht des Trunkes führte schon in Indo-Iranischer Zeit dazu, den Saft als Gott Soma (ostiranisch Haoma) zu personifiziren und ihm fast alle Taten anderer Götter zuzuschreiben; zumal ja auch der Götter Stärke durch diesen Trank gehoben wurde (vgl. die Wirkung des Nektars und der Ambrosia bei Hes. Theog. 639 ff.). Er soll des Frommen Leben endlos dehnen und nach dem Tode ihn unsterblich machen am Ort der Seligen, im höchsten Himmel. (Aus Kaegi, Der Rigveda. Zürich 1879. S. 63 ff. wo auch viele Belege gesammelt sind). Aehnliches gilt übrigens vom Iranischen Haoma (Windischmann, Abh. d. bayer. Ak. d. Wiss. 1846. S. 127 ff. Kuhn, Herabkunft etc. S. 118 ff.). Auch die Griechen kennen, wie die Glaukossage, lehrt eine Unsterblichkeitspflanze ([GREEK]). Vgl. Gädechens, Glaukos 33 ff.
+
+*) Eine besondere Götterspeise wird in den nordischen Sagen nirgend erwähnt, Odhin trinkt Wein, Götter trinken Bier, Öl, Meth, also lauter solche berauschende Getränke, welche den nordischen Sängern bekannt waren (W. Müller, Gesch. u. System d. altdeutsch, Rel. S. 150. Grimm, D. Myth. 3 S. 295 f.)
+
+*) Schon bei Homer wird der Nektar an zwei Stellen als eine Art Wein gedacht: 2. _A_, 597: [GREEK]. 3: [GREEK]. Das Prädikat [GREEK] dagegen, welches der Nektar z. B. Od. [GREEK] 93. Il. _T_, 39 fahrt, braucht nicht nothwendig vom [GREEK] (Od. [GREEK] 163) abgeleitet zu werden, sondern kann auch recht wohl die rothgelbe oder goldige Farbe des Honigs und Honigtrankes bezeichnen. Vgl. [GREEK] b. Porphyr. de antro n. 16. [GREEK] Philox. fr. 2, v. 36. Sim. fr. 47 B. [GREEK] Aristot. de an. h. 9, 40, 21. [GREEK] Opp. Cyn. 1, 314. mel rutilum, aurei coloris Plin. h. n. 11, 38. [GREEK] und [GREEK] Geop. 15, 7. Diosc. 2, 101. Galen. meth. cur. 7, ed. Bas. vol. 4, p. 109, de san. tu. 4. vol. 4, p. 620. Ein anderes Epitheton des Honigs ist [GREEK] (Il. _A._ 630. Od. [GREEK] 234). Dies Wort entspricht etymologisch dem lat. _flavus_ oder _helvus_ (= color, qui est inter rufum et album Paul. Diac. p. 99. Vgl. Curtius Grdz. d. gr. Et. 5 202) und bezeichnet wohl eine blassgelbe ins Weissliche schimmernde Farbe, wie sie beim Honig auch nicht selten vorkommt (vgl. [GREEK] b. Aristot. de an. h. 9, 40, 21).
+
+Nun ist aber der wesentlichste und wirkungsreichste Bestandteil des Methes nicht das Wasser, sondern der Honig, der zugleich als süsseste, lieblichste Speise gilt, weshalb es nahe lag denselben nicht bloss als Trank, sondern auch als Speise der Götter zu denken. Dass auf diese Weise ziemlich leicht eine Verwechselung der beiden Ausdrücke, [GREEK] und [GREEK], die also genau genommen nur verschiedene Formen derselben Substanz (des Honigs) bezeichnen, entstehen konnte, dürfte um so klarer sein, da [GREEK] ([GREE]) in seiner Eigenschaft als adj. fem. generis ebensowohl die Ergänzung des Begriffes [GREEK] wie [GREEK] oder [GREEK] zulässt. Ursprünglich scheint sogar [GREEK] die Honigspeise bezeichnet zu haben, da es von Curtius, Grundz. d. gr. Etym. 5 S. 184 etymologisch mit [GREEK] zusammengebracht und sonach als (süsse) Leckerei gedeutet wird,* was augenscheinlich am Besten auf den Honig passt.
+
+*) Anders, aber wenig wahrscheinlich, deutet das Wort Kuhn, Herabkunft d. Feuers S. 175, Anm. Er will es mit [GREEK] zusammen bringen. Vgl. Grimm, D. M. 3 294.
+
+Mit dieser Deutung des Nektars und der Ambrosia als Honig stehen auch die Mythen von der Herkunft der Götternahrung im besten Einklang. Es lässt sieh nämlich nachweisen, dass wie der Honig so auch die Ambrosia und der Nektar ihren Ursprung im Himmel oder in einer Art himmlischen Paradieses im äussersten Westen hatten.
+
+Schon die Alten haben die Beobachtung gemacht, dass Baumhonig (Honigthau) und Blumenhonig nicht vor dem Aufgange der Pleiaden entstehen (Aristot. H. A. 5, 22, 4: [GREEK]. Plin. h. n. 11, 30: nec omnino prius Vergiliarum exortu [mel fit]),* und es lässt sich wohl annehmen, dass die antiken Bienenzüchter, gegen das Ende des Winters, wenn der Honigvorrath zu Ende ging oder gänzlich aufgezehrt war, sehnsüchtig nach dem Aufgange des Pleiadengestirns ausschauten, welches ihnen neue Fülle der herrlichsteu Speise verhiess. Diese Tatsache ist nun, wie ich glaube der Anlass zur Bildung eines Mythus gewesen, den schon Homer kannte. Od. [GREEK] 62 heisst es von den Irrfelsen im äussersten Westen (Völcker, Homer. Geogr. S. 118):
+
+[GREEK].
+
+Sowohl die antiken, als auch die meisten modernen Erklärer der Stelle* verstehen hier unter den [GREEK] das Pleiadengestirn ([GREEK]), von dem nur sechs Sterne hell leuchten, während der siebente verdunkelt ist.* Besonders berief man sich in dieser Beziehung auf folgende Verse der Dichterin Moiro (um 300 v. Chr.), worin auch die Quellen der Ambrosia und des Nektars in den äussersten Westen, an die Fluthen des Okeanos, aus dem die Pleiaden aufzusteigen scheinen, verlegt werden:
+
+Moiro b. Ath. 491 b:
+
+[GREEK].*
+
+*) Vgl. auch Plin. h. n. 11, 42: Haec ergo mellatio fine vindemiae et Vergiliarum occasu Idibus Novembribus fere includitur. ib. 43: In Italia vero hoc idem [apes] a Vergiliarum exortu faciunt [= iam vigilant]; in eum dormiunt. Varro de r. r. 3, 16: Eximendorum favorum primum putant esse tempus Vergiliarum exortu... tertium post Vergiliarum occasum.
+
+*) Vgl. die vielen Zeugnisse der Alten b. Athen. 489 e ff. Eustath. zu Od. [GREEK]. 62 (p. 1712). Schol. z. Od. a. a. O. Von neueren Erklärern sind zu nennen: Völcker, Japet. Geschlecht 83 ff. Welcker, Götterl. 1, 69. Preller, gr. Myth. 2 1, 364. Ameis, Anhang z. Odyssee 2. S. 76.
+
+*) Vgl. Aratos Phaen. 257 f. Chiron b. Eustath. a. a. O. Den Anlass, in dem Pleiadengestirn Tauben zu erblicken, gab wohl die Gleichheit oder Aehnlichkeit der Form, da wie aus Athen. u. Eustath. a. a. O. erhellt einerseits die [GREEK] auch sehr häufig [GREEK] (und [GREEK]) und anderseits die Tauben ([GREEK]) schon von Homer [GREEK] genannt wurden. Ursprünglich haben freilich die beiden Worte gar nichts mit einander zu schaffen. [GREEK] (vgl. über das eingeschobene [GREEK] Curtius Grdz. 4 718) hängt mit lat. _pluvia_ zusammen und bezeichnet das Gestirn, dessen Untergang das Herannahen der Regenzeit verkündet (Roscher, Hermes d. Windgott. S. 30), [GREEK] (Taube) dagegen ist verwandt mit [GREEK] grau (Curtius a. a. O. S. 271). Beachtenswert erscheint übrigens, was im Hy. auf Hermes 247 f. berichtet wird, dass in der Höhle der Pleiade Main auf der Kyllene, worin man wahrscheinlich einen Wolkenberg zu erblicken hat (Roscher, Hermes d. Windgott S. 31), reichliche Vorräthe von Ambrosia und Nektar sich befunden hätten. Der liebliche Duft, welcher die Höhle erfüllte (v. 231), wird wohl als eine Wirkung jener Substanzen, deren Wohlgeruch mehrfach hervorgehoben wird (s. Kap. 3, B), aufzufassen sein.
+
+*) Vgl. das hiermit übereinstimmende Relief einer Grabara des Vatikans bei Overbeck, Kunstmythologie 1, 1 (Zeus) S. 329.
+
+Da nun nach der Vorstellung der Alten der Sitz der Götter nicht bloss im Himmel, sondern auch im äussersten Westen, an dem Gestade des Okeanos sich befindet, wohin man auch das Elysium, die Inseln der Seligen, den immer grünenden und blühenden, ein ideales Paradies darstellenden Göttergarten verlegte,* so ist es kaum zweifelhaft, dass in eben diesem paradiesischen Göttergarten, der genau genommen mit dem Olympos oder Himmel identisch ist, auch die Quellen des Nektars und der Ambrosia zu suchen sind. Bestätigt wird diese Annahme ausdrücklich durch folgende schwungvolle Verse des Euripides, worin der begeisterte Dichter die Pracht und Schönheit jenes paradiesischen Göttersitzes im Westen preist:
+
+Hippol. 5. 742:
+
+[GREEK].*
+
+Wie wunderbar stimmt nunmehr der schon homerische Mythus von den aus dem paradiesischen Göttergarten im Westen Ambrosia bringeqden Pleiaden oder Tauben mit jener oben erwähnten indisch-persischen, germanischen und finnischen Vorstellung überein, wonach die Bienen (oder Vögel) den Honig (oder Göttertrank) vom Himmel (oder aus dem Paradiese) herzutragen! Noch merkwürdiger spricht für unsere Annahme einer ursprünglichen Identität von Honig und Ambrosia (Nektar), dass nach anderen Quellen (vgl. oben das Fragment der Moiro) Zeus auf Kreta nicht von Tauben oder Pleiaden mit Ambrosia, sondern von Bienen mit Honig genährt wurde.* Dies ist offenbar nur eine audere Form eines und desselben Grundgedankens, denn die Bienen fangen erst nach dem Aufgang der Pleiaden an den von diesen gewissermassen gebrachten himmlischen Honigthau einzutragen.
+
+*) S. darüber Bergk in Fleckeisens Jahrb. 1860. S. 317 ff. u. 414 ff. Roscher, Studien z. griech. u. röm. Myth. 2, 82 ff. Gorgonen u. Verwandtes 34. Dieselbe Vorstellung findet sich auch bei den Germanen (Mannhardt, Germ. Mythen. 444 ff. 455 ff.).
+
+*) Nach Bergk, a. a. O. 318.
+
+*) Schol. [GREEK].
+
+*) S. Anm. 56, 60, 66.
+
+*) Diod. 5, 70: [GREEK]. Anton. Lib. 19: [GREEK]. Kallim. hy. in Jov. 48: [GREEK]. Daraus ist dann die Legende von dem kretischen König Melisseus und seiner Tochter Melissa entstanden: Apollod. 1, 1, 6. Hyg. P. Astr. 2, 13. Lactant. 1, 22. Vgl. auch Prob. z. Verg. Geo. 4, 1: quo tempore in Ida Juppiter nutriebatur, tum primum [mel] ex aëre fluxisse eoque ipsum alitum. Colum. 9, 2.
+
+Aber nicht bloss als Speise der Götter erscheint die Ambrosia, sie bezeichnet auch hie und da das Futter der Götterrosse und muss demnach in diesen Fällen als eine Art Gras oder Kraut gedacht worden sein. So heisst es Il. _E_ 777 von den Rossen der Hera:
+
+[GREEK],
+
+wozu der Scholiast bemerkt [GREEK].* Derselben Vorstellung begegnen wir auf Il. _E_ 369, wo Iris die Rosse des Ares, und Il. _N_ 35, wo Poseidon sein Gespann mit [GREEK] füttert. Nach Alexander Aetolus fressen die Rosse des Helios ein Gras, welches auf den Inseln der Seligen im äussersten Westen wächst und mit dem Kraute, dem Glaukos die Unsterblichkeit verdankt, identisch ist.* Von demselben Grase sagt Aeschrion bei Ath. 296 f.:
+
+[GREEK],
+
+womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götterparadies im äussersten Westen hingewiesen wird, wo Kronos dem Mythus zufolge gewaltet haben soll (Hes. [GREEK] 169. Pind. Ol. 2, 123. vgl. auch Diod. 5, 66 u. Cic. N, D. 3, 17). Auch sonst wird dieses Kraut oder Gras, welches dem Glaukos Unsterblichkeit verlieh, erwähnt und [GREEK] genannt.* Später scheint man es mit dem Hauslaub oder der Hauswurz, welches von seiner unverwüstlichen Triebkraft und seinem immergrünen Aussehen ebenfalls [GREEK] hiess,* identificirt zu haben, wie schon aus der Tatsache erhellt, dass diese Pflanze auch den Namen [GREEK] führte.* Schliesslich gehört hierher auch das Kraut, durch dessen Genuss Ge den Giganten, ihren Söhnen, die Unsterblichkeit sichern wollte,* die Pflanze, mit deren Hülfe Polyidos den todten Sohn des Minos ins Leben zurückruft,* endlich der Klee, der im Garten der Hera wachsend die Hirsche der Artemis und die Rosse des Zeus nährt.* Man kann diese Idee einer Unsterblichkeit verleihenden Pflanze, die einigermassen an das Somakraut des Rigveda erinnert, entweder für uralt oder, was mir aus mehreren Gründen wahrscheinlicher dünkt,* für eine einfache Uebertragung des Begriffes Unsterblichkeitsspeise von den Göttern auf ihre Rosse halten. Auch in diesem Falle wäre eine Beziehung auf den Honig nicht undenkbar, da es mehrere Pflanzen gab, die sich vor andern durch besonders starken Honiggehalt auszeichneten.* So erzählt Aelianus* von einem indischen Grase, welches in so reichlichem Masse von Honigthau befallen werde, dass es für Rinder und Schafe eine überaus süsse und nahrhafte Speise bilde und in diesen Tieren eine wunderbar süsse Milch erzeuge. Eine ähnliche Vorstellung von Honigblumen, die im Himmel wachsen, lässt sich in germanischen Sagen nachweisen.*
+
+*) Dieser ersten Auffassung des Scholiasten folgte Ovid. Met. 2, 120: ignemque vomentes, ambrosiae suco saturos, praesepibus altis quadrupedes ducunt. ib. 4, 214: axe sub Hesperio sunt pascua solis equorum: ambrosiam pro gramine habent.
+
+*) Alex. Aet. b. Ath. 296 e. [GREEK]. Vgl. Claud. in Stilich. 2, 470.
+
+*) Vgl. Gädechens, Glaukos d. Meergott S. 33 f. Bergk in Fleckeisens Jahrb. 1860. S. 385, Anm. 75. Die gemeinten Stellen sind: Aeschylos fr. 27: [GREEK]. Paus. 9, 22. 7 [GREEK]. Schol. Ap. Arg. 1, 1310 [GREEK]. Ovid. Met. 7, 232 vivax gramen. Claudian. nupt. Hon. et Mar. 158: immortales herbae. Vgl. auch Lobeck Aglaophamos 866 f.
+
+*) Noch jetzt heisst die Pflanze davon in Italien semprevivo = sempervivum b. Plin. u. Palladius. Vgl. Theophr. hist. pl. 7, 15, 2: [GREEK]. Vgl. Lenz, Botanik d. a. Griechen u. Römer S. 601 f.
+
+*) Plin. h. n. 25, 13, 101. Diosk. 4, 91 ff.
+
+*) Apollod. bibl. 1, 6, 6.
+
+*) Apollod. bibl. 3, 3, 1, 2.
+
+*) Kallim. hy. in Dian. 162: [GREEK]. Über den [GREEK] im äussersten Westen vgl. Roscher, Juno u. Hera S. 82, Anm. 254. Bergk in Fleckeisens Jahrb. 1860. S. 414 f.
+
+*) Bei den ältesten Griechen lässt sich nicht wie bei den Indern eine grasoder krautartige Pflanze nachweisen, aus welcher man ein. berauschendes Getränk bereitete.
+
+*) Varro de r. r. 3, 16 nennt Thymian, Cytisus und Melisse (Apiastrum), welche auch Meliphyllon, Melissophyllon und Melinon von ihrem Honiggehalt heisst, als Pflanzen, die vorzugsweise in der Nähe der Bienenstöcke gepflanzt werden sollen, ausserdem noch Mohn, Bufbohnen, Linsen, Erbsen, Cypergras und Luzernklee (medica; vgl. Aristot. d. an. h. 9, 40, 26). Beachtenswerth erscheint der Umstand, dass die letztgenannte Kleeart auch nectarea oder [GREEK] hiess. Vgl. Hesych. s. v. [GREEK]. Plin. n. h. 14, 108: Invenitur et nectarites ex herba, quam alii helenion, alii medicam, alii symphyton, alii Idaeam et Orestion, alii nectaream vocant. Schol. Ar. eq. 606: [GREEK]. Diosc. 1, 27.
+
+*) Ael. de nat. an. 15, 7: [GREEK].
+
+*) Vgl. Mannhardt, German. Mythen S. 424, 471.
 
 # Kapitel 2.
 
