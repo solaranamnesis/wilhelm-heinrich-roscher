@@ -480,8 +480,60 @@ womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götter
 
 **Der Honig als Speise, berauschender Trank, Salbe und Reinigungsmittel.**
 
-...
+Schon seiner natürlichen Beschaffenheit nach lässt sich der Honig ebensowohl als Speise wie als Getränk auffassen --- weshalb Porphyr. de antro n. 15 ihn [GREEK] und [GREEK] zugleich nennt --- daher er einerseits als Flüssigkeit bezeichnet* anderseits mit den Verben des Essens verbunden wird, welche sonst nur von konsistenter Nahrung ([GREEK] Schol. Il. _T_ 352) gebraucht werden.* Und zwar verzehrte man den Honig teils rein, was namentlich ausser von Kindern* auch von den Pythagoreern und von Demokritos* berichtet wird, teils unter andere Speisen, vor allen Dingen unter das süsse Gebäck, gemischt, das ohne Honig nicht denkbar war, da derselbe vollständig die Stelle unseres Zuckers vertrat.*
 
+*) Aristot. de anim. hist. 5, 22, 5 (ed. Didot. 3, 97, 19): [GREEK] ib. Probl. anecd. 3, 21 (ed. Didot. 4, 328, 36): [GREEK]. Ib. 3, 22 (ed. Didot 4, 328, 40) wird der Honig zu den [GREEK] gerechnet: [GREEK]. Plin. h. n. 11, 31 nennt den Honig _saliva_ und _succus_. ib. 32: Est autem initio mel ut aqua dilutum... vicesimo die crassescit... Sorbetur optimum et minime fronde infectum e quercus, tiliae, arundinum foliis.
+
+*) Xen. Anab. 4, 8, 20: [GREEK]. Geopon. 15, 7, 3: [GREEK] (vgl. oben Aristot. Probl. anecd. 3, 22). ib. [GREEK]. Hom. hy. in Merc. 560: [GREEK} Kallim. hy. in Jov. 50: [GREEK]. Sprüche Salom. 24, 13: Iss, mein Sohn, Honig, denn es ist gut und Honigseim ist süss in deinem Halse.
+
+*) Schneider b. Böckh. ad. Pindar. Ol. 6, 46. K. Fr. Hermann, Privatalt. 33, 9.
+
+*) Ath. 2, 46 _e_ ff.: [GREEK]. Geopon. 15, 7: [GREEK]. Galen. 6, 742 ed. K: [GREEK].
+
+*) Vgl. K. Fr. Hermann, Gr. Privatalterth. 24, 22. Marquardt, Röm. Privatalt. 2, 75.
+
+Wichtiger noch ist in diesem Zusammenhange die namentlich von Victor Hehn (Kulturpflanzen u. Haustiere 2 S. 134) hervorgehobene Tatsache, dass der aus der Mischung von Honig und Wasser gewonnene Meth das älteste berauschende Getränk der Griechen bildete, welches bereits vor der Einführung des Weinbaues genossen wurde. Die Zeugnisse, welche für den Gebrauch des Meths im ältesten Hellas sprechen, sind kurz folgende.
+
+Erstens die Etymologie des Wortes [GREEK]. Dasselbe bezeichnet zwar in historischer Zeit, in welcher nur der Wein als berauschendes Getränk genossen wurde, nur so viel wie [GREEK] doch muss es, wie Sanskr. _madhu_ = süsse Speise, Meth, Honig, Lithauisch _medûs_ Honig, _midùs_ Meth, Altpreussisch _meddo_ Meth, Kirchenslavisch _medu_ Honig, Wein, Althochd. _mëtu_ Meth, [GREEK] trunken sein* beweisen, ursprünglich die Bedeutung eines berauschenden Honigtranks gehabt haben. Hierzu kommt noch, dass einzelne Spuren eines solchen Honigmeths sich wirklich noch bis in die historische Zeit hinein erhalten haben.
+
+*) Vgl. Fick, Vrgl. Wörterb. 2 S. 146.
+
+Eine deutliche Ahnung von dieser Tatsache scheint noch Plutarch gehabt zu haben, wenn er Q. Symp. 4, 6, 2 sagt: [GREEK]. Ausserdem kommen als faktisches Zeugniss die Verse aus der Thebais des Antimachos in Betracht, welche uns Athenaios 468 _a_ aufbewahrt hat:
+
+[GREEK].
+
+Wir ersehen daraus, dass man in ältester Zeit den Meth aus einem Gemisch von Honig und Wasser herstellte, wie es noch Plinius h. n. 14, 113 zur Bereitung des sogenannten [GREEK] empfiehlt: Fit vinum et ex aqua ac melle tantum. Quinquennio ad hoc servari caelestem [aquam] iubent; aliqui prudentiores statim ad tertias partes decoquunt et tertiam mellis veteris adiciunt; deinde 90 diebus Canis ortu in Sole habent. Hoc vocatur hydromeli et vetustate saporem vini assequitur, nusquam laudatius quam in Phrygia.* Aehnlich heisst es Geopon. 8, 28: [GREEK]. Dieser Meth muss eine reeht berauschende Wirkung gehabt haben; in einem interessanten Fragment des Orpheus, welches uns Porphyr. de a. nymph. p. 118 Barnes. (= Orphica ed. G. Hermann p. 500) aufbewahrt hat, wird uns erzählt, wie Zeus dem Kronos nachstellt, nachdem er ihn mittelst eines Honigtranks berauscht hat: [GREEK].
+
+[GREEK].
+
+Schon in der Zeit Alexanders d. Gr. scheint die Bereitung des berauschenden Honigmeths so gut wie in Vergessenheit gerathen zu sein, da der Verfasser der aristotelischen Schrift [GREEK] von der Bereitung des Getränks in Griechenland wie von einer verschollenen Sache redet, während er die Herstellung des Honigmeths bei den Taulantiern, einem illyrischen Stamme, ziemlich genau beschreibt.*
+Ein anderes Gemisch von Honig und Wasser, welches aber, wie es scheint, deshalb keine berauschende Wirkung hatte, weil man es nicht kochen und gähren Hess, war freilich immer in Griechenland üblich, in ältester Zeit soll man statt des Wassers Milch dazu genommen haben.* Es führte den Namen [GREEK].
+
+*) Colum. 12, 12: Haec autem (aqua mulsa) non uno modo componitur. nam quidam multos ante annos caelestem aquam vasis includunt et sub dio in sola habent: deinde cum saepius eam in alia vasa transfuderint et eliquaverint... veteris aquae sextarium cum dodrante pondo mellis diluunt et ea portione repletam lagoenam gypsatamque patiuntur per Caniculae ortum in sole 90 diebus esse; tum demum in tabulatum, quod fumum accipit, reponunt etc. Vgl. auch Plin. h. n. 22, 110-112. Pallad. 8, 7. Oribas. 1. p. 360 ff.
+
+*) Aristot. mir. ausc. 22 (ed. Didot 4. 78, 16): [GREEK]. Plut. Q. Symp. 4, 6, 2: [GREEK]. Hesych. [GREEK]. Vgl. Max. Tyr. 27, 6. Uebrigens soll auch der frische Honig ungegohren eine berauschende Wirkung gehabt haben: Vgl. Long. Past. 1, 25: [GREEK]. Hy. in Merc. 556 ff. [GREEK]. Xen. Anab. 4, 8, 20: [GREEK]. Vgl. dagegen Galen. ed. K. 14, 12: [GREEK]. Vgl. auch Diosc. 2, 103.
+
+*) Eustath. ad. Od. [GREEK]. p. 411, 12: [GREEK]. (Vgl. Od. [GREEK] 518 f.) Soph. Oed. Col. 482: [GREEK]. Schol. [GREEK]. Moer. Att. p. 187 ed. Lips. [GREEK]. Vgl. auch Eurip. Or. 114.
+
+Vermuthungsweise sei hier erwähnt, dass Dionysos vor der Einführung des Weinbaus in Hellas und Thrakien ein Gott des Methes war. So erklären sich nämlich am einfachsten die deutlichen Beziehungen, welche er zum Honig hatte. Nach einer zwar nur von Ovid. Fast. 3, 735 ff. überlieferten, aber doch wahrscheinlich uralten Legende soll Dionysos in Thrakien den Genuss des Honigs erfunden haben (a Baccho mella reperta ferunt), man erzählte auch, dass die Thyrsosstäbe und die Bäume bei den schwärmerischen Feiern der Thyiaden von Honig getrieft hätten (s. oben Anm. 31). Aehnlich ist es wohl zu erklären, wenn dem italischen Liber Honigkuchen (liba) geopfert wurden. (Preller, r. Myth. 1 444. Ov. a. a. O.).
+
+Aber nicht bloss als Speise und Getränk wurde der Honig verwerthet, er diente auch vielfach, wie noch jetzt, als Salbe für Haut und Haare,* Wunden* und äussere Schäden. Besonders häufig wurde der Honig als Salbe für kranke Augen und Ohren gebraucht.* Die technischen Ausdrücke für dies Bestreichen mit Honig waren [GREEK] und [GREEK] (Paul. Aeg. 1, 7).
+
+*) Plin. h. n. 13, 8. 9. 11. 12. 15. 18.
+
+*) Plin. h. n. 11, 37: [de melle aestivo] Namque ab exortu sideris cuiuscunque, sed nobilium maxime... medicamenta, non mella, gignuntur, oculis hulceribus... dona caelestia. Aristot. de anim. hist. 9, 40, 21 (ed. Didot. 3, 199, 40): [GREEK]. Porphyr. de antro nymph. 15: [GREEK]. Galen. ed. K. 13, 731. ib. 12, 70. ib. 11, 134.
+
+Schliesslich kommt in diesem Zusammenhange der Honig auch als Reinigungsmittel ([GREEK]) in Betracht. Man schrieb ihm nämlich, ebenso wie dem Mehl von Kichererbsen, Gerste und Bohnen eine milde reinigende Kraft zu und benutzte ihn daher, vermuthlich in einer Lösung mit Wasser ([GREEK]), geradezu als Seife.* Diese Wirkung des Honigs war so allgemein anerkannt und verbreitet, dass sogar in gewissen Mysterien die Vorschrift bestand, die Hände mit Honig statt mit Wasser zu waschen und zu reinigen, womit man, wie Porphyrios angibt, symbolisch andeuten wollte, dass der Eingeweihte sich künftig alles Schlechten, Schädlichen und Hässlichen zu enthalten habe. Ebenso reinigte man auch die Zunge mit Honig, um damit Enthaltung von allen sündhaften Worten anzudeuten.* In einem griechischen Epigramme (Jacobs, Del. epigr. gr. 6, 46) wird [GREEK] unter anderen Schönheitsmitteln erwähnt:
+
+[GREEK].
+
+*) Vgl. ausser den schon in der vorigen Anmerkung angeführten Stellen noch Plin. h. n. 11, 38: Maxime laudabile est etiam omne rutilum, vel sic auribus aptissimum. ib. 22, 108 f. Mel... utilissimum... volneribus a serpente percussis... Mel auribus instillatur cum rosaceo, lendes et foeda capitis animalia necat... Rursus quidam angulos [oculorum] exhulceratos melle tangi suadent. Aristot. Probl. ined. 1, 2 (ed. Didot. 4, 291, 35): [GREEK]. Plin. h. n. 29, 128: Mel utilissimum oculis. Seren. Sammon. cap. 13 p. 43 f. ed. Ackerm.: Hyblaei mellis succi cum felle caprino || Subveniunt oculis dira caligine pressis. Diosc. 2, 101: [GREEK]. Cels. 6, 34: at si ex senectute [lippitudo] est, recte inungi potest... melle optimo.
+
+*) Aristot. Probl. ined. 1, 2 (= ed. Didot. 4, 291, 31): [GREEK]. Galen. 10, 569 ed. K.: [GREEK]. ib. 11, 744: [GREEK]. Cels. 5, 16: cutem mel purgat. Diosc. 2, 101.
+
+*) Porphyr. de antro. n. 15: [GREEK].
+
+*) Vgl. auch Ovid. Medic. fac. 66 u. 81, wo zur Erzielung einer schönen Farbe der Haut und der Lippen eine Salbe empfohlen wird, als deren wesentlichster Bestandteil Honig erscheint. Diosc. 2, 102.
 
 ## B.
 
