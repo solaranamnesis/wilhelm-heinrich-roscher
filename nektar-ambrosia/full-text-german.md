@@ -226,15 +226,85 @@ Wie nun in den die eben angedeuteten Vorstellungen bestätigenden Zeugnissen [GR
 
 Auch hinsichtlich des metaphorischen Gebrauchs stimmen [GREEK] und [GREEK] merkwürdig überein, insofern beide von der Süssigkeit der Rede und des Gesanges gebraucht werden (Kap. 7).
 
-...
-
 # Kapitel 1.
 
 ## A. 
 
 **Der Honig fällt nach antikem Glauben als Thau vom Himmel und aus der Luft auf die Pflanzen (Blumen und Bäume) nieder und gilt demnach für eine Art von Himmelsspeise. Ähnliche Vorstellungen bei den Hebräern (Manna), Indern, Germanen und Finnen.**
 
-...
+Es ist eine merkwürdige, noch nicht gehörig beachtete Tatsache, dass die Griechen und Römer, wie auch andere Völker, den Honig fast durchweg* für ein Produkt nicht etwa der Bienen oder der Pflanzen, sondern des Himmels und der Luft hielten, aus welcher er als eine Art von Thau niederfalle. Und zwar scheint dies nicht bloss uralte Volksanschauung, sondern auch die Ansicht der meisten Philosophen gewesen zu sein. Diese Vorstellung erklärt sich ziemlich einfach aus der Erscheinung des sogenannten Honigthaus. So nennt man bekanntlich noch jetzt eine eigenthümliche Krankheit der Blätter, welche von einer klebrigen meist süssen Ausscheidung plötzlich befallen werden. Sie hat wahrscheinlich ihren Grund in dem Missverhältniss von Saftzuführung und Wasserausscheidung, weil sie vorzüglich im Sommer bei starker auf kalte Nächte folgender Hitze die Blätter wie ein glänzender Firniss überzieht.* Der Honigthau erscheint vorzüglich an der Oberfläche der Blätter und an den der Sonne ausgesetzten Pflanzen und zwar plötzlich, Blattläuse wie Blattsauger schwitzen zuweilen auch aus dem After einen honigartigen Saft in solcher Menge aus, dass die Pflanzen, besonders im Juli, damit gleichsam überfirnisst sind (Vgl. Leunis, Synopsis der drei Naturreiche 2, Botanik S. 168). Aus der angeführten Tatsache nun, dass die in Rede stehende Erscheinug eines süssen honigartigen Saftes plötzlich und vorzüglich an der Oberfläche der Blätter und an den der Sonne ausgesetzten Pflanzen auftritt, zog man einfach den Schluss, dass der süsse Saft (Honig) aus der Luft oder vom Himmel als eine Art Regen oder Thau (daher der Name "Honigthau") niederfalle, weshalb die Alten von [GREEK] oder [GREEK] ([GREEK]) oder [GREEK] reden* und den Saft geradezu Thau ([GREEK], ros) nennen oder doch damit vergleichen.* Ferner behauptet man, dass es vornehmlich die Eiche, Linde und gewisse Rohrarten seien, auf welche der süsse Thau des Himmels niederfalle.* Nicht undenkbar wäre es, dass unter den Rohrarten Zuckerrohr zu verstehen ist, von dem die Alten bekanntlich annahmen, dass es eine Art Honig hervorbringe.* So erklärt sich wohl auch die namentlich bei den lateinischen Dichtern verbreitete Vorstellung, dass die Eichen (quercus u. ilices) im goldenen Zeitalter von Honigthau getrieft hätten,* was schwerlich auf das von Hesiod und Andern erwähnte Bauen der Bienen in hohlen Eichenstämmen zu beziehen ist,* da an einer Stelle die Blätter (nicht der Stamm) als Sitz des Honigs bezeichnet worden, an einer andern Stelle dieser mit dem Prädikat _roscidus_ belegt wird. Nach Kuhn (Herabkunft des Feuers und des Göttertranks S. 136) gehört auch die Esche zu denjenigen Bäumen, welche die Erscheinung des Honigthaus besonders häufig und stark ausgeprägt zeigen, weshalb er ihren Namen [GREEK] wohl nicht mit Unrecht mit [GREEK] zusammenbringt (vgl. Hesych. [GREEK]). Hierher gehört endlich auch die Manna, welche nach der biblischen Erzählung die Speise der Israeliten in der Wüste bildete. Dieselbe fiel (regnete) vom Himmel während der Nacht wie Thau nieder (Exod. 16, 4 u. 14. Num. 11, 9) und war von süssem, honigartigem Geschmack (Exod. 16, 31). An mehreren Stellen der Psalmen wird sie deshalb geradezu als Himmelsspeise bezeichnet (Ps. 78, 24. 105, 40). Diese Beschreibung passt zu dem Safte, welcher jetzt noch Manna heisst und von mehreren Bäumen und Sträuchern Südeuropas und des Orients wie Fraxinus Ornus (Mannaesche), Hedysarum Alhagi, Tamarix mannifera, der orientalischen Eiche (s. oben Anm. 24) gewonnen wird. Nach Ehrenberg (Symbolae physicae fasc. 1, 1823) fiel die Manna der Israeliten aus deu Spitzen der Tamarix mannifera auf die Erde, sie entsteht durch Schildinsekten, welche die äussersten Aeste des Strauchs bedecken und die Rinde mit ihren Stichen durchbohren. Aus diesen Wunden fliesst der Saft, der sich zu einem röthlichen Honig verdickt. Die Manna von Briançon gewinnt man aus den jungen Trieben des Lärchenbaumes (Larix Europaea). (Vgl. Winer, Bibl. Realwörterb. 3 (1847) Brockhaus' Conversations-Lex. unter Manna.*) Aehnliches berichten griechische Schriftsteller von (nicht näher bezeichneten) Bäumen in Thrakien, Medien, Lydien,* Syrien und Italien.* Sicherlich ist die in den Versen des Euripides Bacch. 709:
+
+[GREEK].
+
+ausgesprochene Vorstellung aus der Beobachtung des Honigthaus hervorgegangen, wie schon Aelian h. an. 5. 42 (s. Anm. 29) richtig vermuthet hat.*
+
+*) Die beiden einzigen Stellen, so viel ich weiss, an welchen angedeutet ist, dass im Alterthum hier und da der Honig auch als ein Erzeugniss der Blumen oder der Bienen galt, finden sich bei Theophr. fr. 190: [GREEK] und Sen. ep. 84: Quibusdam placet non faciendi mellis scientiam apibus esse sed colligendi. Vgl. auch Probus z. Verg. Georg. 4. 1: quidam dicunt mel in aëre nasci, quidam apes colligere.
+
+*) Interessant ist es, dass schon die Alten genau dieselbe Beobachtung gemacht haben: Galen. [GREEK] (ed. Kuehn 6, 739): [GREEK]. Aristot. h. an. 5, 22, 4 (ed. Didot 3, 97, 7 ff.): [GREEK]. Plin. n. h. 11, 30: Venit hoc ex aëre et maxime siderum exortu, praecipue ipso Sirio exsplendescente fit, nec omnino prius Vergiliarum exortu, sublucanis temporibus. Itaque tum prima aurora folia arborum melle roscida inveniuntar etc.
+
+*) Athen. p. 200 _c_: [GREEK] Galen. [GREEK]. (ed. Kühn 6, 739): [GREEK]. Diod. 19, 94: [GREEK] (den Nabatäern) [GREEK]. Nach Polyaen 4, 3, 32 gehörten zum täglichen Bedarf des persischen Hofes [GREEK]. Suidas s. v. [GREEK]. Vgl. auch Ev. Matth. 3, 4: [GREEK] (Vulg. mel silvestre). Bocharti Hierozoicon ed. Rosenmüller 3, 375 ff.
+
+*) Galen. a. a. O. (6, 739 ed. K.): [GREEK]. Plin. 16. 31: constatque rores melleos e caelo, ut diximus, non aliis magis insidere frondibus (als dem der Eiche). Ael. [GREEK] 15, 7: [GREEK]. Plin. 11, 30: Venit hoc ex aëre... tum prima aurora folia arborum melle roscida inveniuntur. Sen. ep. 84, 4: aiunt inveniri apud Indos mel in arundinum foliis, quod aut ros illius coeli aut ipsius arundinis humor... gignit. Etwas phantastisch schildert Nonnos Dion. 26, 183 die Honigbäume in Arizantia: [GREEK]. Vgl. auch Grimm, Deutsches Wörterb. unter Honigthau.
+
+*) Vgl. Plin. 16, 31 (oben Anm. 23). Theophrast fr. 190 ed. W. [GREEK]. Id. h. plant. 3, 7, 6: [GREEK]. Diod. 17, 75: [GREEK]. Curt. Ruf. 6, 4, 22: [In Hyrcania] frequens arbor faciem quercus habet, cuius folia multo melle tinguntur: sed nisi solis ortum incolae occupaverint, vel modico tepore sucus extinguitur. (Vgl. Exod. 16, 21). Philostr. Her. 750 (2, p. 217 ed. K.): [GREEK] (d. Amazonen) [GREEK]. Arr. Peripl. mar. Eryth. p. 9 ed. Huds. [GREEK]. Seneca ep. 84, 4: aiunt inveniri apud Indos mel in arundinum foliis, quod aut ros illius caeli aut ipsius arundinis humor dulcis et pinguior gignit. Ael. h. an. 15, 7: [GREEK].
+
+*) Aristot. Probl. ined. 1, 2 (5, 291, 28 ed. Didot.): [GREEK]. Isidor Hisp. Orig. 17, 7. Megasthenes b. Strabo 15, 1. Diosc. de m. m. 2, 104. Plin. h. n. 12, 8, 17. Galen, de simpl. medic. 7, 9. Mehr b. Lenz, Botanik d. a. Griechen u. Römer. 267 f.
+
+*) Vergil. Ecl. 4, 30 (cf. v. 6!): et durae quercus sudabunt roscida mella. id. Georg. 1, 131: Mellaque decussit foliis (Juppiter). Tib. 1, 3, 45: Ipsae mella dabant quercus. Ov. Met. 1, 112: Flavaque de viridi stillabant ilice mella.
+
+*) Hesiod. [GREEK] 232. Pseudo-Phocylid. 174 ed. B. Verg. Geo. 4, 44. Hör. ca. 2, 19, 11. Epod. 16, 47. Sil. 2, 219. Ov. Fast. 3, 747. Am. 3, 8, 40. Antip. Sidon. Anth. 1, 38.
+
+*) Wenn es Exod. 16, 21 heisst, dass die Morgensonne die Manna zerschmolzen hätte, so erinnert dies an die Erzählung des Curt. Ruf. 6, 4, 22, wo es von dem hyrkanischen Eichenhonig heisst: sed nisi solis ortum incolae occupaverint vel modico tepore sucus extinguitur.
+
+*) Aristot. de mir. ausc. 19 (4, 78 ed. Didot): [GREEK].
+
+*) Galen. [GREEK] (6, 739 ed. Kühn): [GREEK] (vgl. Pseudoaristot. Probl. ined. 1, 2 (5, 291, 27 f. ed. Didot). [GREEK]. Vorher sagt Galenus: [GREEK]. Plin. n. h. 15, 96: Sponte nascitur in Syriae maritimis, quod elaeomeli vocant. Manat ex arboribus pingue, crassius melle, resina tenuius, sapore dulci.
+
+*) Vgl. auch Philostr. im. 2, 320, 19 ed. Teubn. [GREEK]. Etwas anders Hor. ca. 2, 19, 9 ff.: Fas pervicaces est mihi Thyiadas, || Vinique fontem lactis et uberes || Cantare rivos atque truncis || Lapsa cavis iterare mella.
+
+Aber nicht bloss den von den Blättern und Zweigen der Bäume ausgeschwitzten Honigsaft, sondern auch den eigentlichen Blumenhonig hielt man für eine Art Thau, oder ein Produkt, des Himmels und der Luft, nicht bloss weil er mit dem Baumhonig identisch zu sein schien, sondern auch weil er sich ziemlich an derselben Stelle der Blumen und Blüthen vorfindet, welche vom Thau benetzt zu werden pflegte. Das älteste Zeugniss, welches sich für diese Anschauung anführen lässt, findet sich, so viel ich weiss, in Hesiods Theogonie: Hier heisst es 5. 81:
+
+[GREEK].
+
+Offenbar ist hier [GREEK] für Honig gebraucht, der ja schon von Homer* der Süssigkeit der Rede oder des Gesanges verglichen worden ist (S. unten Kap. 7). Selbst Aristoteles (h. a. 5, 22, 4) führt für die Meinung, dass der Honig aus der Luft falle ([GREEK]), während das Wachs von den Blumen, das Stopfwachs ([GREEK], _melligo_) von den Bäumen komme, die Beobachtung an, dass die Bienenzüchter in einem oder zwei Tagen die Stöcke voll Honig finden und dass es zwar im Herbste Blumen aber keinen Honig mehr gibt, wenn er weggenommen wird. [GREEK], fährt Aristoteles fort, "[GREEK]." Aehnlich sagt Columella (9, 14 z. Ende): idemque (Celsus) ait, ex fioribus ceras fieri, ex matutino rore mella. Daher wird auch der Blumenhonig, ebenso wie der Baumhonig, als ein himmlischer Thau gefasst* und von Dichtern und Naturforschern in begeisterten Worten als göttlicher Nektar und Geschenk des Himmels, als eine Göttern und Menschen gleichwillkommene Speise gepriesen.*
+
+*) Vgl. 2. 1, 247: [GREEK]. Hom. hy. 25, 4: [GREEK] (vgl. Hesiod. Theog. 94). Ebenso wie hier Hesiod so nennt auch Pindar den Honig [GREEK]: vgl. Nem. 3, 73: [GREEK]. Dazu bemerkt der Scholiast: [GREEK].
+
+*) Verg. Geo. 4, 1: Protinus aërii mellis caelestia dona exsequar, wozu Serv. bemerkt: nam mel exrore colligitur, qui utique defluit ex aëre. Prob. Quidam dicunt mel in aëre nasci, quidam apes colligere quo tempore in Ida Juppiter nutriebatur: tum primum ex aëre fluxisse, eoque ipsum alitum. Philostr. Im. 2, 414 ed. K. [GREEK] (Sophokles) [GREEK]. Dio Chrys. 2, p. 178. [GREEK]. Anth. Gr. 2, 177, 29, 1 (ed. Brunck); [GREEK].
+
+*) Varro de r. r. 3, 16: Intus opus faciunt [apes], quod, dulcissimum quod est, et Deis et hominibus est acceptum. Anth. Gr. 2, 177, 29, 8 (ed. Brunck): [GREEK]. Plin. 11, 30: Sive ille est caeli sudor, sive quaedam siderum saliva, sive purgantis se aëris succus, utinamque esset et purus ac liquidus et suae naturae, qualis defluit primo; nunc vero e tanta cadens altitudine multumque dum venit sordescens et obvio terrae halitu infectus, praeterea a fronde ac pabulis potus et in uterculos congestus apum (ore enim vomunt), ad haec succo florum corruptus et alveis maceratus totiensque mutatus, magnam tamen caelestis naturae voluptatem affert. ib. 37: nec alia suavitas visque mortalium malis a morte vocandis quam divini nectaris.
+
+Wie alt und volksthümlich diese griechische Vorstellung von der Entstehung des Honigs gewesen ist, erkennt man namentlich dann, wenn man bedenkt, dass eine gleiche oder doch ähnliche Anschauung sich auch bei andern verwandten und nichtverwandten Völkern nachweisen lässt.
+
+Zunächst bei den Indern. In einem an die Açvins gerichteten Hymnus des Rigveda (1, 112, 11) wird ausdrücklich gesagt, dass der Honig (_madhu_) aus der Wolke (nicht aus dem Fass, wie Grassmann übersetzt hat,) ströme.* Dass hier unter _madhu_ in der Tat Honig und nicht Meth oder Soma zu verstehen ist, scheint aus Vers 21 desselben Liedes hervorzugehen, wo von den Açvins gesagt ist:
+
+"Womit den Bienen ihr den lieben Honig (_madhu_) bringt, mit solchen Hülfen kommt, o Ritter, schnell herbei."
+
+*) Vgl. Myriantheus, Die Açvins oder die Arischen Dioskuren, München 1876, S. 128 ff., wo freilich S. 130 Theophr. fr. 190 ed. W. völlig missverstanden ist und willkürlich _madhu_ statt im eigentlichen Sinne in der Bedeutung Regen genommen wird, obwohl dem 5. 21 ausdrücklich widerspricht.
+
+Der Gedanke dass die Wolke mit Hülfe der Açvins Honig ströme kann nach den vorstehenden Erörterungen um so weniger befremden, da wir auch sonst die Açvins als Herrscher im Reiche der Wolken und als Regenspender auftreten sehen (Vgl. Myriantheus, Die Açvins 131 ff.)
+
+Ebenso wie die Griechen scheinen auch die Inder die Vorstellung von einem Honig oder Soma (= Amrita d. i. Unsterblichkeitstrank) träufelnden Baum zu kennen. Rigv. 2, 164, 20-22 heisst es:
+
+"Zwei Vögel, zu einander gesellte Freunde, setzen sich auf denselben Baum; der eine von ihnen isst die süsse Feige, der andere schaut ohne zu essen zu."
+
+"Wo die geflügelten des Amrita Spende im Opfer unaufhörlich preisen, der Herr des Alls, der Hüter der Welt, der Weise, hat mich den Schüler dorthin gesetzt."
+
+"Auf welchem Baum die Madhu (Honig oder Soma) essenden Vögel niedersitzen... auf dessen Wipfel ist die süsse Feige, sagen sie: die kann der nicht erlangen, der den Vater nicht kennt." (Vgl. Kuhn, Herabholung des Feuers S. 127. Grassmann, Rigveda übersetzt 2 S. 457 f.)
+
+Ungefähr dieselbe Bedeutung scheint der in der Kaushîtaki-Upanishad erwähnte somaträufelnde Feigenbaum Ilpa zu haben, der an einem alterlosen durch seinen Anblick jung machenden Strom steht (vgl. Kuhn a. a. O. S. 128). Weber, Ind. Studien 1, 397. Kuhn a. a. O. S. 131 und Mannhardt German. Mythen 553 fassen ihn wohl mit Recht als ein Symbol des Himmels. Ist das richtig, so leuchtet ein, dass auch in diesem Falle der Honig oder Soma (_madhu, amṛta_) als ein Produkt des Himmels angesehen wurde.
+
+Noch viel klarer ist aber dieselbe Vorstellung in dem germanischen Mythus von der Weltesche Yggdrasill ausgesprochen, in welcher längst ein Bild des über unsern Häuptern sich ausspannenden Luft- und Wolkenhimmels erkannt ist. (Mannhardt a. a. O. 543. Kuhn a. a. O. 131). Dieser Baum, sagt Gylfaginnîng, ist aller Bäume grösster. Seine Zweige breiten sich über die ganze Welt und ragen über den Himmel empor. An seiner einen Wurzel befindet sich der Urðarbrunnen, dessen Wasser so heilig ist, dass Alles was in den Brunnen kommt so weiss wird wie die Haut, die inwendig in der Eierschale liegt. Den Thau, der von der Esche auf die Erde fällt, nennt man Honigfall (_hunângfall_), davon nähren sich die Bienen.* (Sn. 20).
+
+*) Vgl. Mannhardt, German. Mythen. 542 f. Grimm, deutsche Mythol.* S. 659. Kuhn, Herabkunft etc. 129 ff.
+
+Auf dieselbe Vorstellung führt wohl auch die eigenthümliche poetische Bezeichnung der Wolke als Bienenschiff (_byskip_).* Es liegt darin wohl der Gedanke ausgesprochen, dass die Bienen ebenso wie gewisse andere Insekten ihren eigentlichen Sitz im Wolkenhimmel haben, aus welchem sie den Honig mit herabbringen. (Näheres bei Mannhardt a. a. O. S. 370 £f.) Sehr schön sagt Grimm (D. Myth. 3 S. 858 vgl. S. 658): "der Bienen Ursprung ist im Paradies (= Himmel), um die Sünde der Menschen verliessen sie es und Gott gab ihnen seinen Segen; darum kann die Messe nicht gesungen werden ohne Wachs." (Ancient laws of Wales 1 739). Nach Mannhardt (German. Mythen. S. 424) wurde das himmliche Lichtreich einst als ein wunderherrlicher Garten gedacht, woher der Blumenschmuck alljährlich auf die Erde kommt. Ringsum blühen grosse Blumen, die Honig in den Kelchen bergen (vgl. auch S. 471).
+
+*) Mannhardt, German. Mythen. S. 371 u. 552.
+
+Eine ganz ähnliche Vorstellung tritt uns endlich auch in der finnischen Mythologie entgegen. Ein finnisches Lied lautet:* "Biene, du Weltvöglein, flieg in die Weite, über die Seen, über den Mond, über die Sonne, hinter des Himmels Sterne, neben der Achse des Wagengestirns; flieg in den Keller des Schöpfers, in des Allmächtigen Vorrathskammer, bring Arznei mit deinen Flügeln, Honig in deinem Schnabel, für böse Eisenwunden und Feuerwunden." Wer sieht nicht, dass in diesem Liede die Biene aufgefordert wird, den himmlischen Honig, den man auch zu Arzneien verwerthete, aus dem obersten Himmelsraume herabzuholen? Nochmals mache ich darauf aufmerksam, dass auch der indische Soma und der persische Haoma, d. i. die Pflanze, welche Menschen und Göttern den stärkenden, unsterblich machenden Trank lieferte, dem Himmel entstammt und von Vögeln von dort auf die Erde herabgebracht wird (Kuhn, Herabkunft d. Feuers u. d. Göttertranks 118 ff.).
+
+*) Vgl. Gubernatis, Die Tiere in der indogerman. Mythologie. S. 508, der sich auf Tomasson und Menzels Schrift, "Die vorchristl. Unsterblichkeitslehre" beruft.
 
 ## B.
 
