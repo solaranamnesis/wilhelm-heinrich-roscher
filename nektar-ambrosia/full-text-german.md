@@ -24,43 +24,49 @@
 
 ## [B.](#b-14)
 
-# [Kapitel 2.]()
+# [Kapitel 2.](#kapitel-2-2)
 
-## [A.]()
+## [A.](#a-15)
 
-## [B.]()
+## [B.](#b-15)
 
-# [Kapitel 3.]()
+# [Kapitel 3.](#kapitel-3-2)
 
-## [A.]()
+## [A.](#a-16)
 
-## [B.]()
+## [B.](#b-16)
 
-# [Kapitel 4.]()
+# [Kapitel 4.](#kapitel-4-2)
 
-## [A.]()
+## [A.](#a-17)
 
-## [B.]()
+## [B.](#b-17)
 
-# [Kapitel 5.]()
+# [Kapitel 5.](#kapitel-5-2)
 
-## [A.]()
+## [A.](#a-18)
 
-## [B.]()
+## [B.](#b-18)
 
-# [Kapitel 6.]()
+# [Kapitel 6.](#kapitel-6-2)
 
-## [A.]()
+## [A.](#a-19)
 
-## [B.]()
+## [B.](#b-19)
 
-# [Kapitel 7.]()
+# [Kapitel 7.](#kapitel-7-2)
 
-## [A.]()
+## [A.](#a-20)
 
-## [B.]()
+## [B.](#b-20)
 
-# [Schlussbemerkungen.]()
+# [Schlussbemerkungen.](#schlussbemerkungen-2)
+
+# [Die Grundbedeutung der Aphrodite.]()
+
+# [Die Grundbedeutung der Athene.]()
+
+# [Nachträge und Berichtigungen.]()
 
 ---
 
