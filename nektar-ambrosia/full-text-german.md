@@ -672,7 +672,61 @@ Da endlich der Honig in der Regel das Arom der Pflanze bewahrt, von deren Blüth
 
 **Süssigkeit, Lieblichkeit und Wohlgeruch der Ambrosia und des Nektars.**
 
-...
+Genau dieselben Epitheta wie beim Honig lassen sich auch für die Ambrosia und den Nektar nachweisen. So ist öfters von [GREEK] von [GREEK] oder [GREEK], von ambrosia dulcis die Rede,* ja es wird sogar von Ibykos, wie wir sahen, die Ambrosia hinsichtlich ihrer Süssigkeit geradezu als eine höhere Potenz des Honigs aufgefasst.* Wenn [GREEK] wie Curtius Grdz. d. gr. Etym. 5 184 vermuthet, wirklich mit [GREEK] Leckerei verwandt ist, so scheint man auch den Göttertrank ursprünglich nach seiner Süssigkeit und Lieblichkeit benannt zu haben. Wie [GREEK] in vielen Kompositis in der übertragenen Bedeutung von süss, lieblich erscheint, so auch [GREEK] und [GREEK] sowohl an und für sich als auch in den beiden Adjektiven [GREEK], Lat. _ambrosius, nectareus_.*
+
+*) [GREEK]: Il. _T_ 347. 353. Hy. in Apoll. 124. Hesiod. Theog. 642. [GREEK] Il. _A_ 598. Theocr. Id. 7, 82. [GREEK] Hy. in Cer. 48. Suaviolum dulci dulcius ambrosia Catull. 99, 2. Ov. Met. 14, 606 ambrosia cum dulci nectare mixta.
+
+*) Ibykos b. Athen. 39 b. Vgl. oben Anm. 94.
+
+*) Vgl. z. B. [GREEK] = reizendes Gewand 2. [GREEK] 385 u. Hentze z. d. St. [GREEK] Il. [GREEK] 25. [GREEK] Apoll. Rh. 3, 1009. [GREEK] Pind. fr. 46. Das lat. _nectar_ bezeichnet bildlich alles Süsse und Angenehme z. B. Honig, Verg. Geo. 4, 164. Aen. 1, 433. Wein Stat. silv. 2, 2, 99. Milch, Ov. Met. 15, 116. Wohlgeruch Lucr. 2, 847. Süssigkeit der Lippen Hor. ca. 1, 13, 16. Lieblickeit der Dichtkunst: Pers. prol. 14, _nectareus_ = lieblich vom Weine: Mart. 13, 108. App. Met. 5, p. 160, 9. vom Quellwasser: Claudian. nupt. Hon. 209. Ziemlich dieselbe Bedeutung scheint oft [GREEK], lat. _ambrosius_ zu haben, z. B. wenn ersteres Wort vom Wasser, vom Schlaf (vgl. [GREEK] Mosch. 2, 3 u. [GREEK] Il. _B_ 34. Bacchyl. b. Stob. flor. 55, 3, 5), von den Schleiern, Gewändern, Haaren der Götter gebraucht wird. In Betreff verschiedener Gerichte und Getränke, welche wegen ihres Wohlgeschmacks mit Nektar und Ambrosia verglichen und geradezu so genannt wurden, vgl. Bergk in Fleckeisens Jahrb. 1860. S. 388 ff.
+
+Endlich galten auch Nektar und Ambrosia ebenso wie der Honig als besonders wohlriechend. Das älteste Zeugniss dafür findet sich Od. [GREEK] 445, wo von Eidothea erzählt wird, dass sie den üblen Geruch der Robbenfelle, in welche Odysseus und seine Gefährten bei der Ueberlistung des Proteus sich hüllten, durch wohlriechende Ambrosia vertrieben habe:
+
+[GREEK].*
+
+*) Schol. [GREEK].
+
+Ausserdem kommen noch folgende Stellen in Betracht:
+
+Theogn. 5:
+
+[GREEK] (d. h. bei der Geburt Apollons).
+
+Ar. Ach. 196:
+
+[GREEK].
+
+Philoxenos b. Ath. 409 e (= Bergk fr. Lyr. Gr. 2 p. 990):
+
+[GREEK].
+
+Nossis Anth. Gr. 6, 275:
+
+[GREEK] (Aphrodite) [GREEK].
+
+Theokr. Id. 17, 28:
+
+[GREEK].
+
+Lucr. 2, 847:
+
+sicut amaracini blandum stactaeque liquorem  
+et nardi florem, nectar qui naribus halat.
+
+Verg. Geo. 4, 415:
+
+Haec ait [Cyrene] et liquidum ambrosiae dififundit odorem,  
+quo totum nati [Aristaei] corpus perunxit.
+
+Ov. Met. 4, 250:
+
+Nectare odorato sparsit corpusque locumque.
+
+ib. 10, 731:
+
+...Sic fata cruorem nectare odorato spargit.*
+
+*) Vgl. auch Prudent. Nat. Dom. 68: fragrasse nardo et nectare. Ov. M. 14, 606.
 
 # Kapitel 4.
 
