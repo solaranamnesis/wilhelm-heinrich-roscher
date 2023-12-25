@@ -846,11 +846,37 @@ Auch als göttliche Pharmaka scheinen Ambrosia und Nektar gegolten zu haben, da 
 
 **Erhaltende (antiseptische) Wirkung des Honigs. Honig als Einbalsamirungsmittel.**
 
-...
+Bekanntlich hat man bei der Konservirung vegetabilischer und überhaupt organischer Produkte vorzugsweise darauf zu sehen, dass der atmosphärischen Luft mit ihrer fäulnisserregenden Wirkung der Zutritt verschlossen werde, was am Besten durch Anwendung antiseptischer Substanzen geschieht, welche entweder vermöge ihrer eigenen Unveränderlichkeit die mit ihnen umhüllten Körper schützen oder eine positive chemische Einwirkung ausüben. Zu denjenigen antiseptischen Substanzen nun, welche schon das Alterthum kannte und häufig verwendete, gehört in erster Linie der Honig, insofern derselbe nicht bloss lange völlig unverändert bleibt, sondern auch durch die ihm eigenthümliche Art von Konsistenz und Flüssigkeit alle Poren der von ihm umhüllten Organismen luftdicht zu verschliessen vermag.*
+
+*) Plin. n. h. 22, 108: Mellis quidem ipsius natura talis est, ut putrescere corpora non sinat, iucundo sapore atque non aspero, alia quam salis natura. Porphyr. de antro nymph. 15: [GREEK]. Simeon. Seth. synt. alim. facult. ed. Langkavel p. 69: [GREEK].
+
+Am frühesten lässt sich diese Anwendung des Honigs, welche gewiss uralt und ebenso weit wie der Honig selbst verbreitet war, bei den Babyloniern nachweisen, welche die Leichname ihrer Angehörigen nach Herodot und Strabo erst mit Wachs überzogen und dann in Honig legten.*
+
+*) Herod. 1, 198: [GREEK]. Strab. 746: [GREEK]. Das Ueberziehen mit Wachs nannte man [GREEK] (vgl. Herod. 1, 140. Cic. Tusc. 1, 45).
+
+In Hellas wurde diese Einbalsamirungsart namentlich bei spartanischen Königen angewendet, wenn dieselben fern von der Heimat gestorben waren, wie z. B. Agesilaos und Agesipolis,* scheint aber nach gewissen Aeusserungen antiker Schriftsteller zu urteilen auch sonst vorgekommen zu sein.* Vielleicht führt eine genauere Untersuchung der als Särge benützten thönernen [GREEK] (auch [GREEK] oder [GREEK]) dazu Spuren von Honig in ihnen nachzuweisen (K. Fr. Hermann, Griech. Privatalt. 40, 9). Dann würde sich nicht nur die [GREEK],* sondern auch die bekannte Sage von Glaukos, dem Sohne des Minos, welcher in einem Honigfasse ([GREEK]) erstickte und von Polyidos mittels eines Zauberkrautes zu neuem Leben erweckt wurde,* sehr einfach aus dieser Sitte erklären lassen. Namentlich soll Demokrit diese Einbalsamirungsmethode empfohlen haben,* während von Diogenes erzählt wird, dass er sie verspottet habe.* Ausser den spartanischen Königen sollen auch Alexander d. Gr., Aristobulos und Iustinian* in Honig konservirt und beigesetzt sein.
+
+*) Diod. 15, 93: [GREEK] [Agesilaos], [GREEK]. Anders Nepos Ages. 8: Ibi eum amici, quo Spartam facilius perferre possent, quod mel non habebant, cera circumfuderunt. Ebenso Plut. Ages. 40. Xen. Hell. 5, 3, 19: [GREEK] (Agesipolis) [GREEK].
+
+*) Lucr. 3, 886 ff.: Nam si in morte malumst malis morsuque ferarum || tractari, non invenio qui non sit acerbum || ignibus impositum calidis torrescere flammis, || aut in melle situm suffocari. Colum. 12, 45: Ea mellis est natura, ut coerceat vitia nec serpere ea patiatur, qua ex causa etiam exanimum corpus hominis per annos plurimos innoxium conservat. Sim. Seth. a. a. O. [GREEK]. (Anm. 141).
+
+*) Porphyr. autr. nymph. 18. Theocr. Id. 15, 94 u. Schol. Daneben erscheint aueh die Form [GREEK] b. Cocondrius [GREEK] 6.
+
+*) Apollod. 3, 3, 1, 2. Eustath. z. Hom. p. 369, 20. Aehnlich ist die Geschichte von dem in einer [GREEK] lebendig begrabenen und von Bienen mit Honig gefütterten Kometes bei Theocr. Id. 7, 78 ff. u. Schol.
+
+*) Varro b. Non. Marc. 230, 26: Heraclides Ponticus plus sapit, qui praecipit ut comburerent quam Democritus, qui ut in melle servarent. Vgl. oben S. 47.
+
+*) Stob. Flor. 6, 3: [GREEK].
+
+*) Stat. Silv. 3, 2, 117: Duc et ad Aematheos manes, ubi belliger urbis || Conditor Hyblaeo perfusus nectare durat. Auch nach muhamedanischer Ueberlieferung des Ebn Batrik bei Herbelot soll Alexander in einen goldenen mit Honig gefüllten Sarg gelegt worden sein (Menzel, Myth. Forschungen 1, 207). Joseph. Antt. 14, 7, 4: [GREEK] [des Aristobulos] [GREEK]. Coripp. laud. Iust. 3: Thura Sabaea cremant fragrantia mella locatis || Infudunt pateris et odoro balsama succo, || Centum aliae species unguenta quemira feruntur, || Tempus in aeternum sacrum servantia corpus.
+
+Schliesslich bleibt noch zu erwähnen, dass der Honig ebenso wie heutzutage der Zucker zum Konserviren der Baumfrüchte und wie gegenwärtig der Spiritus zur Erhaltung todter Tiere, z. B. interessanter Missgeburten oder Kuriositäten vielfach in Gebrauch war.*
+
+*) Colum. 12, 10: Illud in totum praecipiendum existimavi nullum esse genus pomi, quod non possit melle servari. Plin. h. n. 30, 115: in melle servandos [terrenos vermes] censent. Ib. 7, 35: Et nos principatu eius [Claudii Caesaris] allatum [Hippocentaurum] illi ex Aegypto in melle vidimus.
 
 ## B.
 
-**Ambrosia und Nektar in der Bedeutung von Honig gebraucht. Ambrosia und Nektar als Nahrung der neugeborenen Götterkinder.**
+**Erhaltende (antiseptische) Wirkung der Ambrosia. Ambrosia als Einbalsamirungsmittel.**
 
 ...
 
