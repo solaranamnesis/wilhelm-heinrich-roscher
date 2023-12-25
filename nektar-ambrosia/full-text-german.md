@@ -62,11 +62,11 @@
 
 # [Schlussbemerkungen.](#schlussbemerkungen-2)
 
-# [Die Grundbedeutung der Aphrodite.]()
+# [Die Grundbedeutung der Aphrodite.](#die-grundbedeutung-der-aphrodite-1)
 
-# [Die Grundbedeutung der Athene.]()
+# [Die Grundbedeutung der Athene.](#die-grundbedeutung-der-athene-1)
 
-# [Nachträge und Berichtigungen.]()
+# [Nachträge und Berichtigungen.](#nachträge-und-berichtigungen-1)
 
 ---
 
