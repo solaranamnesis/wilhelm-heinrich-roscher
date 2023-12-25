@@ -734,7 +734,53 @@ ib. 10, 731:
 
 **Der Genuss des Honigs macht die Menschen gesund und verlängert das Leben. Heilkraft des Honigs.**
 
-...
+Der Glaube an eine die Gesundheit des Menschen fördernde Kraft des Honigs war in den ältesten Zeiten überall verbreitet, ja er ist selbst heute noch nicht völlig erstorben, da Honig bekanntlich immer noch massenhaft bei Brustleiden genossen und in den Apotheken zu Salben verarbeitet wird.
+
+Vor allem sind hier zwei ältere Philosophen, Pythagoras und Demokrit, zu nennen, welche nicht bloss ihren Anhängern den Genuss des Honigs empfahlen, sondern auch selbst in dieser Beziehung mit gutem Beispiele vorangegangen sein sollen. Dass sie hierin nur einer allgemein verbreiteten Volksmeinung folgten, wird aus später folgenden Zeugnissen klar werden.
+
+Die interessanteste und vollständigste Mitteilung in Betreff der Hochschätzung des Honiggenusses seitens des Demokrit und Pythagoras findet sich bei Athenaios 2, 46 e: [GREEK]. Nach Lykos sollten die Kyrnier (Korsen) ihre auffallend lange Lebensdauer dem fortwährenden Genusse des massenhaft bei ihnen erzeugten Honigs verdanken.* Plinius berichtet, dass ein gewisser Pollio Romilius durch fortgesetzten Genuss des Honigmethes (mulsum) sein Leben über hundert Jahre gebracht und dem Kaiser Augustus, welcher ihn nach dem Grunde solcher Lebensfrische fragte, dieselbe Antwort wie Demokrit gegeben habe.* Galenos empfiehlt daher namentlich Greisen den Genuss des Honigs,* während Hippokrates seine Nahrhaftigkeit rühmt und hinzufügt, dass er namentlich eine gesunde Farbe des Körpers bewirke.* Letztere Ansicht hängt vielleicht mit der mehrfach bezeugten Erfahrung zusammen, dass Honig den menschlichen Körper innerlich durch gelinde Abführung* und äusserlich durch Salbungen und Waschungen reinige, für welche Tatsache ich schon oben eine Anzahl Zeugnisse gesammelt habe (s. Anm. 83). Dieselben Ansichten von der gesundheitfördernden Wirkung des Honigs finden sich auch bei andern Völkern, z. B. den Semiten* und Germanen.*
+
+*) Noch ausführlicher berichten die Geopon. 15, 7: [GREEK].
+
+*) In Betreff des Pythagoras und seiner Schüler vgl. auch Laert. Diog. vita Pythag. 18, 19. Porphyrios v. Pyth. 34. Jamblich. v. Pyth. 97. Eustath. z. Il. [GREEK] 680.
+
+*) Ath. 47 a: [GREEK].
+
+*) Plin. h. n. 22, 114: Multi senectam longam mulsi tantum nutritu toleravere, neque alio ullo cibo, celebri Pollionis Romilii exemplo. Centesimum annum excedentem eum Divus Augustus hospes interrogavit, quanam maxime ratione vigorem illum animi corporisque custodisset. At ille respondit: intus mulso, foris oleo.
+
+*) Galen. 6, 742 ed. K. [GREEK].
+
+*) Hippocr. 2, 424 ed. K. [GREEK]. Plin. h. n. 11, 11: [Apes] mella contrahunt sucumque dulcissimum atque subtilissimum ac saluberrimum.
+
+*) Galen. 6, 740 ed. K. [GREEK]. Sim. Seth. synt. alim. fac. ed. Langkavel p. 69: [GREEK]. Cels. 5, 5: purgat mel crudum. ib. 2, 19: alvum movet.
+
+*) Sprichw. Salom. 24, 13: Iss, mein Sohn, Honig, denn es ist gut, und Honigseim ist süss in deinem Halse. 1. Sam. 14, 27: Jonathan... reckte seinen Stab aus, den er in der Hand hatte, und tunkte mit der Spitze in den Honigseim und wandte seine Hand zu seinem Munde: da wurden seine Augen wacker. Vgl. auch Sirach 39, 31.
+
+*) Ein deutsches Sprichw. lautet: Honig essen ist gesund, zu viel macht speien. Grimm, Deutsches Wörterb. unter Honig.
+
+Aber nicht bloss als ein Gesundheit und Lebensdauer förderndes Nahrungsmittel betrachtete man den Honig, man brauchte ihn auch in unzähligen Fällen als wirksamstes Arzeneimittel gegen Krankheiten und Verwundungen. Eine überaus reiche Sammlung von hierher gehörigen Notizen lässt sich mit leichter Mühe aus den Indices zu den antiken Aerzten (namentlich Galenos u. Nikandros s. v. mel und aqua mulsa) sowie zu Plinius zusammenstellen, woraus ich hier nur das Wichtigste und Charakteristischeste mitteilen kann.*
+
+*) Vgl. auch Bochart, Hierozoic. 4, 4 p. 230 u. 507 ff.
+
+Wie alt zunächst der Gebrauch des Honigs als eines Arzeneimittels ist, erkennt man aus einer von Plinius* berichteten Legende, wonach Sol, der Sohn des Okeanos, die medicinische Verwertung des Honigs erfunden haben soll. Der erste Schriftsteller, welcher des medicinischen Gebrauchs des Honigs als einer längst bekannten Sache gedenkt, ist Aristoteles an derjenigen Stelle in seiner Nikomachischen Ethik, wo er einen Vergleich zwischen der Gerechtigkeit und der ärztlichen Kunst anstellt und den Honig unter den gangbarsten Mitteln der Aerzte an erster Stelle erwähnt.* Plinius* stellt den medicinischen Werth des Honigs geradezu dem werthvollsten Arzneimittel des Alterthums, dem Teufelsdreck (laser, [GREEK]), gleich und fügt hinzu, dass er in unzähligen Fällen von Aerzten angewendet werde. Besonders hindere er die Fäulniss, habe einen angenehmen Geschmack, leiste bei Krankheiten des Schlundes, der Mandeln, bei Halsbräune und allen möglichen Krankheiten des Mundes, beim Fieber, bei Schwindsucht und Pleuritis vortreffliche Dienste, ebenso bei Schlangenbiss und Vergiftung durch Pilze. Vom Schlage Getroffene müssten ihn mit Meth geniessen, Ohrenkranken werde Honig mit Rosenöl ins Ohr eingeflösst, ferner vernichte er Läuse und anderes Ungeziefer. Augenentzündungen würden durch Bestreichen mit Honigsalbe geheilt. Der aus abgeschäumtem Honig frisch bereitete Trank (aqua mulsa) bilde eine treffliche Nahrung für Kranke,* hebe die gesunkenen Kräfte wieder, thue dem Munde und Magen wohl, lindere die Hitze, den Husten,* bilde auf Brod gegossen ein treffliches Pflaster für plötzliche Geschwulst und für Verrenkungen. Der Trapezuntische Honig soll nach Aristoteles sogar Epileptische zu heilen vermögen.* Die im Corpus Inscr. Graec. unter No. 5980 mitgeteilte aus einem Asklepiostempel stammende Inschrift zählt unter andern Arzneimitteln besonders auch [GREEK] auf.* Dass der Honig als Wundsalbe, sowie bei Augen- und Ohrenkrankheiten eine wichtige Rolle spielte, haben wir schon gesehen.*
+
+*) Plin. h. n. 7, 197: auri metalla et conflaturam [invenit]... Sol, Oceani filius, cui Gellius medicinae quoque inventionem ex melle assignat. Möglicherweise hängt diese Legende mit dem Brauche zusammen, dem Helios Honig zu opfern: Phylarchos b. Ath. 693 f. Wahrscheinlich erklärt sich diese Beziehung des Helios zum Honig aus der oben (S. 14) besprochenen Tatsache, dass der Honigthau nur die der Sonne zugekehrte Seite der Blätter befällt und überhaupt Sonnenschein zur Entstehung des Honigs und zum Wohlbefinden der Bienen nothwendig ist.
+
+*) Aristot. Eth. Nicom. 5, 9, 15 (ed. Didot. 2, 64, 6): [GREEK].
+
+*) Plin. n. h. 22, 107 ff.: Non esset mellis auctoritas in pretio minor, quam laseris, ni ubique nasceretur... innumeros ad usus, si quoties misceatur aestimemus... Mellis quidem ipsius natura talis est etc. Vgl. Diosc. ed. K. 1, 229 ff.
+
+*) Ib. 110 ff. Repentina [aqua mulsa] despumato melle praeclaram habet utilitatem in cibo aegrotantium levi... viribus recreandis, ore stomachoque mulcendo, ardore refrigerando etc.
+
+*) Ib. 112: Aqua mulsa et tussientibus utilis traditur etc. Vgl. auch Galen. ed. Kühn 15, 651. 809. 17 _B_ 329. 369. 15, 650. 658. 787. 10, 733. 823.
+
+*) Arist. mir. ausc. 18 (vol. 4, 77, 33 D.): [GREEK]. Vgl. Ael. v. h. 5, 42 u. Geopon. 15, 9, 4.
+
+*) Vgl. a. a. O. Z. 11: [GREEK]. Ib. Z. 15: [GREEK]. Auch in Zauberrecepten spielt der Honig eine Rolle: Parthey, Zwei griech. Zauberpapyri (Abh. d. Berl. Akademie. 1866) 1, 6 u. 20 u. 2, 19.
+
+*) Oben Anm. 82. Ausserdem vgl. noch Plin. h. n. 11, 37: mel aestivum... medicamenta, non mella, gignuntnr, oculis hulceribus internisque visceribus dona caelestia. Theodot. Epit. p. 805 D ed. Sylb. [GREEK]. Galen. ed. Kühn 12, 70. 10, 501. 11, 134. 6, 266. 7, 102. 10, 475. 13, 731 f.
+
+Dieselbe Bedeutung hat der Honig auch bei den andern Völkern, z. B. bei den Finnen. Gubernatis (Die Tiere in der indogerm. Mythologie, übers, v. Hartmann p. 508) teilt ein interessantes finnisches Lied an die Biene mit, welches lautet: "Biene, Du Weltvögelein, flieg in die Weite, über neun Seen, über den Mond, über die Sonne, hinter des Himmels Sterne, neben die Achse des Wagengestirns; flieg in den Keller des Schöpfers, in des Allmächtigen Vorrathskammer, bring Arzenei mit Deinen Flügeln, Honig in Deinem Munde für böse Eisenwunden und Feuerwunden."
 
 ## B.
 
