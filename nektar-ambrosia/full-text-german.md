@@ -640,7 +640,33 @@ Ebenso dachte man sich endlich Aphrodite den Adonis und Kyrene den Aristaios mit
 
 **Süssigkeit, Lieblichkeit and Wohlgeruch des Honigs.**
 
-...
+Das ganze Alterthum kannte keine süssere und lieblichere Speise als den Honig, wie aus mannigfachen Zeugnissen erhellt, namentlich aber aus der Tatsache, dass man sich die Menschen des goldenen glückseligen Zeitalters vorzugsweise von Honig lebend dachte.* Ferner glaubte man in der ältesten Zeit, dass er die Nahrung und der aus ihm bereitete berauschende Meth den Trank der seligen Götter bildete.* Noch Galenos* nennt ihn [GREEK] und fügt hinzu [GREEK]. Darum glaubten Dichter wie Ibykos die Lieblichkeit des Ambrosiagenusses nicht besser versinnlichen zu können als durch den Vergleich mit dem Honig, als dessen höhere Potenz sie die Götterspeise auffassen.* In besonders begeisterten Worten preist der sonst so nüchterne Plinius den Honig, wenn er sagt: (h. n. 11, 30): Sive ille est caeli sudor, sive quaedam siderum saliva, sive purgantis se aëris succus, utinamque esset et purus ac liquidus et suae naturae, qualis defluit primo; nunc vero et anta cadens altitudine multumque dum venit sordescens et obvio terrae halitu infectus, praeterea e fronde ac pabulis potus et in uterculos congestus apum (ore enim cum vomunt) ad haec succo florum corruptus et alveis maceratus totiesque mutatus magnam tamen caelestis naturae voluptatem affert. Die gewöhnlichsten Epitheta des Honigs sind daher [GREEK], _dulcis_, [GREEK].* Ausserordentlich häufig sind Redensarten und Ausdrücke, welchen die übertragene Bedeutung von [GREEK] (mel) = Süssigkeit, Lieblichkeit zu Grunde liegt.* So gebrauchte man u. A. im Lateinischen mel zur Bezeichnung eines innig geliebten Menschen* und verglich überhaupt die Lieblichkeit der Rede, des Gesanges u. s. w. mit dem Honig.* Aehnliche Vergleiche finden sich bekanntlich massenhaft in der deutschen und hebräischen Literatur.*
+
+*) Nossis in der Anth. Gr. 6, 275: [GREEK]. Verg. Geo. 4, 413: Haec ait et liquidum ambrosiae diffundit odorem, || Quo totum nati corpus perduxit; at illi || Dulcis compositis apiravit crinibus aura, || Atque habilis membris venit vigor. Ov. M. 14, 606.
+
+*) Verg. Ecl. 4, 30. Geo. 1, 131. Tibull. 1, 3, 45. Ov. Met. 1, 112. Ebenso ist in der Bibelsprache ein gesegnetes Land ein solches, "darinnen Milch und Honig fleusst." Il. Mos. 3, 8. Grimm, Deutsches Wörterb. unter Honig. Vgl. auch das Schmolck'sche Lied: Ach so lass den letzten Trunk Mir zur sanften Ruh geniessen, Dass ich dort in Kanaan Honigbäche trinken kann. Grimm a. a. O. unter Honigbach.
+
+*) Vgl. oben Kap. 1, B.
+
+*) Galen. [GREEK]. 1, 2 (vol. 14, p. 11 ed. K.) Vgl. auch Aristot. de an. 2, 9, 3: [GREEK]. Cic. de fin. 3, 34: Mel... dulcissimum est. Ecclesiast. 11, 3: [GREEK].
+
+*) Ath. 39 b: [GREEK]. Vgl. Schol. Pind. Pyth. 9, 113: [GREEK]. Anth. 2, 133, 6 ed. Brunck: [GREEK]. Tzetz. Hist. 8, 984: [GREEK] (Epicurei) [GREEK].
+
+*) [GREEK] Od. [GREEK]. 69 [GREEK]. 68. Orph. Lith. 500, 663. Theocr. Id. 15, 117. [GREEK]. Eur. Bacch. 710. [GREEK] Callim. hy. in Jov. 50. Anth. Gr. ed. Brunck 3, 177, 30. [GREEK] Hesiod. Theog. 81. [GREEK]. Hy. in Merc. 562. dulcia mella Verg. Geo. 4, 101. Pind. Isthm. 4, 60: [GREEK]. Orph. Lith. 729: [GREEK].
+
+*) Vgl. die zahlreichen Komposita, deren erster Bestandteil [GREEK] ist z. B. [GREEK] u. s. w. Lat. _melleus, mellitus_.
+
+*) Vgl. Sempronium, mel ac delicias tuas Cic. fam. 8, 8. Plaut. Poen. 1, 2, 154. 170. 175. melliculum Plaut. Cas. 4, 4, 19. mellilla ib. 1, 47.
+
+Da endlich der Honig in der Regel das Arom der Pflanze bewahrt, von deren Blüthen er gesammelt wird, so wird häufig auch sein Wohlgeruch hervorgehoben.* Besonders hoch scheint man den Geruch des vom Thymian gesammelten Honigs geschätzt zu haben.*
+
+*) Hom. 2. 1, 249: [GREEK]. Hes. Theog. 81: [GREEK]. Theoor. Id. 20, 27: [GREEK]. ib. 8, 83: [GREEK]. ib. 3, 54: [GREEK]. Hor. ep. 1, 19, 44: poetica mella. ib. Sat. 2, 6, 32: Hoc iuvat et melli est. Plaut. Cas. 2, 8, 21: mel mihi videor lingere u. s. w.
+
+*) Sprichw. Salom. 16, 24. Hohel. 4, 11. Ps. 119. 103. Grimm, Deutsches Wörterb. unter Honig, Honigmonat, Honigrede, Honigschlummer, Honigseim, Honigstimme u. s. w.
+
+*) Aristot. mir. ausc. 16 (= 4, 77, 27 ed. Didot). Diosc. 2, 101. Galen. de antid. 1, 2. Vol. 2, p. 425 ed. B. Id. Method. cur. l. 7, p. 109. Vol. 4, ed. Bas. Id. de sanit. tuenda l. 4. p. 620. Vol. 4. Plin. n. h. 11, 15. Geopon. 15, 7, 2: [GREEK] und die Ausleger zu dieser Stelle.
+
+*) Ov. Met. 15, 80: Mella thymi redolentia florem. Verg. Geo. 4, 169: fragrantia mella thymo redolent. Coripp. l. 3: fragrantia mella. Galen. 10, p. 475. 477 ed. Kühn.
 
 ## B.
 
