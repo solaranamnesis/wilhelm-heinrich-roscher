@@ -908,7 +908,75 @@ Hier ist namentlich auf das Verbum [GREEK] zu achten, welches unsere im vorigen 
 
 **Honig in derselben Bedeutung wie sonst Ambrosia und Nektar als Götterspeise. Honig als Opferspeise der Götter und abgeschiedenen Seelen sowie als erste Nahrung menschlicher und göttlicher Kinder.**
 
-...
+Ein ganz besonders wichtiges Zeugniss für unsere Annahme, dass Nektar und Ambrosia ursprünglich mit dem Honig identisch seien, liegt in dem Umstände, dass [GREEK] hie und da geradezu als Götternahrung bezeichnet wird. Schon die Pythagoreer, welche, wie wir oben (S. 46 f.) sahen, den Honig als ein gesundheitförderndes und das Leben verlängerndes Nahrungsmittel empfahlen, scheinen sich auf die hier in Betracht kommenden Belegstellen berufen zu haben, da Porphyrios de antro nympharum 16 ausdrücklich bemerkt: [GREEK].
+
+Sicherlich beruht diese Bedeutung des Honigs auf jener das ganze Alterthum beherrschenden, von uns bereits im ersten Kapitel zur Genüge erörterten Anschauung, dass der Honig ein vom Himmel fallender Thau, also schon seiner Herkunft und Entstehung nach eine Art von Himmelsoder Götterspeise sei.
+
+Das älteste Zeugniss für die Geltung des Honigs als Götterspeise findet sich im Hymnus auf Hermes 560 f. Hier heisst es von den in so vieler Hinsicht räthselhaften Thrien:
+
+[GREEK].
+
+Ferner kommt hier das schon oben erwähnte Fragment der Orphica bei Porphyrios de antro nymph. 16 in Betracht, wo erzählt wird, dass Zeus seinen Vater Kronos überwältigte, nachdem er ihn mit Honigmeth berauscht hatte. Die eigenen Worte des Porphyrios lauten: [GREEK].
+
+Hieran reiht sich schliesslich noch ein Zeugniss der Batrachomyomachie 5. 39, wo von einer Honigspeise ([GREEK]) gesagt wird:
+
+[GREEK].
+
+Ich glaube, der Zusatz "welche sogar die Götter begehren" lässt in Anbetracht der übrigen Zeugnisse auf dieselbe Vorstellung wie jene schliessen, nämlich, dass der Honig als Götterspeise betrachtet wurde. Vielleicht bezieht sich hierauf auch der Ausdruck, den Lucian Halcyon 7 von der Biene gebraucht: [GREEK] doch lässt sich freilich [GREEK] in diesem Zusammenhauge auch in allgemeinerer Bedeutung fassen oder auf die himmlische Herkunft des Honigs (Kap. 1) zurückführen.
+
+In diesen Zusammenhang gehören ferner jene schon oben (S. 43) besprochenen Stellen, an denen die Ambrosia als zehn- oder neunfache Potenz des Honigs hingestellt wird.* Wahrscheinlich hängt dies mit der namentlich von Plinius bezeugten Anschauung zusammen, dass der reine himmlische Honigthau auf der Erde durch Ausdünstungen des Bodens, Unreinigkeit der Pflanzen, Blumen und Bienen erheblich verunreinigt und, in seiner Wirkung beeinträchtigt werde.*
+
+*) S. oben Kap. 3, A. Anm. 94.
+
+*) Plin. n. h. 11, 30: Sive ille [liquor melleus] est caeli sudor, sive quaedam siderum saliva, sive purgantis se aëris succus, utinamque esset et purus ac liquidus et suae naturae, qualis defluit primo; nunc vero e tanta cadens altitudine multumque dum venit sordescens et obvio terrae halitu infectus, praeterea e fronde ac pabulis potus et in uterculos congestus apum (ore enim vomunt,) ad haec succo florum corruptus et alveis maceratas totiesque mutatus magnam tamen caelestis naturae voluptatem affert.
+
+Endlich ist hier noch der Tatsache zu gedenken, dass der Honig als erste Nahrung göttlicher Kinder betrachtet wurde, was wiederum auf die Sitte zurückzuführen ist, menschliche Kinder unmittelbar nach der Geburt mit Honig zu füttern. So haben wir schon oben in Betreff des Zeus gesehen, dass man ihn als neugeborenes Kind entweder von Bienen mit Honig oder von den Pleiaden ([GREEK]]) mit Ambrosia genährt dachte, während nach anderweitiger Ueberlieferung der erste Honigthau bei der Geburt des Zeus auf die Erde herabgefallen sein sollte.* Ebenso nährt die Nymphe Makris, die Tochter des Aristaios, den kleinen Dionysos mit Honig, welchen sie auf seine trockenen Lippen streicht.* Dass diese Mythen ursprünglich dem Brauche menschlichen Kindern gleich nach der Geburt die Lippen mit Honig zu benetzen entsprungen sind, erhellt namentlich aus Pindar, Olymp. 6, 45, wo vom kleinen Iamos erzählt wird, dass Schlangen ihn mit Honig genährt hätten,* was, wie schon Schneider in Böckhs Commentar z. d. St. (p. 158) gewiss richtig erkannt hat, auf eine allgemein griechische Sitte schliessen lässt.* Wie es scheint erhielt sich dieser Brauch bis in die christliche Zeit hinein. Die Christen der ältesten Zeit gaben Neugetauften Milch und Honig zu essen (Bochart, Hierozoic. 3, 388). Uebrigens findet sich dieselbe Sitte auch bei den mit den Griechen verwandten Indern* und Germanen,* ja sogar bei den nicht verwandten Hebräern. Bei den alten Deutschen galt das neugeborne Kind, so lange es noch keine Speise genossen hatte, als eine noch nicht zur vollen Menschheit durchgedrungene Seele. "Bis zu dem bezeichneten Zeitpunkt war es auch nach altgermanischem Recht erlaubt ein Kind zu tödten oder auszusetzen, weil es noch nicht als ein echter Mensch. betrachtet werden konnte. War jedoch irdische Speise [Honig und Milch] über seine Lippen gekommen, so hörte dieses Recht auf. Als des heiligen Liudger Mutter Liafburg geboren wurde, befahl die noch heidnische Schwieger das neugeborne Kind als Mädchen im knabenlosen Hause in eine Badewanne zu werfen und so zu tödten. Eine mitleidige Nachbarin kam herzu, strich dem Kinde etwas Honig in den Mund und erwarb ihm so das Recht ans Leben. Es wurde nicht getödtet, sondern ausserhalb des elterlichen Hauses auferzogen."* Die alten Hebräer gaben ihren Neugebornen Butter und Honig zu essen, weil sie glaubten, dass die Kinder dadurch verständig und tugendhaft würden.* "Ein deutsches Kindermärchen (No. 62 bei Grimm) weiss von der Bienenkönigin, die sich auf den Mund ihres Günstlings setzt; an wen sie im Schlafe fliegt, der gilt für ein Glückskind" (Grimm, D. Myth. 3 659).
+
+*) S. oben Kap. 1. B, S. 30. Anm. 58.
+
+*) Apollon. Arg. 4, 1134: [GREEK].
+
+*) Pind. a. a. O. [GREEK] u. Schol. z. d. St.
+
+*) Die Worte Schneiders lauten: In Graecia infantes primum melle alebantur, quod ex Paulo et Aëtio monstrat Is. Vossius ad Barnabae Epist. p. 311, cui rei ollulam cum spongia adhibuerunt etc. Vgl. K. Fr. Hermann, Gr. Privatalt. 2 33, 9. Uebersehen hat Schneider die sehr schlagende Beweisstelle der griechischen Anthologie (Jacobs, Delect. epigr. gr. 10, 62): [GREEK].
+
+*) Bṛhadaraṇyaka 6, 4. Çatap. brâhm. b. Weber S. 1108: Indem der Vater seinen Mund an das rechte Ohr des Neugeborenen bringt, murmelt er dreimal; "rede, rede!" Darauf gibt er ihm einen Namen: "du bist Veda," das ist sein Geheimname. Darauf mischt er geronnene Milch, Honig und Butter und füttert es damit aus reinem Golde. Kuhn, Herabk. 137.
+
+*) Grimm R.-A. 457 ff. D. M. 3 295. Rochholz, Allem. Kinderlied 282 ff. Kuhn, a. a. O. Mannhardt, Germ. Mythen. 311 f.
+
+*) Mannhardt a. a. O. 311.
+
+*) Jesaias 7, 15: Butter und Honig wird er essen, dass er wisse Böses zu verwerfen und Gutes zu erwählen. Der heilige Basilius bemerkt dazu treffend: [GREEK]. Aphrodite zieht nach Od. [GREEK] 69 die verwaisten Töchter des Pandareos mit Käse, Honig und Wein auf ([GREEK]). Vgl. auch Bochart, Hierozoic. 3, 388.
+
+Den Vorstellungen von der himmlischen Herkunft des Honigs und seiner uralten Bedeutung als Götterspeise entspricht es ferner augenscheinlich, wenn wir ihn in zahlreichen Fällen als Opferspeise verwendet sehen. Man ging dabei offenbar von der nahe liegenden Voraussetzung aus, dass unter den sämmtlichen Opferspeisen keine den Göttern willkommener sein könne als diejenige, welche nach der allge-meinen Vorstellung an und für sich schon die Nahrung der Unsterblichen bildete.
+
+Dass allen Göttern Honig auf den Altären geopfert wurde, bezeugt zunächst Varro de r. r. 3, 16 mit den Worten: quod [mel], dulcissimum quod est, et Diis et hominibus est acceptum: quod favus venit in altaria. Ebenso sagt Pausanias 5, 15, 10 von dem alten Opferritus der Eleer zu Olympia: [GREEK].* Zu diesen allgemeinen Zeugnissen kommen noch mehrere speziellere für die einzelnen Götter. So empfangen Honigopfer Hermes, Dionysos, Helios, Pan, Priapus, die Musen, Nymphen, Mithras etc.,* sowie die chthonischen Gottheiten Pluton, Hekate und die Erinyen, endlich der Hund Cerberus.*
+
+*) Vgl. auch Polemo bei Schol. Soph. Oed. Col. 100: [GREEK]. Dass man unter [GREEK] Honigopfer ([GREEK]) zu verstehen hat, lehrt Plut. Q. Symp. 4, 6, 2: [GREEK].
+
+*) Antip. Sidon. b. Brunck, Anal. 2, 13, 28: [GREEK]. Ovid. Fast. 3, 735: Liba deo fiunt, succis quia dulcibus idem || Gaudet et a Baccho mella reperta ferunt. Phylarch. b. Athen. 693 f.: [GREEK]. (vgl. Eustath. z. Od. 1668, 25). Calpurn. Sic. ecl. 2, 66: rorantesque favos damus et liquentia mella [Priapo|. Orakel b. Euseb. Praep. ev. 4, 9: [GREEK]. Porphyr. de antro n. 16: [GREEK] [Mithras] [GREEK] Vgl. auch die vorige Anm. Anth. 5, 226: [GREEK]. ib. 6, 232, 3: [GREEK]. Emp. b. Ath. 510 d.
+
+*) Sil. It. 13. 415: Duc praedicta sacris duro placamina Diti: || Mella simul tecum et puri fer dona Lyaei. Apoll. Rh. 3, 1035: [GREEK]. Aesch. Eum. 106: [GREEK] (vgl. oben Anm. 167) Soph. Oed. Col. 481: [GREEK]. (Paus. 2, 11, 4). Vgl. auch ib. 5. 100. Verg. Aen. 6, 419: Cui [Cerbero] vates, horrere videns iam colla colubris, || Melle soporatam et medicatis frugibus offam || Objicit. Suid. s. v. [GREEK] (vgl. Schol. Arist. Nub. 507 u. 508).
+
+Hierher gehört endlich auch die Sitte den Seelen der Abgeschiedenen Honigopfer darzubringen. Die ältesten Zeugnisse hierfür bieten uns die homerischen Gedichte. So setzt Achilleus auf den Scheiterhaufen des Patroklos Krüge, welche mit Honig angefüllt waren, damit sie mit der Leiche zugleich verbrennen sollten (Il. [GREEK] 170: [GREEK]), Od. [GREEK] 36 erzählt die Seele des Agamemnon dem ebenfalls in der Unterwelt weilenden Achilleus die Geschichte von seiner Bestattung. Vers 67 heisst es:
+
+[GREEK].
+
+Als Odysseus in das Todtenreich gelangt, um den Teiresias zu befragen, bringt er allen Todten eine Spende dar bestehend aus Honigtrank, Wein und Wasser (Od. [GREEK] 26. [GREEK]: Vgl. [GREEK] 518). Derselbe Brauch erhielt sich bis in die historische Zeit hinein, wie schon aus Eurip. Iph. Taurica erhellt.* Als Iphigenia den vermeintlichen Tod ihres einzigen Bruders beklagt, will sie ihm als Spende darbringen: 5. 160
+
+[GREEK].
+
+*) Vgl. ausserdem Aesch. Persae 607, wo als Todtenspende ([GREEK]) angegeben wird: [GREEK]. Eurip. Or. 115: [GREEK].
+
+Später sagt sie ihrem Bruder zum Troste, sie werde ihm, wenn er den Opfertod erlitten, ein regelrechtes Leichenbegängniss nach hellenischer Sitte bereiten. 5. 632:
+
+[GREEK].
+
+Fragen wir nach der ursprünglichen Bedeutung des Honigs beim Todtenopfer, so scheinen vorzugsweise zwei Gründe dafür massgebend gewesen zu sein. Der eine von ihnen besteht wohl in der Anschauung, dass der Todte ein Heros oder ein Halbgott sei und deshalb dieselben Opfergaben wie ein Gott empfangen müsse.* Zweitens aber kommt hier die fast bei allen Naturvölkern herrschende Sitte in Betracht, den Todten solche Gegenstände und namentlich Nahrungsmittel mitzugeben, welche sie im Leben gebraucht hatten, und von denen man annahm, dass sie sie auch im Jenseits geniessen würden (vgl. Tylor, Die Anfänge der Cultur, übers. von Spengel u. Poske 2, 29 ff. 1, 478 ff. Marquardt, Röm. Privatalt. 1, 368 f.). Da nun der Honig die süsseste und beliebteste Speise war, welche das Alterthum kannte, so begreift sich leicht, dass man ihn vorzugsweise auf das Grab goss oder mit dem Todten auf dem Scheiterhaufen verbrannte. Eine ähnliche Bedeutung scheint der Honig bei den Germanen gehabt zu haben. Für die Bergmännlein (Elben), in welche die Seelen Verstorbener übergingen, wurde ein Tischchen gedeckt, Milch und Honig darauf gesetzt und in diese Speise das Blut einer schwarzen Henne getropft.* Das stimmt ziemlich genau mit den oben erwähnten griechischen Todtenopfern überein.
+
+*) Vgl. K. Fr. Hermann, Gottesd. Alt. 2 § 16, 12 ff. Nägelsbach, Nachh. Theologie S. 407 ff.
+
+*) Grimm, D. Sagen 1. S. 48, No. 38. Mannhardt, German. Mythen 725.
 
 ## B.
 
