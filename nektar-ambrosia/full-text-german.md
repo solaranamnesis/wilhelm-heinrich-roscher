@@ -982,6 +982,70 @@ Fragen wir nach der ursprünglichen Bedeutung des Honigs beim Todtenopfer, so sc
 
 **Ambrosia und Nektar in der Bedeutung von Honig gebraucht. Ambrosia und Nektar als Nahrung der neugeborenen Götterkinder.**
 
+Im vorstehenden Abschnitt unserer Untersuchung haben wir gesehen, dass der Honig mehrfach als Götterspeise betrachtet wurde; jetzt wollen wir als Gegenstück dazu den Gebrauch der Ausdrücke [GREEK] und [GREEK] zur Bezeichnung des Honigs erörtern, woraus, wie kaum hervorgehoben zu werden braucht, die nahe Verwandtschaft der beiden Begriffe abermals klar erhellen wird.
+
+Das älteste Beispiel für den uneigentlichen Gebrauch von [GREEK] = [GREEK] habe ich bei Euripides Bacch. 142 N. gefunden:
+
+[GREEK].
+
+Dass freilich dieser Gebrauch von [GREEK] viel älter als Euripides ist, scheint ein schönes Pindarisches Fragment (No. 45 b. Böckh) zu lehren, wo 5. 14 der herannahende Frühling, welchen vor allen die honigspendenden Blumen spüren, mit den begeisterten Worten gepriesen wird:
+
+[GREEK].
+
+Mehrere hierher gehörende Beispiele bietet die griechische Anthologie.
+
+6, 239 [GREEK].
+
+[GREEK].
+
+ib. 6, 232: [GREEK].
+
+[GREEK].
+
+ib. 9, 404 [GREEK].
+
+[GREEK].
+
+Mehrfache Nachahmung hat sodann dieser Sprachgebrauch bei den römischen Dichtern gefunden.
+
+Verg. Geo. 4, 164:
+
+...aliae purissima mella  
+stipant et liquido distendunt nectare cellas.
+
+Aen. 1, 433:
+
+...aut cum liquentia mella  
+stipant et dulci distendunt nectare cellas.
+
+Mart. 4, 32:
+
+Et latet et lucet Phaethontide condita gutta,  
+ut videatur apis nectare clusa suo.
+
+Stat. Silv. 3, 2, 117:
+
+...ubi belliger urbis  
+Conditor Hyblaeo perfusus nectare durat. (S. oben A. 149).
+
+Wie wir endlich im vorigen Abschnitt gesehen haben, dass Honig die erste Nahrung menschlicher und göttlicher Kinder bildete, so werden bisweilen auch neugeborne Götter nicht gesäugt, sondern mit Nektar und Ambrosia aufgezogen.
+
+Hy. in Ap. Del. 123:
+
+[GREEK].
+
+Von Aristaios sagt Pindar, dass er von Gaia und den Horen mit Nektar und Ambrosia gefüttert worden sei:
+
+Pind. Pyth. 9, 64 Böckh:
+
+[GREEK].
+
+# Kapitel 7.
+
+## A.
+
+**[GREEK] in metaphorischem Gebrauch von der Süssigkeit der Rede und des Gesanges.**
+
 ...
 
 # Schlussbemerkungen.
