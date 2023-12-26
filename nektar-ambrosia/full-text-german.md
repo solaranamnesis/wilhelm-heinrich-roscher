@@ -1145,7 +1145,31 @@ Eine äusserst anmuthige wesentlich auf der eben besprochenen Anschauung beruhen
 
 **[GREEK] in übertragener Bedeutung von der Süssigkeit des Gesanges.**
 
-...
+Ebenso wie [GREEK] nur nicht so häufig, lässt sich auch [GREEK] in metaphorischem Sinne von der Lieblichkeit der Poesie nachweisen. Selbstverständlich folgere ich daraus nicht etwa, dass die Dichter, welche diesen Ausdruck in dem angegebenen Sinne gebrauchten, sich dabei der ursprünglichen Identität der Begriffe Honig und Nektar irgendwie bewusst gewesen sein müssten: ich glaube nur, dass jene von mir behauptete ursprüngliche Gleichheit von Nektar und Honig sich unter Anderem auch noch in der gleichen oder ähnlichen Bedeutungsentwickelung zeige.
+
+Der älteste Dichter, bei welchem der in Rede stehende Sprachgebrauch meines Wissens vorkommt, ist Pindar. Derselbe sagt Ol. 7, 7:
+
+[GREEK].
+
+Schon der alte Schöliast hat die Stelle richtig verstanden, da er sagt: [GREEK].
+
+Von dem begrabenen, aber von Bienen am Leben erhaltenen Sänger Komatas sagt Theokrit Id. 7, 80:
+
+[GREEK].
+
+Zwei weitere Beispiele bietet uns die Anthologie.
+
+7, 29, 3:
+
+[GREEK].
+
+4, 1, 35:
+
+[GREEK].
+
+In Nachahmung solcher Metaphern singt Persius Prol. 12:
+
+Quod si dolosi spes refulgeat nummi,  Corvos poetas et poetridas picas  Cantare credas Pegaseium nectar.
 
 # Schlussbemerkungen.
 
