@@ -1046,6 +1046,105 @@ Pind. Pyth. 9, 64 Böckh:
 
 **[GREEK] in metaphorischem Gebrauch von der Süssigkeit der Rede und des Gesanges.**
 
+Den ältesten Beleg für den metaphorischen Gebrauch von [GREEK] finden wir bereits im ersten Buche der Ilias Vers 249, wo die Süssigkeit der Rede des Nestor mit der Lieblichkeit des Honigs verglichen wird:
+
+[GREEK].
+
+Dieser Vergleich hat später vielfachen Anklang und häufige Nachahmung gefunden. Vgl. z. B.
+
+Hes. Theog. 81:
+
+[GREEK].
+
+Eur. fr. 891 N.
+
+[GREEK].
+
+Theocr. Id. 20, 26:
+
+[GREEK].
+
+Noch häufiger als die Rede überhaupt wird die Poesie mit Honig verglichen.
+
+So schon bei Hesiod. Theog. 94:
+
+[GREEK].*
+
+*) Vgl. Hy. Hom. in Mus. et Apoll. No. 25, 2 ff.
+
+Besonders häufig begegnet uns dieser Vergleich bei Pindar:
+
+Nem. 3, 74:
+
+[GREEK].
+
+Dass hier [GREEK] (vgl. oben Hesiod. Theog. 83 [GREEK]) wiederum den Honig [der Poesie] bezeichnet, sagt ausdrücklich der Scholiast z. d. St. mit den Worten: [GREEK].
+
+Ol. 11, 101 vergleicht Pindar die Wirkung seines Gedichts auf die Bewohner von Lokroi mit einem Honigregen, welcher plötzlich auf die Stadt herabfällt:
+
+[GREEK].
+
+Isthm. 4, 59 sagt der Dichter von seinem Hymnas auf den Pankratiasten Phylakidas:
+
+[GREEK].
+
+[GREEK], d. i. nach der Erklärung des Scholiasten: [GREEK].
+
+Auch spätere Dichter vergleichen noch gern die Lieblichkeit der Poesie mit der Süssigkeit des Honigs. Vgl. Theocrit Id. 1, 146:
+
+[GREEK].
+
+Lucret. 1, 945 (vgl. 4, 22):
+
+...volui tibi suaviloquenti  
+carmine Pierio rationem exponere nostram  
+et quasi musaeo dulci contingere melle. 
+Hor. Ep. 1. 19, 44:
+
+...fidis enim manare poetica mella  
+Te solum, tibi pulcher.
+
+Anth. 9, 190:
+
+[GREEK].
+
+Aus dem Vergleiche des Liedes mit Honig ergab sich sodann die weitere Vergleicluing des Dichters mit der Biene. Wie die Biene aus Blumenkelchen den Honig so schlürft der Dichter Poesie aus den Blüthen des Lebens. 
+Niemand hat diesen Gedanken, wenn auch zunächst in ironischer Weise, schöner ausgesprochen als Aristophanes, wenn er von Phrynichos sagt:
+
+Av. 750:
+
+[GREEK].*
+
+*) Vgl. auch Hor. ca. 4, 2, 27: ...ego apis Matinae || More modoque, || Grata carpentis thyma per laborem... || Carmina fingo. Vgl. auch Vita Soph. p. 132, 99: [GREEK]. Mehr b. Schneidewin Einl. z. Sophokles Aias 1 p. 30 Anm.
+
+Derselbe Aristophanes nennt Sophokles einen mit Honig Gesalbten:
+
+fr. 2, 1176 ed. Mein.
+
+[GREEK].
+
+Mehrfach werden Dichter und prosaische Schriftsteller, welche über eine schöne Sprache verfügen, geradezu Bienen ([GREEK]) genannt, z. B. Erinna, Sophokles, Platon, Xenophon,* und es entstand die Legende, dass Bienen, die Vögel der Musen,* sich solchen Lieblingen der Göttinnen unmittelbar nach der Geburt auf die Lippen gesetzt und ihnen durch Zutragen von Honig gewissermasen die musische Weihe erteilt hätten.* Die Musen selbst heissen μελίστακτοι in einem Epigramm der Anthologie (4, 1, 33):
+
+λείψανὰ τ᾽ εὐκαρπεῦντα μελιστάκτων ἀπὸ Μουσέων.
+
+*) Anth. 7, 13, 1: [GREEK]. Hermesianax b. Ath. 598 c [GREEK] 57: [GREEK].
+
+*) Varro de r. r. 3, 16 nennt die Bienen Musarum volucres. Die Musen nehmen selbst Bienengestalt an b. Philostr. Ic. 2, 8, p. 823 Ol. Anthol. 9, 505, 6.
+
+*) Solches erzählt man von Pindar. Paus. 9, 23, 2: [GREEK]. Von Platoni Cic. div. 1, 36, 78: Platoni, cum in cunis parvulo dormienti apes in labellis consedissent, responsum est, singulari illum suavitate orationis fore (vgl. Plin. 11, 17. Ael. v. h. 10, 21. Olymp. u. Anon. V. Plat.).
+
+Ebenda v. 21 wird die Poesie des Kallimachos einer Myrthenbeere, angefüllt mit Honig verglichen:
+
+[GREEK].
+
+Eine äusserst anmuthige wesentlich auf der eben besprochenen Anschauung beruhende Legende erzählt uns Theokrit Id. 7, 78 ff.: Ein Sklave Namens Komatas, welcher die Heerden seines Herrn weidete, opferte häufig den Musen. Der Herr schloss ihn in einen Sarg ([GREEK]) von Cedernholz ein, um zu sehen, ob die Musen ihn retten würden. Als nach zwei Monaten der Sarg geöffnet wurde, fand man den Sarg voll Honig und den Hirten lebendig. Bienen hatten den Liebling der Musen mit Honig gefüttert.*
+
+*) Nach den Scholien z. d. St. soll sich die Geschichte bei Thurioi zugetragen haben.
+
+## B.
+
+**[GREEK] in übertragener Bedeutung von der Süssigkeit des Gesanges.**
+
 ...
 
 # Schlussbemerkungen.
