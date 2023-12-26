@@ -1127,7 +1127,7 @@ Mehrfach werden Dichter und prosaische Schriftsteller, welche über eine schöne
 
 λείψανὰ τ᾽ εὐκαρπεῦντα μελιστάκτων ἀπὸ Μουσέων.
 
-*) Anth. 7, 13, 1: [GREEK]. Hermesianax b. Ath. 598 c [GREEK] 57: [GREEK].
+*) Anth. 7, 13, 1: [GREEK]. Hermesianax b. Ath. 598 c [GREEK] 57: [GREEK]. (Vgl. Schol. z. Arist. Vesp. 462. Suid. s. v. [GREEK]. Vita Soph. ed. Gaisf.) Suid. s. v. [GREEK]. Wenn hie und da die Pythia [GREEK] genannt wurde (Pind. Pyth. 4, 106. Schol. Eurip. Hipp. 72), so scheint ihr diese Benennung mit Bezug auf ihre poetischen Orakelsprüche zu teil geworden zu sein.
 
 *) Varro de r. r. 3, 16 nennt die Bienen Musarum volucres. Die Musen nehmen selbst Bienengestalt an b. Philostr. Ic. 2, 8, p. 823 Ol. Anthol. 9, 505, 6.
 
