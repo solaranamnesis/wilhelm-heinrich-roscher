@@ -878,7 +878,29 @@ Schliesslich bleibt noch zu erwähnen, dass der Honig ebenso wie heutzutage der 
 
 **Erhaltende (antiseptische) Wirkung der Ambrosia. Ambrosia als Einbalsamirungsmittel.**
 
-...
+Der konservirenden Kraft des Honigs entspricht es auf das genaueste, wenn auch der Ambrosia eine gleiche Wirkung auf den animalischen Körper zugeschrieben wird, so dass auch in dieser Beziehung die Bedeutung "Unsterblichkeitsspeise oder -substanz" gerechtfertigt erscheint. Das älteste und wichtigste Zeugniss findet sich Il. _T_ 38, wo erzählt wird, wie Thetis den Körper des todten Patroklos durch Eintröpfeln von Ambrosia und Nektar vor Verwesung schützt:
+
+[GREEK].*
+
+*) Schon die Pythagoraeer scheinen die an dieser Stelle bezeugte konservirende Wirkung der Ambrosia auf den Honig bezogen zu haben: Porphyr. de antro n. 16.
+
+Dass es sich in der Tat um eine Art von Einbalsamirung handelt, ersieht man namentlich aus dem Zusatze [GREEK], insofern das Einflössen von Einbalsamirungssubstanzen durch die Nase in das Gehirn oder den Kopf einen Hauptakt der ägyptischen Einbalsamirungsmethode bildete. Vgl. Herod. 2, 86: [GREEK].
+
+Ein zweites kaum minder wichtiges Zeugniss für die in Rede stehende Anschauung findet sich Il. [GREEK], 670. Hier befiehlt Zeus dem Apollon den Leichnam des Sarpedon erst im Skamander zu waschen und sodann mit Ambrosia zu salben, was, wie auch die meisten Erklärer annehmen, nur den Zweck haben kann, die Leiche vor Verwesung zu schützen. [GREEK], 670:
+
+[GREEK].*
+
+*) Aehnlich heisst es in einem Epigramme auf den in Ios bestatteten Homer Anth. 7, 1, 3: [GREEK].
+
+Hier ist namentlich auf das Verbum [GREEK] zu achten, welches unsere im vorigen Abschnitt ausgesprochene Vermuthung, dass das Einbalsamiren der Leichname einst auch in Griechenland ebenso wie in Babylon, Persien und Aegypten eine Rolle spielte, zu bestätigen scheint. Derselbe Ausdruck kommt noch Il. _H_ 85 vor, wo Hektor verspricht den Leichnam seines Gegners im Zweikampfe den Griechen zurückzugeben, [GREEK]. Etymologisch hängt [GREEK] wohl zweifellos, wie auch Lobeck, El. 1, 463 und Curtius, Grundz. d. gr. Et. 5 729 annehmen, mit [GREEK] einbalsamiren zusammen, indem hier ein [GREEK] eingeschoben ist.* Ist dies richtig, so leuchtet ein, dass ein solcher Ausdruck für "bestatten" keinen rechten Sinn hätte, wenn nicht wirklich das Einbalsamiren vorgekommen wäre. Wahrscheinlich liegt diesem Einbalsamiren der nicht bloss bei den Aegyptern,* sondern auch bei vielen Naturvölkern* herrschende Glaube zu Grunde, dass die Seelen der Abgeschiedenen gern die Stätten besuchen, wo die Leichen ruhen, die man demnach, um den Seelen den schrecklichen Anblick der Zerstörung und Verwesung zu ersparen, in möglichst unversehrtem Zustande zu erhalten suchte. Wenn bei den Persern _hom_ (= haoma, soma) der Zubereiter der Leichname genannt wird,* so lässt dies vielleicht auf eine ähnliche Vorstellung von der erhaltenden Wirkung des Göttertrankes schliessen.
+
+*) Vgl. folgende damit verwandte Wörter: [GREEK] (= [GREEK]): C. I. Gr. 5724. (vgl. 6196. 6856): [GREEK] = [GREEK] b. Soph. fr. 531 Dind. Hesych. s. v. [GREEK] (vgl. auch Apoll. Soph. Lex. Hom. s. v.) Das Wort [GREEK] scheint hier ebenso wie bei Plut. de esu carn. 1, 5, 7 "einbalsamiren" zu bedeuten. [GREEK] = Mumie b. Herod. 9, 120.
+
+*) Reinisch unter Aegyptus in Paulys Realencycl. 2 1, 297.
+
+*) Tylor, Die Anfänge der Cultur, übers. von Spengel und Poske 2, 30 ff.
+
+*) Spiegel, Pârsigr. 170, 6. 172, 16. Kuhn, Herabkunft des Feuers 175.
 
 # Kapitel 6.
 
