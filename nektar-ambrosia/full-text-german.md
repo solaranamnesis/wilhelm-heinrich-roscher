@@ -1257,4 +1257,28 @@ Kult. Aus dem Kultus der A. ist hervorzuheben. dass ihr Stiere (Suid. s. v. [GRE
 
 # Nachträge und Berichtigungen.
 
-...
+Zu S. 2 Anm. 2. Wenn, was kaum zu bezweifeln ist, die Höhle auf der Kyllene, in welcher Hermes geboren sein sollte, eine Windhöhle ist, durch deren Oeffnung der Wind bald hinein-bald hinausbläst, so gewinnen die Verse Hy. in Merc. 145 ff.
+
+[GREEK].
+
+in der Tat eine ausserordentlich charakteristische Bedeutung für den Windgott Hermes, da alsdann das Schlüsselloch, ebenso wie die Thüre (vgl. Hermes S. 92 A. 351) überhaupt, stets der Sitz eines besonders kräftigen Luftzuges ist. Vgl. auch Hermes der Windgott S. 47 und 64, wo nachgewiesen ist, dass auch die luftartig gedachten Maren der Germanen, sowie die [GREEK] (Traumbilder) der Griechen durchs Schlüsselloch fahren (Od. [GREEK] 796: [GREEK]).
+
+Zu S. 4 Anm. 9. Für die Beziehungen des Windes zum Schlafe, welche ich Hermes S. 63 darzulegen versucht habe, ist nicht unwichtig die Stelle bei Sophokles Phil. 18 (vgl. 827 f.): [GREEK], woraus hervorgeht, dass man dem kühlenden Winde im Sommer eine einschläfernde Wirkung zuschrieb. Vgl. auch Arist. Probl. 3. 54 (Didot 4, 332, 40) in latein. Uebersetzung: "Cur solis aestus aliis quidem somnum adducit, aliis autem non? ...Quia ...quod aridum caput fuerit impensius exsiccans ad experrectionem commovit.
+
+S. 5 Zeile 9 v. u. lies [GREEK] statt [GREEK].
+
+S. 16 Zeile 9 v. o. lies werden statt worden.
+
+Zu S. 22. Wenn es Il. _T_ 352 heisst, Thetis habe dem aus Gram Trank und Speise verschmähenden Achilleus Nektar und Ambrosia eingeträufelt, "[GREEK]," so erinnert diese Vorstellung von der ernährenden und lebenerhaltenden Wirkung des Nektars und der Ambrosia lebhaft an die oben S. 47 mitgeteilte Erzählung vom Tode des Demokritos, welcher mehrere Tage lediglich von dem aus einem mit Honig gefüllten Gefässe aufsteigenden Dunste ([GREEK]) gelebt haben soll. Vgl. auch die S. 48 Anm. 112 augeführte Stelle des Hippokrates, welcher dem Honig bedeutende Nährkraft zuschreibt und Eustath. z. Il. [GREEK] 630 (p. 868, 20).
+
+Zu S. 26. Dass man sich den Nektar als ein berauschendes Getränk dachte, erhellt deutlich aus Plat. Symp. 203 B: [GREEK], wo auch die Ahnung von einem weinlosen Zeitalter (wie bei Plut. Q. Symp. 4. 6, 2 und Porphyr. de antro n. 16) beachtenswerth ist.
+
+Zu S. 28. Dem Mythus von den Zeus mit Ambrosia fütternden Peleiai nahe verwandt scheint die Legende von Kronos bei Plut. de facie in orbe lunae 26: [GREEK] (auf einer paradiesischen Insel im westlichen Okeanos) [GREEK] (vgl. Orph. fr. b. Porphyr. de antro n. 16 oben S. 61), [GREEK]. Wahrscheinlich ist der tiefe Schlaf des Kronos eine Folge des durch die Ambrosia hervorgebrachten Rausches und die Ambrosia bringenden Vögel mit den Peleiai identisch. Nach dem oben angeführten Fragment der Orphika berauscht Zeus den Kronos mit Honig.
+
+Zu S. 36 A. 78. Wenn nach Longus Past. 1, 25 der frische Honig ([GREEK]), nach Hy. in Merc. 556 das [GREEK] (vgl. Il. [GREEK] 630. Od. [GREEK] 234) eine berauschende Wirkung haben soll, so stimmt das ziemlich mit folgenden Worten des Plinius h. n. 11, 22 überein: Est autem initio mel ut aqua dilutum et primis diebus fervet ut musta seque purgat, vicesimo die crassescit. Vgl. auch Aristot. de an. h. 5, 22, 5 (= 3, 97, 19 ed. Didot): [GREEK]. Der Ausdruck [GREEK] kann demnach in diesem Falle ebensowohl das blassgelbe, fast wasserhelle, farblose Aussehen (vgl. [GREEK] Pind. Nem. 8, 68. [GREEK] Anth. 9, 669, 3 und Jacobs z. d. St.) als die Frische ([GREEK]) oder die Flüssigkeit ([GREEK]) des Honigs bezeichnen. Da alle diese Eigenschaften bei jungem Honig zusammentrefien , so begreift man das Hin- und Herschwanken der Erklärungen des homerischen [GREEK]. Vgl. Eustath. z. Il. [GREEK] 630: [GREEK]. Apoll. Soph. lex. Homer. 168, 12 ed. B. [GREEK] (cod. [GREEK] Bekker: [GREEK]) [GREEK]. Vgl. auch Schol. A. u. D. z. Il. [GREEK] 630. Hesych. s. vv. [GREEK].
+
+Zu S. 37. Ausser dem [GREEK] ist noch zu erwähnen der schon dem Homer bekannte [GREEK], wozu nach Od. [GREEK] 234 auch [GREEK] gehörte.
+
+Zu S. 42 A. 91. Später ist die Vorstellung von einem glücklichen honigreichen Zeitalter in das Märchen vom Schlaraffenlande übergegangen, von welchem zahlreiche Spuren auch in der griechischen Litteratur nachgewiesen sind (vgl. Poeschel, Das Märchen vom Schlaraffenlande, Leipz. Diss. V. 1878, Separatabdruck aus den Beitr. z. Gesch. der deutsch. Spr. u. Lit Bd. 5. Heft 2 p. 9 ff.). Ich verweise besonders auf Luc. Sat. 7: [GREEK]. Ktesias b. Phot. bibl. ed. Bekker p. 46 b. Basil. M. [GREEK] 2, 348: [GREEK].
+
+S. 78 Z. 11 v. o. lies worden statt geworden.
