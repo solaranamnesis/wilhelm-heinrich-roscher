@@ -6,7 +6,7 @@
 
 ### Professor und Konrektor am Kgl. Gymnasium zu Wurzen.
 
-[GREEK]. Aristot. Met. 2, 4.
+Οἱ μὲν οὖν περὶ Ἡσίοδον καὶ πάντες... θεολόγοι... τὰ μὴ γευσάμενα τοῦ νέκταρος καὶ τῆς ἀμβροσίας θνητὰ γενέσθαι φασίν, δῆλον ὡς ταῦτα τὰ ὀνόματα γνώριμα λέγοντες αὑτοῖς. Aristot. Met. 2, 4.
 
 ## Leipzig, 1883.
 
@@ -70,7 +70,9 @@
 
 ---
 
-[GREEK].
+ΤΗΙ ΦΙΛΟΞΕΝΩΙ ΕΛΛΑΔΙ  
+Ο ΣΥΓΓΡΑΦΕΥΣ  
+ΑΝΕΘΗΚΕΝ
 
 # Übersicht des Inhalts.
 
@@ -84,13 +86,13 @@
 
 **Der Honig fällt nach antikem Glauben als Thau vom Himmel oder aus der Luft auf die Pflanzen (Bäume und Blumen) nieder und gilt demnach für eine Art von Himmelsspeise. Ähnliche Vorstellungen bei den Hebräern (Manna), Indern, Germanen und Finnen.**
 
-Griechen und Römer hielten den Honig für eine Art Thau, der vom Himmel oder aus der Luft auf die Pflanzen niederfalle. Dies erklärt sich aus der Erscheinung des sogenannten, „Honigtaus,“ d. i. eines honigartigen Saftes, welchen die Blätter der Pflanzen bisweilen ausschwitzen. Verschiedene Benennung des „Honigtaus“ bei den Alten ([GREEK] oder [GREEK]). Besonders werden Eichen, Rohrarten, Eschen ([GREEK] hängt wohl mit [GREEK] zusammen) vom Honigtau befallen. Die Vorstellung von den honigtriefenden Eichen des goldenen Zeitalters. Die Manna der Bibel, eine besondere Art des Honigtaus, als Himmelsspeise und tauähnlicher Honig bezeichnet. Berichte griechischer Schriftsteller über mannaähnliche Erscheinungen an europäischen und asiatischen Bäumen. Auch der Blumenhonig wurde als Thau aufgefasst. Zeugnisse des Hesiod, Aristoteles, Vergil u. s. w. Nachweis gleicher Vorstellungen von der Entstehung des Honigs bei den Indern, Germanen und Finnen. Die honigträufelnde Weltesche Yggdrasil.
+Griechen und Römer hielten den Honig für eine Art Thau, der vom Himmel oder aus der Luft auf die Pflanzen niederfalle. Dies erklärt sich aus der Erscheinung des sogenannten, „Honigtaus,“ d. i. eines honigartigen Saftes, welchen die Blätter der Pflanzen bisweilen ausschwitzen. Verschiedene Benennung des „Honigtaus“ bei den Alten (ἀερόμελι, δροσόμελι, ἄγριον oder ὗον μέλι). Besonders werden Eichen, Rohrarten, Eschen (μελίη hängt wohl mit μέλι zusammen) vom Honigtau befallen. Die Vorstellung von den honigtriefenden Eichen des goldenen Zeitalters. Die Manna der Bibel, eine besondere Art des Honigtaus, als Himmelsspeise und tauähnlicher Honig bezeichnet. Berichte griechischer Schriftsteller über mannaähnliche Erscheinungen an europäischen und asiatischen Bäumen. Auch der Blumenhonig wurde als Thau aufgefasst. Zeugnisse des Hesiod, Aristoteles, Vergil u. s. w. Nachweis gleicher Vorstellungen von der Entstehung des Honigs bei den Indern, Germanen und Finnen. Die honigträufelnde Weltesche Yggdrasil.
 
 ### B.
 
 **Ambrosia = Götterspeise, Nektar = Göttertrank und umgekehrt. Diese Vertauschung der beiden Ausdrücke erklärt sich aus deren ursprünglicher Identität, insofern beide nur verschiedene Formen derselben Substanz (des Honigs) waren. Die homerische Sage von den Ambrosia bringenden Peleiai (Pleiaden).**
 
-In den homerischen Gedichten bezeichnet [GREEK] in der Regel die Speise, [GREEK] den Trank der Götter; daneben bestand freilich noch eine entgegengesetzte Tradition (Alkman, Sappho _etc._), wonach [GREEK] die Speise, [GREEK] den Trank der Götter bedeutet. Diese sonderbare Vertauschung der beiden Ausdrücke erklärt sieh einfach aus der Annahme, dass [GREEK] und [GREEK] ursprünglich nur verschiedene Formen derselben Substanz, des Honigs, waren, welcher nicht bloß als Speise, sondern (in verdünntem Zustande) auch als Trank (Meth) betrachtet werden konnte. Etymologie des Wortes [GREEK] (= [GREEK]). Honigtau und Blumenhonig entstehen nur im Sommer, zwischen dem Auf- und Untergang der Pleiaden. So entstand der Mythus von den [GREEK] oder [GREEK], welche dem neugeborenen Zeus aus dem Göttergarten des äußersten Westens Ambrosia bringen. Nach einer andern Tradition soll Zeus von Bienen mit Honig ernährt worden sein. Wenn Ambrosia auch als Futtergras der Götterrosse erscheint, so beruht dies wohl auf einer Übertragung des Begriffes Unsterblichkeitsnahrung von den Göttern auf ihre Rosse.
+In den homerischen Gedichten bezeichnet ἀμβροσίη in der Regel die Speise, νέκταρ den Trank der Götter; daneben bestand freilich noch eine entgegengesetzte Tradition (Alkman, Sappho _etc._), wonach νέκταρ die Speise, ἀμβροσία den Trank der Götter bedeutet. Diese sonderbare Vertauschung der beiden Ausdrücke erklärt sieh einfach aus der Annahme, dass νέκταρ und ἀμβροσία ursprünglich nur verschiedene Formen derselben Substanz, des Honigs, waren, welcher nicht bloß als Speise, sondern (in verdünntem Zustande) auch als Trank (Meth) betrachtet werden konnte. Etymologie des Wortes νέκταρ (= νώγαλον). Honigtau und Blumenhonig entstehen nur im Sommer, zwischen dem Auf- und Untergang der Pleiaden. So entstand der Mythus von den Πέλειαι oder Πελειάδες, welche dem neugeborenen Zeus aus dem Göttergarten des äußersten Westens Ambrosia bringen. Nach einer andern Tradition soll Zeus von Bienen mit Honig ernährt worden sein. Wenn Ambrosia auch als Futtergras der Götterrosse erscheint, so beruht dies wohl auf einer Übertragung des Begriffes Unsterblichkeitsnahrung von den Göttern auf ihre Rosse.
 
 ## Kapitel 2.
 
@@ -98,7 +100,7 @@ In den homerischen Gedichten bezeichnet [GREEK] in der Regel die Speise, [GREEK]
 
 **Der Honig als Speise, berauschendes Getränk, Salbe und Reinigungsmittel.**
 
-Honig als Speise bald rein, bald mit andern Substanzen gemischt genossen. Honig zur Bereitung eines berauschenden Getränkes (Meth) vor der Einführung des Weinbaues benutzt. Hydromeli und Melikraton. Dionysos ursprünglich vielleicht ein Gott des Honigmethes, weshalb ihm die Erfindung des Honiggenusses zugeschrieben wurde. Honig als Salbe und als Reinigungsmittel ([GREEK]).
+Honig als Speise bald rein, bald mit andern Substanzen gemischt genossen. Honig zur Bereitung eines berauschenden Getränkes (Meth) vor der Einführung des Weinbaues benutzt. Hydromeli und Melikraton. Dionysos ursprünglich vielleicht ein Gott des Honigmethes, weshalb ihm die Erfindung des Honiggenusses zugeschrieben wurde. Honig als Salbe und als Reinigungsmittel (ῥύμμα).
 
 ### B.
 
