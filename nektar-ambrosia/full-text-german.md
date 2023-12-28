@@ -144,7 +144,7 @@ Antiseptische Wirkung des Honigs. Honig als Einbalsamierungmittel bei den Babylo
 
 **Erhaltende (antiseptische) Wirkung der Ambrosia. Ambrosia als Einbalsamierungmittel.**
 
-Thetis schützt die Leiche des Patroklos durch Einträufeln von Ambrosia und Nektar in die Nase vor Verwesung. Auch die Ägypter flößten ihren Toten antiseptische Substanzen durch die Nase ein. Sarpedon durch Salbung mit Ambrosia vor Verwesung geschützt. Der homerische Ausdruck [GREEK] weist auf uralte Einbalsamierungsitte auch bei den Griechen.
+Thetis schützt die Leiche des Patroklos durch Einträufeln von Ambrosia und Nektar in die Nase vor Verwesung. Auch die Ägypter flößten ihren Toten antiseptische Substanzen durch die Nase ein. Sarpedon durch Salbung mit Ambrosia vor Verwesung geschützt. Der homerische Ausdruck ταρχύω = ταριχεύω weist auf uralte Einbalsamierungsitte auch bei den Griechen.
 
 ## Kapitel 6.
 
@@ -156,21 +156,21 @@ Die alten Zeugnisse für den Glauben der Griechen, dass Honig die Nahrung der G�
 
 ### B.
 
-**Ambrosia und Nektar in der Bedeutung von [GREEK] gebraucht. Ambrosia und Nektar als Nahrung der neugeborenen Götterkinder.**
+**Ambrosia und Nektar in der Bedeutung von μέλι gebraucht. Ambrosia und Nektar als Nahrung der neugeborenen Götterkinder.**
 
-Zeugnisse für den Gebrauch von [GREEK] und [GREEK]. Zeugnisse für den Glauben der Alten an die Ernährung neugeborener Götterkinder mit Nektar und Ambrosia.
+Zeugnisse für den Gebrauch von ἀμβροσία und νέκταρ = μέλι. Zeugnisse für den Glauben der Alten an die Ernährung neugeborener Götterkinder mit Nektar und Ambrosia.
 
 ## Kapitel 7.
 
 ### A.
 
-**[GREEK] in metaphorischem Gebrauche von der Süßigkeit der Rede und des Gesanges.**
+**Μέλι in metaphorischem Gebrauche von der Süßigkeit der Rede und des Gesanges.**
 
-Vergleich süßer Rede mit süßem Honig. [GREEK] in der Bedeutung von Gesang. Vergleich des Dichters mit einer Biene. Legende von Komatas.
+Vergleich süßer Rede mit süßem Honig. μέλι in der Bedeutung von Gesang. Vergleich des Dichters mit einer Biene. Legende von Komatas.
 
 ### B.
 
-**[GREEK] in übertragener Bedeutung von der Süßigkeit des Gesanges.**
+**Νέκταρ in übertragener Bedeutung von der Süßigkeit des Gesanges.**
 
 Belege aus den alten Dichtern.
 
@@ -184,41 +184,41 @@ Widerlegung der Ansicht, dass der Wein das ursprüngliche Substrat des Nektars s
 
 Bereits in zwei früher erschienenen Monographien „Hermes der Windgott“ (1878) und „die Gorgonen und Verwandtes“ (1879) habe ich den Versuch gemacht größere Gruppen scheinbar wenig oder gar nicht miteinander zusammenhängender mythologischer Vorstellungen mittelst einer selbständigen Methode auf eine gemeinsame Naturbasis zurückzuführen und damit zugleich bis ins feinste Detail hineinzuerklären. Dabei ergab sich gleichzeitig ungesucht eine vielfach merkwürdige Übereinstimmung uralter griechischer Vorstellungen mit denjenigen anderer verwandter Völker, namentlich der Inder, Italiker und Germanen. So ließen sich die sämtlichen Funktionen des Hermes mit leichter Mühe und ziemlicher Evidenz auf die Vorstellungen der Alten vom Winde, die Prädikate und Funktionen der Gorgonen dagegen auf die verschiedenen der Anschauung des Gewitters entsprungenen Ideen zurückführen, welche teils aus den Etymologien der zur Bezeichnung der betreffenden Vorstellungen gebrauchten Ausdrücke, teils aus den älteren Dichtern und den Werken der antiken Naturforscher und Philosophen gewonnen wurden. Wie dies zu verstehen ist möge das Beispiel des Hermes lehren, dessen Mythus scheinbar aus lauter unvereinbaren Funktionen und Vorstellungen zusammengesetzt ist.
 
-Die Bedeutung, welche Hermes als Diener der Götter, namentlich des Zeus hatte, erklärt sich einfach aus der das ganze Altertum, namentlich aber den Homer und die übrigen Dichter beherrschenden Anschauung, dass der Wind das Werkzeug der Götter, besonders aber des Zeus sei und von diesem gesendet werde (vgl. [GREEK] u. s. w.)
+Die Bedeutung, welche Hermes als Diener der Götter, namentlich des Zeus hatte, erklärt sich einfach aus der das ganze Altertum, namentlich aber den Homer und die übrigen Dichter beherrschenden Anschauung, dass der Wind das Werkzeug der Götter, besonders aber des Zeus sei und von diesem gesendet werde (vgl. Ζεὺς εὐάνεμος, οὔριος, _Juppiter auctor tempestatum_, Διὸς οὖρος, ἦλθ᾽ ἄνεμος Ζέφυρος μέγας, αἴθριος ἐκ Διὸς αἴσης, ἐπὶ δὲ Ζεὺς τερπικέραυνος ὦρσεν ἀπ᾽ Ἰδαίων ὀρέων ἀνέμοιο θύελλαν u. s. w.)
 
-Wie die Winde in der Regel aus dem Äther oder den Wolken oder von den Gipfeln der Berge niederfahren* und --wegen des beständig darin herrschenden Luftzuges --- in Berghöhlen (Windhöhlen)* wohnend gedacht werden (vgl. Ausdrücke wie [GREEK] u. s. w.), so ist Hermes, der Sohn des Äthergottes Zeus und der Regenwolkennymphe [GREEK] ([GREEK] = lat. _pluvia_), entweder auf dem Olymp oder in der Höhle der Kyllene, d. i. des Hohlberges (vgl. [GREEK] mit lat. _caelum_), worunter man ursprünglich wohl den hohlen Wolkenberg verstand,* geboren.
+Wie die Winde in der Regel aus dem Äther oder den Wolken oder von den Gipfeln der Berge niederfahren* und --wegen des beständig darin herrschenden Luftzuges --- in Berghöhlen (Windhöhlen)* wohnend gedacht werden (vgl. Ausdrücke wie Βορέας αἰθρηγενής, ἐκνεφίας, ἐπαΐσσειν Διὸς ἐκ νεφελάων, ἐπαιγίζειν ἐξ αἰθέρος, καταιγίζειν, κατιέναι, Ῥιπαῖα ὄρη, ἑπτάμυχον Βορέαο σπέος u. s. w.), so ist Hermes, der Sohn des Äthergottes Zeus und der Regenwolkennymphe Μαῖα (Πλειάς = lat. _pluvia_), entweder auf dem Olymp oder in der Höhle der Kyllene, d. i. des Hohlberges (vgl. Κυλλήνη mit lat. _caelum_), worunter man ursprünglich wohl den hohlen Wolkenberg verstand,* geboren.
 
 *) Dieselbe Vorstellung hat neuerdings Lenormant bei den Chaldäern nachgewiesen: Magie und Wahrsagekunst der Chaldäer. S. 28.
 
-*) In meinem Hermes S. 20 f. habe ich unterlassen zu erwähnen, dass die Kyllenische Höhle, in welcher H. geboren sein sollte, höchst wahrscheinlich eine sogen. Windhöhle war. Cornelius Meteorologie S. 232 sagt darüber: „Die Windhöhlen oder Wetterlöcher, meist in höheren Gebirgen vorkommend, sind durch kalte Luftströmungen charakterisiert, die aus ihnen mit größerer oder geringerer Heftigkeit hervorbrechen. Häufig finden sich die Windhöhlen in Italien, so am Monte Testaccio zu Rom, auf der Insel Ischia, am Hügel bei San Marino, im Monte Eolo bei Terni... bei Chiavenna und bei Caprino unweit Lugano. Die meiste Beachtung unter ihnen fand die Höhle des Monte Eolo, deren Eingang ein altes verfallenes Thor schließt, durch dessen Spalten der Wind mit vielem Getöse heraus bläst... Im Sommer bläst kalte Luft aus dem Berge heraus, umgekehrt verhält es sich im Winter, wo die äußere Luft in die Höhle hineinzieht. [Hy. in Merc. 146 f.] Bei den meisten andern Windhöhlen hat man Gleiches beobachtet.“ Vgl. Sen. Nat. Q. 5, 14, 1: Repetam nunc, quod primo dixeram, edi e specu ventos recessuque anteriore terrarum. Der „Ebe“ ist ein trockener warmer Wind, von dem die Kirgisen und Tataren meinen, dass er aus verborgenen Grotten ströme. Hamm im Ausland 1878. S. 764. Vielleicht hängt die Idee des [GREEK] hiermit zusammen. Stengel macht im Hermes 1881. S. 349 f. darauf aufmerksam, dass die Opfer an die Winde gleich Opfern an die unterirdischen Gottheiten und an die Toten gehalten worden sind.
+*) In meinem Hermes S. 20 f. habe ich unterlassen zu erwähnen, dass die Kyllenische Höhle, in welcher H. geboren sein sollte, höchst wahrscheinlich eine sogen. Windhöhle war. Cornelius Meteorologie S. 232 sagt darüber: „Die Windhöhlen oder Wetterlöcher, meist in höheren Gebirgen vorkommend, sind durch kalte Luftströmungen charakterisiert, die aus ihnen mit größerer oder geringerer Heftigkeit hervorbrechen. Häufig finden sich die Windhöhlen in Italien, so am Monte Testaccio zu Rom, auf der Insel Ischia, am Hügel bei San Marino, im Monte Eolo bei Terni... bei Chiavenna und bei Caprino unweit Lugano. Die meiste Beachtung unter ihnen fand die Höhle des Monte Eolo, deren Eingang ein altes verfallenes Thor schließt, durch dessen Spalten der Wind mit vielem Getöse heraus bläst... Im Sommer bläst kalte Luft aus dem Berge heraus, umgekehrt verhält es sich im Winter, wo die äußere Luft in die Höhle hineinzieht. [Hy. in Merc. 146 f.] Bei den meisten andern Windhöhlen hat man Gleiches beobachtet.“ Vgl. Sen. Nat. Q. 5, 14, 1: Repetam nunc, quod primo dixeram, edi e specu ventos recessuque anteriore terrarum. Der „Ebe“ ist ein trockener warmer Wind, von dem die Kirgisen und Tataren meinen, dass er aus verborgenen Grotten ströme. Hamm im Ausland 1878. S. 764. Vielleicht hängt die Idee des Ἑρμῆς καταχθόνιος hiermit zusammen. Stengel macht im Hermes 1881. S. 349 f. darauf aufmerksam, dass die Opfer an die Winde gleich Opfern an die unterirdischen Gottheiten und an die Toten gehalten worden sind.
 
 *) Von der Verwandtschaft der Begriffe „Wolke“ und „Berg“ handelt ausführlich Schwartz, Die poet. Naturanschauungen 2 (1879) S. 13 ff. Vgl. auch Lucr. 6, 159 u. 189. In Betreff der _cavae nubes_ s. Sen. Q. Nat. 2, 27, 4. Plin. n. h. 2, 133. Lucr. 6, 176. 195. 202. 272.
 
-Den an Schultern und Füssen beflügelten Winden (Boreaden)* vergleicht sieh der an Schultern oder Füssen beflügelte Hermes, wie jene, so wird auch dieser zugleich als schnell, gewandt und kraftvoll* gedacht (vgl. die Ausdrücke [GREEK] u. s. w.). Hiermit hängt die Funktion des Hermes als Gottes der Gymnastik und Agonistik zusammen.
+Den an Schultern und Füssen beflügelten Winden (Boreaden)* vergleicht sieh der an Schultern oder Füssen beflügelte Hermes, wie jene, so wird auch dieser zugleich als schnell, gewandt und kraftvoll* gedacht (vgl. die Ausdrücke ἲς ἀνέμοιο, ἀνέμων μένος, βίαι ἀνέμων, _ventus validus_, _violentus_, Βορέης κραιπνός, Βορέης αἰψηροκέλευθος, ἀνέμων σπέρχωσιν ἄελλαι, ταχύπτεροι πνοαί, πνοαὶ ὑψιπετᾶν ἀνέμων, Ἑ. Διὸς ἄλκιμος υἱός u. s. w.). Hiermit hängt die Funktion des Hermes als Gottes der Gymnastik und Agonistik zusammen.
 
-*) Vgl. auch Stephani, Boreas und die Boreaden, Petersburger Akademie. 1871. S. 6. 12. 15. 21. Wackernagel [GREEK] S. 6.
+*) Vgl. auch Stephani, Boreas und die Boreaden, Petersburger Akademie. 1871. S. 6. 12. 15. 21. Wackernagel ΕΠΕΑ ΠΤΕΡΟΕΝΤΑ S. 6.
 
 *) Nachzutragen Hermes S. 33: Xen. Hell. 5, 4, 17. Sen. Q. Nat. 2, 22, 2. 5, 13, 3. Gell. N. A. 2, 22, 29.
 
-Der sehr verbreiteten Vorstellung von dem Stehlen, Rauben und Betrügen der Winde ([GREEK] u. s. w.)* entspricht der diebische, trügerische Charakter des Gottes, der unter Anderm auch als Entführer der Götterrinder (Wolken) auftritt.
+Der sehr verbreiteten Vorstellung von dem Stehlen, Rauben und Betrügen der Winde (ἀνέλοντο θύελλαι, ἄρπυιαι ἀνηρείψαντο, ἀνήρπασε θέσπις ἄελλα, _aurae fallaces_, _petulantes_, _venti protervi_, ἄνεμος ἀσελγής, ὑβριστής, ἀνέμοις παραδοῦναί τι u. s. w.)* entspricht der diebische, trügerische Charakter des Gottes, der unter Anderm auch als Entführer der Götterrinder (Wolken) auftritt.
 
-*) Nachzutragen S. 39: Sen. Q. Nat. 5, 13, 3: Hinc fere omnia pericula venti erupti de nubibus prodeunt, quibus armenta rapiantur et totae naves in sublime tollantur. ib. 2, 22, 2: Videamus, quantis procellae viribus ruant, quanto vertantur impetu turbines. id quod obvium fuit, dissipatur et rapitur et longe a loco suo proicitur. Liv. 21, 58, 7: nec quod statutum esset manebat omnia perscindente vento et rapiente, Od. [GREEK] 408: [GREEK] u. Ameis z. d. St. Xen. Hell. 5, 4, 17. Vgl. auch Schwartz, Poet. Naturanschauungen 2, 53. [GREEK] Athen. 1880. S. 43.
+*) Nachzutragen S. 39: Sen. Q. Nat. 5, 13, 3: Hinc fere omnia pericula venti erupti de nubibus prodeunt, quibus armenta rapiantur et totae naves in sublime tollantur. ib. 2, 22, 2: Videamus, quantis procellae viribus ruant, quanto vertantur impetu turbines. id quod obvium fuit, dissipatur et rapitur et longe a loco suo proicitur. Liv. 21, 58, 7: nec quod statutum esset manebat omnia perscindente vento et rapiente, Od. θ 408: ἔπος δ᾽ εἴ πέρ τι βέβακται  δεινόν, ἄφαρ τὸ φέροιεν ἀναρπάξασαι θύελλαι u. Ameis z. d. St. Xen. Hell. 5, 4, 17. Vgl. auch Schwartz, Poet. Naturanschauungen 2, 53. Πολίτης, δημώδεις μετεωρ. μῦθοι Athen. 1880. S. 43.
 
-Wie die Winde überall als göttliche Pfeifer und Sänger auftreten --- ich erinnere an die Mythen der Maruts, des Vaju und des Wodan und berufe mich auf Ausdrücke wie [GREEK], _ventus susurrans_, _aura sibilans_ u. s. w. --- so gilt Hermes zunächst als Erfinder des [GREEK] und der [GREEK], als der einfachsten Blasinstrumente, und sodann auch der Lyra.
+Wie die Winde überall als göttliche Pfeifer und Sänger auftreten --- ich erinnere an die Mythen der Maruts, des Vaju und des Wodan und berufe mich auf Ausdrücke wie Ζεφύροιο ἰωή, ἠχή,* κεκληγῶς Ζέφυρος, ἄνεμος λιγύς, λιγυρός, βύκτης, συρίζων, σύριγμα ἀνέμων, _ventus susurrans_, _aura sibilans_ u. s. w. --- so gilt Hermes zunächst als Erfinder des αὐλός und der σῦριγξ, als der einfachsten Blasinstrumente, und sodann auch der Lyra.
 
-*) Nachzutragen S. 50: Hes. Theog. 708: [GREEK]. S. 52, Anm. 201: Sen. Q. Nat. 2, 28, 3 ventus... sibilat. Schwartz a. a. O. 59.
+*) Nachzutragen S. 50: Hes. Theog. 708: ἄνεμοι... φέρον δ᾽ ἰαχήν τ᾽ ἐνοκήν τε. S. 52, Anm. 201: Sen. Q. Nat. 2, 28, 3 ventus... sibilat. Schwartz a. a. O. 59.
 
-Auch die Psychopompie des Hermes lässt sich leicht auf seine ursprüngliche Bedeutung als Windgott zurückführen, wenn man bedenkt, dass die Seelen ([GREEK], _animae_) von jeher luftartig gedacht wurden und demnach bei der Trennung vom Körper in das Reich des Windes oder der Luft, der sie entstammen, zurückkehren müssen.*
+Auch die Psychopompie des Hermes lässt sich leicht auf seine ursprüngliche Bedeutung als Windgott zurückführen, wenn man bedenkt, dass die Seelen (ψυχαί, _animae_) von jeher luftartig gedacht wurden und demnach bei der Trennung vom Körper in das Reich des Windes oder der Luft, der sie entstammen, zurückkehren müssen.*
 
-*) Zu S. 58: Auch die Abchasen halten die Seelen für luftartig. Die Seelen derjenigen, deren Leichname nicht haben gefunden werden können, werden auf eigentümliche Weise in Schläuchen gefangen und dann bestattet. Ausland 1880. S. 1019 f. Noch der moderne Grieche flucht: [GREEK]. Schwartz, Ursprung d. Myth. 30, 2. Vgl. auch [GREEK] Athen. 1880. S. 44 f.
+*) Zu S. 58: Auch die Abchasen halten die Seelen für luftartig. Die Seelen derjenigen, deren Leichname nicht haben gefunden werden können, werden auf eigentümliche Weise in Schläuchen gefangen und dann bestattet. Ausland 1880. S. 1019 f. Noch der moderne Grieche flucht: ἄγε εἰς ἄνεμον, πήγαινε εἰς ἂν. Schwartz, Ursprung d. Myth. 30, 2. Vgl. auch Πολίτης, δημώδεις μετεωρολογικοὶ μῦθοι Athen. 1880. S. 44 f.
 
-Wie die Seelen scheinen aber auch die ihnen nahe verwandten Traumbilder aus der Luft zu stammen und den Schlafenden vom Winde zugeführt zu werden (vgl. Redensarten wie [GREEK] ist verwandt mit [GREEK]): darum ist Hermes zugleich Seelenführer und Traumgott oder Schlafgott geworden.*
+Wie die Seelen scheinen aber auch die ihnen nahe verwandten Traumbilder aus der Luft zu stammen und den Schlafenden vom Winde zugeführt zu werden (vgl. Redensarten wie εἴδωλον σταθμοῖο παρὰ κληῖδα λιάσθη ἐς πνοιὰς ἀνέμων; ὄνειρος ist verwandt mit ἄνεμος): darum ist Hermes zugleich Seelenführer und Traumgott oder Schlafgott geworden.*
 
-*) Zu S. 64 f.: Ap. Rh. 4, 877: [GREEK] (Thetis) [GREEK]. 2. _B_, 71: [GREEK]. Zu S. 66: In Betreff der Gleichsetzung von Seelen und Träumen ist nachzutragen Porphyr de antro n. 28: [GREEK]. Von der Verwandtschaft des Hermes mit Hypnos handelt G. Krüger in Jahrb. f. kl. Philol. 1863. S. 289 f. Vgl. auch Brunn in den Annali d. inst. 1868. S. 351 ff.
+*) Zu S. 64 f.: Ap. Rh. 4, 877: αὐτὴ (Thetis) δὲ πνοιῇ ἰκέλη δέμας ἠύτ᾽ ὄνειρος βῆ ῥ᾽ ἵμεν ἐκ μεγάρονο. Il. _B_, 71: ἀποπτάμενος ὄνειρος. Zu S. 66: In Betreff der Gleichsetzung von Seelen und Träumen ist nachzutragen Porphyr de antro n. 28: δῆμος δὲ ὀνείρων κατὰ Πυθαγόραν αἱ ψυχαί, ἃς συνάγεσθαί φησιν εἰς τὸν γαλαξίαν. Von der Verwandtschaft des Hermes mit Hypnos handelt G. Krüger in Jahrb. f. kl. Philol. 1863. S. 289 f. Vgl. auch Brunn in den Annali d. inst. 1868. S. 351 ff.
 
-Da ferner die Winde dem Ackerbauer und Hirten bald fruchtbare Regenwolken ([GREEK] Soph. fr. 233 D.) bald trockenes Wetter bringen und daher vielfach als befruchtend* und zugerisch gedacht werden (vgl. [GREEK], _genitabilis aura_, _Favonius_, [GREEK] u. s. w.) und sogar nach einem von Aristoteles und Plinius bezeugten Hirtenglauben die Befruchtung der Heerden hauptsächlich vom Winde abhängt,* so gilt Hermes als [GREEK] und [GREEK], als Verleiher des Heerdenreichtums und Hirtengott und wird oft phallisch dargestellt. Auch als Förderer der Gesundheit wurde er verehrt, weil die Winde oft die Luft von schädlichen Miasmen reinigen und dadurch Krankheiten abwehren oder mindern.*
+Da ferner die Winde dem Ackerbauer und Hirten bald fruchtbare Regenwolken (ὄμπνιον νέφος Soph. fr. 233 D.) bald trockenes Wetter bringen und daher vielfach als befruchtend* und zugerisch gedacht werden (vgl. Ζεφυρίη πνείουσα τὰ μὲν φύει, ἄλλα δὲ πέσσει, _genitabilis aura_, _Favonius_, ἀὴρ πυροφόρος, ἔγχος ἀνεμοτρεφές u. s. w.) und sogar nach einem von Aristoteles und Plinius bezeugten Hirtenglauben die Befruchtung der Heerden hauptsächlich vom Winde abhängt,* so gilt Hermes als δώτωρ ἐάων und ἐριούνιος, als Verleiher des Heerdenreichtums und Hirtengott und wird oft phallisch dargestellt. Auch als Förderer der Gesundheit wurde er verehrt, weil die Winde oft die Luft von schädlichen Miasmen reinigen und dadurch Krankheiten abwehren oder mindern.*
 
-*) Zu S. 72 ff.: Geopon. 2, 26, 1: [GREEK], Mehr bei Hamm im Ausland 1878. S. 763 ff.
+*) Zu S. 72 ff.: Geopon. 2, 26, 1: πεπαινομένου τοῦ καρποῦ ὑπό τε τῶν ἀνέμων καὶ τῆς ἄλλης τοῦ ἀέρος εὐκρασίας, Mehr bei Hamm im Ausland 1878. S. 763 ff.
 
 *) Vgl. auch Aelian, nat. an. 7, 27.
 
@@ -226,15 +226,15 @@ Da ferner die Winde dem Ackerbauer und Hirten bald fruchtbare Regenwolken ([GREE
 
 Weil der Wind wegen seiner Launenhaftigkeit und Unbeständigkeit* von jeher und überall als ein Sinnbild des Glückes angesehen wurde, so ist Hermes als Windgott auch zu einem Gotte des plötzlich und unerwartet eintretenden Glückes und Zufalls geworden, dem deshalb auch die Glücksruthe und die Loose geheiligt waren.
 
-*) Vgl. Caes. de bello civ. 3, 26, 5 u. 27, 1. Plut. mor. p. 95 B: [GREEK].
+*) Vgl. Caes. de bello civ. 3, 26, 5 u. 27, 1. Plut. mor. p. 95 B: οἱ τῶν πράξεων καιροὶ καθάπερ τὰ πεύματα τοῖς μὲν φέρουσιν τοῖς δὲ ἀποπίπτουσιν.
 
 Sehr einfach erklärt sich die Funktion des Hermes als Gottes der Wege und der Wanderer aus seiner ursprünglichen Windbedeutung, wenn man bedenkt, dass Reisende vorzugsweise von Wind und Wetter abhängig sind.*
 
 *) Zu S. 87, Anm. 327 ist noch hinzuzufügen: Xen. Hell. 5, 4, 17. Plut. de prim. frig. 18. Arrian Anab. 1. 26, 1. Liv. 21, 58, 4. Goethe Ges. Werke. 1840. 23, 6. Der Windgott wurde auch selbst als Wanderer gedacht: Schwartz, Poet. Naturanschauungen 2, 70 f.
 
-Die uralten Namen und Beinamen [GREEK] (= [GREEK]), [GREEK] und [GREEK] enthalten ebenfalls noch deutliche Beziehungen zum Winde, ebenso die Verehrung des Gottes am vierten Monatstage, weil an diesem nach uraltem Volksglauben Wind und Wetter wechseln, ferner das Symbol des Hahnes, eines das Wetter vorausahnenden und durch seinen Ruf prophezeienden Tieres,* und die Sage von der Geburt des Hermes am frühen Morgen, da der Wind, welcher den Tag über weht, sich in der Regel schon mit Sonnenaufgang erhebt.
+Die uralten Namen und Beinamen Ἀργειφόντης (= ἀργέστης), διάκτορος und Ἑρμείας enthalten ebenfalls noch deutliche Beziehungen zum Winde, ebenso die Verehrung des Gottes am vierten Monatstage, weil an diesem nach uraltem Volksglauben Wind und Wetter wechseln, ferner das Symbol des Hahnes, eines das Wetter vorausahnenden und durch seinen Ruf prophezeienden Tieres,* und die Sage von der Geburt des Hermes am frühen Morgen, da der Wind, welcher den Tag über weht, sich in der Regel schon mit Sonnenaufgang erhebt.
 
-*) Zu S. 101. Anm. 391: Demokritos bei Plut. de san. p. 14: [GREEK].
+*) Zu S. 101. Anm. 391: Demokritos bei Plut. de san. p. 14: Ἄτοπον γάρ ἐστι... κλωσμοῖς ἀλεκτορίδων... ὡς ἔφη Δημόκριτος, ἐπιμελῶς προσέχειν, σημεῖα ποιουμένους πνευμάτων καὶ ὄμβρων.
 
 Endlich findet sich vielfache Übereinstimmung des Hermes mit andern anerkannten Windgöttern indogermanischer Völker, namentlich mit Wodan, Vaju und den Maruts.
 
