@@ -327,13 +327,14 @@ Aber nicht bloß den von den Blättern und Zweigen der Bäume ausgeschwitzten Ho
 τῷ μὲν ἐπὶ γλώσσῃ γλυκερὴν χείουσιν ἐέρσην,  
 τοῦ δ᾽ ἔπε᾽ ἐκ στόματος ῥεὶ μείλιχα.
 
-Offenbar ist hier γλυκερὴ ἐέρση für Honig gebraucht, der ja schon von Homer* der Süßigkeit der Rede oder des Gesanges verglichen worden ist (S. unten Kap. 7). Selbst Aristoteles (h. a. 5, 22, 4) führt für die Meinung, dass der Honig aus der Luft falle (μέλι δὲ τὸ πῖπτον ἐκ τοῦ ἀέρος), während das Wachs von den Blumen, das Stopfwachs (κήπωσις, _melligo_) von den Bäumen komme, die Beobachtung an, dass die Bienenzüchter in einem oder zwei Tagen die Stöcke voll Honig finden und dass es zwar im Herbste Blumen aber keinen Honig mehr gibt, wenn er weggenommen wird. [GREEK], fährt Aristoteles fort, „[GREEK].“ Ähnlich sagt Columella (9, 14 z. Ende): idemque (Celsus) ait, ex fioribus ceras fieri, ex matutino rore mella. Daher wird auch der Blumenhonig, ebenso wie der Baumhonig, als ein himmlischer Thau gefasst* und von Dichtern und Naturforschern in begeisterten Worten als göttlicher Nektar und Geschenk des Himmels, als eine Göttern und Menschen gleichwillkommene Speise gepriesen.*
+Offenbar ist hier γλυκερὴ ἐέρση für Honig gebraucht, der ja schon von Homer* der Süßigkeit der Rede oder des Gesanges verglichen worden ist (S. unten Kap. 7). Selbst Aristoteles (h. a. 5, 22, 4) führt für die Meinung, dass der Honig aus der Luft falle (μέλι δὲ τὸ πῖπτον ἐκ τοῦ ἀέρος), während das Wachs von den Blumen, das Stopfwachs (κήπωσις, _melligo_) von den Bäumen komme, die Beobachtung an, dass die Bienenzüchter in einem oder zwei Tagen die Stöcke voll Honig finden und dass es zwar im Herbste Blumen aber keinen Honig mehr gibt, wenn er weggenommen wird. "Ἀφῃρημένου οὖν ἤδη τοῦ γενομένου μέλιτος," fährt Aristoteles fort, „καὶ τροφῆς ἢ οὐκ ἐνούσης ἢ
+σπανίας, ἐνεγίγνετο ἄν, εἴπερ ἐποίουν ἐκ τῶν ἀνθῶν.“ Ähnlich sagt Columella (9, 14 z. Ende): idemque (Celsus) ait, ex fioribus ceras fieri, ex matutino rore mella. Daher wird auch der Blumenhonig, ebenso wie der Baumhonig, als ein himmlischer Thau gefasst* und von Dichtern und Naturforschern in begeisterten Worten als göttlicher Nektar und Geschenk des Himmels, als eine Göttern und Menschen gleichwillkommene Speise gepriesen.*
 
-*) Vgl. 2. 1, 247: τοῖσι δὲ Νέστωρ || ἡδυεπὴς ἀνόρουσε, λιγὺς Πυλίων ἀγορήτης, || τοῦ καὶ ἀπὸ γλώσσης μέλιτος γλυκίων ῥέεν αὐδή. Hom. hy. 25, 4: ὁ δ᾽ ὄλβιος, ὄντινα Μοῦσαι || φίλωνται · γλυκερή οἱ ἀπὸ στόματος ῥέει αὐδή (vgl. Hesiod. Theog. 94). Ebenso wie hier Hesiod so nennt auch Pindar den Honig ἔερσα: vgl. Nem. 3, 73: [ἐγὼ τόδε τοι || πέμπω μεμιγμένον μέλι λευκῷ || Σὺν γάλακτι, κιρναμένα δ᾽ ἔερσ᾽ ἀμφέπει, || πόμ᾽ ἀοίδιμον Αἰολῇσιν ἐν πνοαῖσιν αὐλῶν. Dazu bemerkt der Scholiast: ἡ δρόσος ἡ τοῦ μέλιτος κιρναμένη πρὸς τὸ γάλα ποιεῖ τὸ πόμα ἀοίδιμον καὶ τὸ ποίημα μιχθὲν αὐλοῖς γίνεται καὶ αὐτὸ θαυμάσιον.
+*) Vgl. 2. 1, 247: τοῖσι δὲ Νέστωρ || ἡδυεπὴς ἀνόρουσε, λιγὺς Πυλίων ἀγορήτης, || τοῦ καὶ ἀπὸ γλώσσης μέλιτος γλυκίων ῥέεν αὐδή. Hom. hy. 25, 4: ὁ δ᾽ ὄλβιος, ὄντινα Μοῦσαι || φίλωνται · γλυκερή οἱ ἀπὸ στόματος ῥέει αὐδή (vgl. Hesiod. Theog. 94). Ebenso wie hier Hesiod so nennt auch Pindar den Honig ἔερσα: vgl. Nem. 3, 73: ἐγὼ τόδε τοι || πέμπω μεμιγμένον μέλι λευκῷ || Σὺν γάλακτι, κιρναμένα δ᾽ ἔερσ᾽ ἀμφέπει, || πόμ᾽ ἀοίδιμον Αἰολῇσιν ἐν πνοαῖσιν αὐλῶν. Dazu bemerkt der Scholiast: ἡ δρόσος ἡ τοῦ μέλιτος κιρναμένη πρὸς τὸ γάλα ποιεῖ τὸ πόμα ἀοίδιμον καὶ τὸ ποίημα μιχθὲν αὐλοῖς γίνεται καὶ αὐτὸ θαυμάσιον.
 
-*) Verg. Geo. 4, 1: Protinus aërii mellis caelestia dona exsequar, wozu Serv. bemerkt: nam mel exrore colligitur, qui utique defluit ex aëre. Prob. Quidam dicunt mel in aëre nasci, quidam apes colligere quo tempore in Ida Juppiter nutriebatur: tum primum ex aëre fluxisse, eoque ipsum alitum. Philostr. Im. 2, 414 ed. K. [GREEK] (Sophokles) [GREEK]. Dio Chrys. 2, p. 178. [GREEK]. Anth. Gr. 2, 177, 29, 1 (ed. Brunck); [GREEK].
+*) Verg. Geo. 4, 1: Protinus aërii mellis caelestia dona exsequar, wozu Serv. bemerkt: nam mel exrore colligitur, qui utique defluit ex aëre. Prob. Quidam dicunt mel in aëre nasci, quidam apes colligere quo tempore in Ida Juppiter nutriebatur: tum primum ex aëre fluxisse, eoque ipsum alitum. Philostr. Im. 2, 414 ed. K. ὁρᾶς γὰρ (Sophokles) καὶ τὰς μελίττας, ὡς ὑπερπέτονταί σου... ἐπιλείβουσαι σταγόνας ἀπορρήτους τῆς οἰκείας δρόσον. Dio Chrys. 2, p. 178. κερὶ τῶν ἀνθῶν τῆς δρόσου διαφέρονται [αἱ μέλισσαι]. Anth. Gr. 2, 177, 29, 1 (ed. Brunck); αὐτοπόνητον ἐν αἰθέρι ῥεῦμα μελισσᾶν.
 
-*) Varro de r. r. 3, 16: Intus opus faciunt [apes], quod, dulcissimum quod est, et Deis et hominibus est acceptum. Anth. Gr. 2, 177, 29, 8 (ed. Brunck): [GREEK]. Plin. 11, 30: Sive ille est caeli sudor, sive quaedam siderum saliva, sive purgantis se aëris succus, utinamque esset et purus ac liquidus et suae naturae, qualis defluit primo; nunc vero e tanta cadens altitudine multumque dum venit sordescens et obvio terrae halitu infectus, praeterea a fronde ac pabulis potus et in uterculos congestus apum (ore enim vomunt), ad haec succo florum corruptus et alveis maceratus totiensque mutatus, magnam tamen caelestis naturae voluptatem affert. ib. 37: nec alia suavitas visque mortalium malis a morte vocandis quam divini nectaris.
+*) Varro de r. r. 3, 16: Intus opus faciunt [apes], quod, dulcissimum quod est, et Deis et hominibus est acceptum. Anth. Gr. 2, 177, 29, 8 (ed. Brunck): αἰθερέου πτηναὶ νέκταρος ἐργάτιδες. Plin. 11, 30: Sive ille est caeli sudor, sive quaedam siderum saliva, sive purgantis se aëris succus, utinamque esset et purus ac liquidus et suae naturae, qualis defluit primo; nunc vero e tanta cadens altitudine multumque dum venit sordescens et obvio terrae halitu infectus, praeterea a fronde ac pabulis potus et in uterculos congestus apum (ore enim vomunt), ad haec succo florum corruptus et alveis maceratus totiensque mutatus, magnam tamen caelestis naturae voluptatem affert. ib. 37: nec alia suavitas visque mortalium malis a morte vocandis quam divini nectaris.
 
 Wie alt und volkstümlich diese griechische Vorstellung von der Entstehung des Honigs gewesen ist, erkennt man namentlich dann, wenn man bedenkt, dass eine gleiche oder doch ähnliche Anschauung sich auch bei andern verwandten und nichtverwandten Völkern nachweisen lässt.
 
@@ -371,95 +372,116 @@ Eine ganz ähnliche Vorstellung tritt uns endlich auch in der finnischen Mytholo
 
 **Ambrosia = Götterspeise, Nektar = Göttertrank und umgekehrt. Diese Vertauschung der beiden Ausdrücke erklärt sich aus deren ursprünglicher Identität, insofern beide nur verschiedene Formen derselben Substanz (des Honigs) waren. Die homerische Sage von den Ambrosia bringenden Peleiai.**
 
-Die gewöhnlichste, schon in den homerischen Gedichten häufigste Bedeutung des Wortes [GREEK] ist Götterspeise, während [GREEK] in der Regel als Göttertrank erscheint. So ist [GREEK] in allen Fällen, wo es eine Speise bezeichnet, wohl ursprünglich als ein Adjectivum feminini generis,* wozu ein Begriff wie [GREEK] zu ergänzen ist, zu fassen, es bedeutet also eigentlich Unsterblichkeitsspeise oder Nahrung der Unsterblichen (= Götter.)
+Die gewöhnlichste, schon in den homerischen Gedichten häufigste Bedeutung des Wortes ἀμβροσία (ἀμβροσίη) ist Götterspeise, während νέκταρ in der Regel als Göttertrank erscheint. So ist ἀμβροσία in allen Fällen, wo es eine Speise bezeichnet, wohl ursprünglich als ein Adjectivum feminini generis,* wozu ein Begriff wie ἐδωδή zu ergänzen ist, zu fassen, es bedeutet also eigentlich Unsterblichkeitsspeise oder Nahrung der Unsterblichen (= Götter.)
 
-*) Vgl. [GREEK] (scil. [GREEK]), [GREEK] (scil. [GREEK]) u. s. w.
+*) Vgl. δεξιή (scil. χείρ), ὑπερτερίη (scil. ἅμαξα) u. s. w.
 
 Sehr häufig werden schon bei Homer und Hesiod die beiden Begriffe in der angegebenen Bedeutung nebeneinandergestellt.*
 
-*) Vgl. ähnliche Zusammenstellungen wie [GREEK] (Homer), [GREEK] (Homer u. Xenophon.)
+*) Vgl. ähnliche Zusammenstellungen wie σῖτος ἠδὲ ποτής, σῖτος καὶ μέθυ (Homer), σῖτος καὶ οἶνος (Homer u. Xenophon.)
 
 Il. _T_, 352:
 
-[GREEK].
+...ἡ δ᾽ Ἀχιλῆι  
+νέκταρ ἐνὶ στήθεσσι καὶ ἀμβροσίην ἐρατεινὴν  
+στάξ᾽, ἵνα μή μιν λιμὸς ἀτερπὴς γούναθ᾽ ἴκηται.
 
-Od. [GREEK] 199:
+Od. ε 199:
 
-[GREEK].
+τῇ δὲ [τῇ Καλυψοῖ] παρ᾽ ἀμβροσίην δμωαὶ καὶ νέκταρ ἔθηκαν.
 
 ib. 92:
 
-[GREEK].
+ὧς ἄρα φωνήσασα θεὰ παρέθηκε τράπεζαν,  
+ἀμβροσίης πλήσασα, κέρασσε δὲ νέκταρ ἐρυθρόν.
 
-Od. [GREEK] 359 (vom Weine des Odysseus):
+Od. ι 359 (vom Weine des Odysseus):
 
-[GREEK].
+ἀλλὰ τόδ᾽ ἀμβροσίης καὶ νέκταρός ἐστιν ἀπορρώξ.
 
 Hes. Theog. 639:
 
-[GREEK].
+ἀλλ᾽ ὅτε δὴ κείνοισι παρέσχεθεν ἄρμενα πάντα,  
+νέκταρ τ᾽ ἀμβροσίην τε, τάπερ θεοὶ αὐτοὶ ἔδουσι,  
+πάντων ἐν στήθεσσιν ἀέξετο θυμὸς ἀγήνωρ.
 
 ib. 796:
 
-[GREEK].
+οὐδέ ποτ᾽ ἀμβροσίης καὶ νέκταρος ἔρχεται ἆσσον  
+(ὅς κεν τὴν [Στύγα] ἐπίορκον ἀπολείψας ἐπομόσσῃ  
+ἀθανάτων κ. τ. λ.)
 
 Hy. in Merc. 248 findet Apollon in der Kyllenischen Höhle:
 
-[GREEK].
+τρεῖς ἀδύτους ἀνέῳγε λαβὼν κληῖδα φαεινήν,  
+νέκταρος ἐμπλείους ἠδ᾽ ἀμβροσίης ἐρατεινῆς.
 
 Hy. in Cer. 49:
 
-[GREEK].
+οὐδέ ποτ᾽ ἀμβροσίης καὶ νέκταρος ἡδυπότοιο  
+πάσσατ᾽ ἀκηχεμένη, οὐδὲ χρόα βάλλετο λουτροῖς.
 
 Hy. in Ap. Del. 123:
 
-[GREEK].
+οὐδ᾽ ἄρ Ἀπόλλωνα χρυσάορα θήσατο μήτηρ,  
+ἀλλὰ Θέμις νέκταρ τε καὶ ἀμβροσίην ἐρατεινὴν  
+ἀθανάτῃσι χερσὶν ἐπήρξατο.
 
 Sehr eigentümlich ist, wenn man diese Verse damit vergleicht, eine Stelle im Hy. in Ven. 231, wo von der Eos erzählt wird, dass sie den Tithonos mit Götterspeise ernährt habe:
 
-[GREEK].
+αὐτὸν δ᾽ αὖτ᾽ ἀτίταλλεν ἐνὶ μεγάροισιν ἔχουσα  
+σίτῳ τ᾿ ἀμβροσίῃ τε καὶ εἴματα καλὰ διδοῦσα.
 
-Augenscheinlich sollte man hier entweder den Begriff [GREEK] allein oder [GREEK] erwarten, [GREEK] aber ist unverständlich.* Eine Änderung scheint demnach notwendig. Am einfachsten ist es wohl in diesem Falle nach Analogie von Ausdrücken wie [GREEK] (Hy. in Ap. Del. 127 in Ven. 260), [GREEK] (Il. _N_ 35. _E_ 369), [GREEK] (Od. [GREEK] 365, Hy. in Ven. 61), [GREEK] (Il. [GREEK] 171), [GREEK] (Od. [GREEK] 192) zu lesen [GREEK]* [GREEK].*
+Augenscheinlich sollte man hier entweder den Begriff ἀμβροσίη allein oder νέκταρι τ᾽ ἀμβροσίῃ τε erwarten, σίτῳ τ᾽ ἀμβροσίῃ τε aber ist unverständlich.* Eine Änderung scheint demnach notwendig. Am einfachsten ist es wohl in diesem Falle nach Analogie von Ausdrücken wie ἄμβροτον εἶδαρ (Hy. in Ap. Del. 127 in Ven. 260), ἀμβρόσιον εἰδαρ (Il. _N_ 35. _E_ 369), ἐλαίῳ ἀμβρότῳ (Od. θ 365, Hy. in Ven. 61), ἐλαίῳ ἀμβροσίῳ (Il. Ξ 171), κάλλει ἀμβροσίῳ (Od. σ 192) zu lesen σίτῳ* ἀμβροσίῳ καὶ εἳματα καλὰ διδοῦσα.*
 
-*) Auch Bergk (Jahrb. f. class Phil. 1860, S. 380) nimmt Anstoß an diesem Verse. Das bloße [GREEK] bedeutet an sich menschliche (nicht göttliche) Nahrung. Vgl. Hy. in Cer. 236: [GREEK] (Demophon), [GREEK].
+*) Auch Bergk (Jahrb. f. class Phil. 1860, S. 380) nimmt Anstoß an diesem Verse. Das bloße σῖτος bedeutet an sich menschliche (nicht göttliche) Nahrung. Vgl. Hy. in Cer. 236: ὁ δ᾽ ἀέξετο δαίμονι ἶσος (Demophon), οὔτ᾽ οὖν σῖτον ἔδων, οὐ θησάμενος γάλα μητρός.
 
 *) In Betreff der beiden Hiatus vgl. Kühner, Ausführl. Gr. d. gr. Spr. 2 1. 153 f. u. 81.
 
-*) Vgl. übrigens Nägelsbach, Hom. Theol. S. 15, der [GREEK] mit Brod und Ambrosia erklärt, was Bergk, mit dessen Annahme eines [GREEK] ich mich aber nicht einverstanden erklären kann, mit Recht verwirft (Fleckeisens Jahrb. 1860. S. 380 f.)
+*) Vgl. übrigens Nägelsbach, Hom. Theol. S. 15, der σίτῳ τ᾽ ἀμβροσίῃ mit Brod und Ambrosia erklärt, was Bergk, mit dessen Annahme eines ἓν διὰ δυοῖν ich mich aber nicht einverstanden erklären kann, mit Recht verwirft (Fleckeisens Jahrb. 1860. S. 380 f.)
 
-Außerdem finden sich noch einige Stellen, wo [GREEK] in der Bedeutung Götterspeise und [GREEK] = Göttertrank allein gebraucht sind (Il. _A._ 597. [GREEK] 3. Od. [GREEK] 62. Hy. in Ap. Del. 10).
+Außerdem finden sich noch einige Stellen, wo ἀμβροσίη in der Bedeutung Götterspeise und νέκταρ = Göttertrank allein gebraucht sind (Il. Α. 597. Δ 3. Od. μ 62. Hy. in Ap. Del. 10).
 
-Höchst merkwürdig ist es nun, dass neben dieser gewöhnlichen Tradition, wonach [GREEK] die Speise, [GREEK] den Trank der Götter bezeichnete, eine andere mehrfach bezeugte bestand, worin dieses Verhältnis geradezu umgekehrt erscheint. Das Hauptzeugnis dafür findet sich bei Athenaios, 39 _a_: [GREEK]
+Höchst merkwürdig ist es nun, dass neben dieser gewöhnlichen Tradition, wonach ἀμβροσία die Speise, νέκταρ den Trank der Götter bezeichnete, eine andere mehrfach bezeugte bestand, worin dieses Verhältnis geradezu umgekehrt erscheint. Das Hauptzeugnis dafür findet sich bei Athenaios, 39 _a_: "οἶδα δ᾽ ὅτι Ἀναξανδρίδης τὸ νέκταρ οὐ ποτὸν ἀλλὰ τροφὴν εἶναι λέγει θεῶν
 
-[GREEK].
+Τὸ νέκταρ ἐσθίω πάνυ  
+μάττων διαπίνω τ ἀμβροσίαν, καὶ τῷ Διὶ  
+διακονῶ κ. τ. λ."
 
-Dass dies nicht etwa ein Witz des Anaxandrides sondern ernsthaft zu nehmen ist, geht aus den unmittelbar darauffolgenden Zeugnissen des Alkman und der Sappho zur Genüge hervor: [GREEK]
+Dass dies nicht etwa ein Witz des Anaxandrides sondern ernsthaft zu nehmen ist, geht aus den unmittelbar darauffolgenden Zeugnissen des Alkman und der Sappho zur Genüge hervor: καὶ Ἀλκμὰν δέ φησι "Τὸ νέκταρ ἔδμεναι αὐτούς." Καὶ Σαπφὼ δέ φησιν
 
-[GREEK].*
+Ἀμβροσίας μὲν κρατὴρ ἐκέκρατο,  
+Ἑρμᾶς δ᾽ ἑλὼν ἕρπιν θεοῆ ᾠνοχόησεν.  
+ὁ δ᾽ Ὅμηρος θεῶν πῶμα τὸ νέκταρ οἶδεν.*
 
 *) Vgl. auch Eustath. p. 1633, 1.
 
 Dieselbe Vorstellung liegt vielleicht auch den schönen Versen des Euripides (Hippol. 748) zu Grunde, wo es von dem Göttergarten im äußersten Westen heißt:
 
-[GREEK].
+κρῆναί τ΄ ἀμβρόσιαι χέονται  
+Ζηνὸς μελάθρων παρὰ κοίταις,  
+ῖν᾽ ἁ βιόδωρος αὔξει ζαθέα  
+χθὼν εὐδαιμονίαν θεοῖς.
 
-Wie ist nun dieser eigentümliche Widerspruch der beiden verschiedenen Traditionen zu lösen? Bergk, welcher im Hinblick auf die Tatsache, dass die andern Völker (Inder und Germanen) nur einen Göttertrank, keine Götterspeise kennen, von einem ursprünglichen Unterschied der beiden Begriffe nichts wissen will, sondern in [GREEK] nur eine zweite Bezeichnung des Göttertranks erkennt, sagt (Fleckeisens Jahrb. 1860. S. 379 f.) Folgendes: „Keine dieser Stellen nötigt jene Ausdrücke voneinander zu halten: die angemessenste Erklärung ist überall die, dass man annimmt, die allgemeine Bezeichnung sei auch hier wie so oft mit einer spezielleren verbunden, um den Begriff vollständig zu erschöpfen, ungefähr wie man [GREEK] und Ähnliches verbunden findet.“ Dass diese Erklärung jedoch angesichts solcher Stellen wie Od. [GREEK] 93:
+Wie ist nun dieser eigentümliche Widerspruch der beiden verschiedenen Traditionen zu lösen? Bergk, welcher im Hinblick auf die Tatsache, dass die andern Völker (Inder und Germanen) nur einen Göttertrank, keine Götterspeise kennen, von einem ursprünglichen Unterschied der beiden Begriffe nichts wissen will, sondern in ἀμβροσία nur eine zweite Bezeichnung des Göttertranks erkennt, sagt (Fleckeisens Jahrb. 1860. S. 379 f.) Folgendes: „Keine dieser Stellen nötigt jene Ausdrücke voneinander zu halten: die angemessenste Erklärung ist überall die, dass man annimmt, die allgemeine Bezeichnung sei auch hier wie so oft mit einer spezielleren verbunden, um den Begriff vollständig zu erschöpfen, ungefähr wie man πρὸς ἠῶ τ᾽ ἠέλιόν τε, οὐρανὸς Οὔλυμπός τε und Ähnliches verbunden findet.“ Dass diese Erklärung jedoch angesichts solcher Stellen wie Od. ε 93:
 
-[GREEK].*
+θεὰ παρέθηκε τράπεζαν  
+ἀμβροσίης πλήσασα, κέρασσε δὲ νέκταρ ἐρυθρόν.  
+αὐτὰρ ὃ πῖνε καὶ ἦσθε διάκτορος Ἀργειφόντης.*
 
-*) Um diese Stelle, an welcher Bergks Erklärung allerdings scheitert, zu entkräften, will er sie zu einem Produkt späterer Phantasie machen. Dass der Begriff der Götterspeise bei den Griechen uralt ist, er sieht man aus dem Worte [GREEK], was Hesych. mit [GREEK] erklärt (vgl. auch Arcad. de acc. p. 122, 26: [GREEK] und Aischrion b. Ath. 296 f.: [GREEK] ([GREEK] der durch den Genuss einer Pflanze unsterblich wurde), [GREEK]). Es liegt die Vermutung nahe, dass [GREEK] mit dem lat. _far_ verwandt ist und sonach eine von dem Dinkel oder Spelt abstrahierte Götterspeise darstellen sollte.
+*) Um diese Stelle, an welcher Bergks Erklärung allerdings scheitert, zu entkräften, will er sie zu einem Produkt späterer Phantasie machen. Dass der Begriff der Götterspeise bei den Griechen uralt ist, er sieht man aus dem Worte φῆρος, was Hesych. mit ἡ τῶν ἀρχαίων θεῶν τροφή erklärt (vgl. auch Arcad. de acc. p. 122, 26: φῆρον βρῶμα θεῶν und Aischrion b. Ath. 296 f.: καὶ θεῶν ἄγρωστιν εὑρες (Γλαῦκος der durch den Genuss einer Pflanze unsterblich wurde), ἣν Κρόνος κατέσπειρε). Es liegt die Vermutung nahe, dass φῆρος mit dem lat. _far_ verwandt ist und sonach eine von dem Dinkel oder Spelt abstrahierte Götterspeise darstellen sollte.
 
 und Theog. 640:
 
-[GREEK].
+νέκταρ τ᾽ ἀμβροσίην τε, τάπερ θεοὶ αὐτοὶ ἔδουσι.
 
-zu kühn ist und dass zwischen Ausdrücken wie [GREEK] und [GREEK] ein großer Unterschied besteht, dürfte einleuchtend sein. Die Möglichkeit der beiden verschiedenen Traditionen erklärt sich wohl am besten auf andere Weise, nämlich durch die Annahme, dass [GREEK] und [GREEK] nur verschiedene Formen einer und derselben Substanz, d. i. des Honigs sind, welchen man, wie wir später sehen werden, nicht bloß für die Nahrung der Götter hielt, sondern dem man auch geradezu die Fähigkeit unsterblich zu machen zuschrieb.
+zu kühn ist und dass zwischen Ausdrücken wie ἠῶ τ᾽ ἠέλιόν τε und νέκταρ τ᾽ ἀμβροσίην τε ein großer Unterschied besteht, dürfte einleuchtend sein. Die Möglichkeit der beiden verschiedenen Traditionen erklärt sich wohl am besten auf andere Weise, nämlich durch die Annahme, dass νέκταρ und ἀμβροσία nur verschiedene Formen einer und derselben Substanz, d. i. des Honigs sind, welchen man, wie wir später sehen werden, nicht bloß für die Nahrung der Götter hielt, sondern dem man auch geradezu die Fähigkeit unsterblich zu machen zuschrieb.
 
 An sich ist Honig zwar eine Speise, aber durch Verdünnung mit Wasser nimmt er den Charakter eines Getränkes an, welches gegohren sogar eine berauschende Wirkung zu äußern im Stande ist.
 
 Ein solches berauschendes Honiggetränk nennt man bekanntlich Meth, und es ist nicht zu bezweifeln, dass dieser, wie bei andern Völkern, so auch bei den Griechen der Urzeit, welche noch keine Weinkultur kannte, die Rolle des Weines spielte (vgl. Victor Hehn, Kulturpflanzen und Haustiere 2 S. 134 und unten Kap. 2, A); zumal da sich Spuren davon noch in der Mythologie erhalten haben. Bedenkt man nun, dass der Göttertrank der Inder* und Germanen* und auch der späteren Griechen, denen der Nektar offenbar als eine Art Wein galt,* eigentlich identisch war mit dem berauschenden Menschentrank (Soma, Meth, Wein) und dass man dessen Wirkung sogar zu einer göttlichen Person steigerte (Soma als Gott, Dionysos), so lässt sich dasselbe auch von dem Honigmeth der griechischen Urzeit vermuten.
 
-*) Soma bezeichnete ursprünglich den Saft, welcher aus dem saftigen Kraut einer Pflanze gepresst wurde. Diese brachte einst ein schön beschwingter Falke aus der Ferne, vom höchsten Himmel, oder von den Bergen her, wohin sie Varuna gesetzt, der Weltenordner. Ihr Saft, geläutert, mit Milch und Mehl gemischt, und einige Zeit der Gärung überlassen, zeigte berauschende Wirkungen und war der allbeliebte Trank der Arier, des Opfers Seele und Zierde, der Männer Freude. Ihn trinkt der Kranke als Arznei, sein Genuss stärkt die Glieder, hält alles Siechtum fern und dehnet lang das Leben. Der Trunk heißt den Sänger seine Stimme erheben und begeistert ihn zum Lied; er gibt ihm überirdische Kraft, so dass er sich selbst unsterblich dünkt (Amṛta = [GREEK]!). Die Macht des Trunkes führte schon in Indo-Iranischer Zeit dazu, den Saft als Gott Soma (ostiranisch Haoma) zu personifizieren und ihm fast alle Taten anderer Götter zuzuschreiben; zumal ja auch der Götter Stärke durch diesen Trank gehoben wurde (vgl. die Wirkung des Nektars und der Ambrosia bei Hes. Theog. 639 ff.). Er soll des Frommen Leben endlos dehnen und nach dem Tode ihn unsterblich machen am Ort der Seligen, im höchsten Himmel. (Aus Kaegi, Der Rigveda. Zürich 1879. S. 63 ff. wo auch viele Belege gesammelt sind). Ähnliches gilt übrigens vom Iranischen Haoma (Windischmann, Abh. d. bayer. Ak. d. Wiss. 1846. S. 127 ff. Kuhn, Herabkunft etc. S. 118 ff.). Auch die Griechen kennen, wie die Glaukossage, lehrt eine Unsterblichkeitspflanze ([GREEK]). Vgl. Gädechens, Glaukos 33 ff.
+*) Soma bezeichnete ursprünglich den Saft, welcher aus dem saftigen Kraut einer Pflanze gepresst wurde. Diese brachte einst ein schön beschwingter Falke aus der Ferne, vom höchsten Himmel, oder von den Bergen her, wohin sie Varuna gesetzt, der Weltenordner. Ihr Saft, geläutert, mit Milch und Mehl gemischt, und einige Zeit der Gärung überlassen, zeigte berauschende Wirkungen und war der allbeliebte Trank der Arier, des Opfers Seele und Zierde, der Männer Freude. Ihn trinkt der Kranke als Arznei, sein Genuss stärkt die Glieder, hält alles Siechtum fern und dehnet lang das Leben. Der Trunk heißt den Sänger seine Stimme erheben und begeistert ihn zum Lied; er gibt ihm überirdische Kraft, so dass er sich selbst unsterblich dünkt (Amṛta = ἀμβροσία!). Die Macht des Trunkes führte schon in Indo-Iranischer Zeit dazu, den Saft als Gott Soma (ostiranisch Haoma) zu personifizieren und ihm fast alle Taten anderer Götter zuzuschreiben; zumal ja auch der Götter Stärke durch diesen Trank gehoben wurde (vgl. die Wirkung des Nektars und der Ambrosia bei Hes. Theog. 639 ff.). Er soll des Frommen Leben endlos dehnen und nach dem Tode ihn unsterblich machen am Ort der Seligen, im höchsten Himmel. (Aus Kaegi, Der Rigveda. Zürich 1879. S. 63 ff. wo auch viele Belege gesammelt sind). Ähnliches gilt übrigens vom Iranischen Haoma (Windischmann, Abh. d. bayer. Ak. d. Wiss. 1846. S. 127 ff. Kuhn, Herabkunft etc. S. 118 ff.). Auch die Griechen kennen, wie die Glaukossage, lehrt eine Unsterblichkeitspflanze (ἀείζωον). Vgl. Gädechens, Glaukos 33 ff.
 
 *) Eine besondere Götterspeise wird in den nordischen Sagen nirgend erwähnt, Odin trinkt Wein, Götter trinken Bier, Öl, Meth, also lauter solche berauschende Getränke, welche den nordischen Sängern bekannt waren (W. Müller, Gesch. u. System d. altdeutsch, Rel. S. 150. Grimm, D. Myth. 3 S. 295 f.)
 
