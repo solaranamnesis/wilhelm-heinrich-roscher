@@ -492,21 +492,31 @@ Nun ist aber der wesentlichste und wirkungsreichste Bestandteil des Methes nicht
 
 Mit dieser Deutung des Nektars und der Ambrosia als Honig stehen auch die Mythen von der Herkunft der Götternahrung im besten Einklang. Es lässt sich nämlich nachweisen, dass wie der Honig so auch die Ambrosia und der Nektar ihren Ursprung im Himmel oder in einer Art himmlischen Paradieses im äußersten Westen hatten.
 
-Schon die Alten haben die Beobachtung gemacht, dass Baumhonig (Honigtau) und Blumenhonig nicht vor dem Aufgange der Pleiaden entstehen (Aristot. H. A. 5, 22, 4: [GREEK]. Plin. h. n. 11, 30: nec omnino prius Vergiliarum exortu [mel fit]),* und es lässt sich wohl annehmen, dass die antiken Bienenzüchter, gegen das Ende des Winters, wenn der Honigvorrat zu Ende ging oder gänzlich aufgezehrt war, sehnsüchtig nach dem Aufgange des Pleiadengestirns ausschauten, welches ihnen neue Fülle der herrlichsten Speise verhieß. Diese Tatsache ist nun, wie ich glaube der Anlass zur Bildung eines Mythus gewesen, den schon Homer kannte. Od. [GREEK] 62 heißt es von den Irrfelsen im äußersten Westen (Völcker, Homer. Geogr. S. 118):
+Schon die Alten haben die Beobachtung gemacht, dass Baumhonig (Honigtau) und Blumenhonig nicht vor dem Aufgange der Pleiaden entstehen (Aristot. H. A. 5, 22, 4: ὅλως δ᾽ οὐ γίνεται μέλι πρὸ Πλειάδος ἐπιτολῆς. Plin. h. n. 11, 30: nec omnino prius Vergiliarum exortu [mel fit]),* und es lässt sich wohl annehmen, dass die antiken Bienenzüchter, gegen das Ende des Winters, wenn der Honigvorrat zu Ende ging oder gänzlich aufgezehrt war, sehnsüchtig nach dem Aufgange des Pleiadengestirns ausschauten, welches ihnen neue Fülle der herrlichsten Speise verhieß. Diese Tatsache ist nun, wie ich glaube der Anlass zur Bildung eines Mythus gewesen, den schon Homer kannte. Od. μ 62 heißt es von den Irrfelsen im äußersten Westen (Völcker, Homer. Geogr. S. 118):
 
-[GREEK].
+τῇ μέν τ᾽ οὐδὲ ποτητὰ παρέρχεται οὐδὲ πέλειαι  
+τρήρωνες, ταί τ᾽ ἀμβροσίην Διὶ πατρὶ φέρουσι,  
+ἀλλά τε καὶ τῶν αἰὲν ἀφαιρεῖται λὶς πέτρη ·  
+ἀλλ᾽ ἄλλην ἐνίησι πατὴρ ἐναρίθμιον εἶναι.
 
-Sowohl die antiken, als auch die meisten modernen Erklärer der Stelle* verstehen hier unter den [GREEK] das Pleiadengestirn ([GREEK]), von dem nur sechs Sterne hell leuchten, während der siebente verdunkelt ist.* Besonders berief man sich in dieser Beziehung auf folgende Verse der Dichterin Moiro (um 300 v. Chr.), worin auch die Quellen der Ambrosia und des Nektars in den äußersten Westen, an die Fluten des Okeanos, aus dem die Pleiaden aufzusteigen scheinen, verlegt werden:
+Sowohl die antiken, als auch die meisten modernen Erklärer der Stelle* verstehen hier unter den τρήρωνες πέλειαι das Pleiadengestirn (Πληιάδες, Πελειάδες), von dem nur sechs Sterne hell leuchten, während der siebente verdunkelt ist.* Besonders berief man sich in dieser Beziehung auf folgende Verse der Dichterin Moiro (um 300 v. Chr.), worin auch die Quellen der Ambrosia und des Nektars in den äußersten Westen, an die Fluten des Okeanos, aus dem die Pleiaden aufzusteigen scheinen, verlegt werden:
 
 Moiro b. Ath. 491 b:
 
-[GREEK].*
+τὸν μὲν [Δία ἐν Κρήτῃ] ἄρα τρήρωνες ὑπὸ ζαθέῳ τράφον ἄντρῳ,  
+ἀμβροσίην φορέουσαι ἀπ' Ὠκεανοῖο ῥοάων,  
+νέκταρ δ᾽ ἐκ πέτρης μέγας αἰετὸς αἰὲν ἀφύσσων  
+γαμφηλῇς φορέεσκε ποτὸν Διὶ μητιόεντι.*  
+τὸν καὶ, νικήσας πατέρα Κρόνον εὐρύοπα Ζεὺς,  
+ἀθάνατον ποίησε καὶ οὐρανῷ ἐγκατένασσεν.  
+ὣς δ᾽ αὕτως τρήρωσι πελειάσιν ὥπασε τιμὴν,  
+αἳ δή τοι θέρεος καὶ χείματος ἄγγελοι εἰσίν.
 
 *) Vgl. auch Plin. h. n. 11, 42: Haec ergo mellatio fine vindemiae et Vergiliarum occasu Idibus Novembribus fere includitur. ib. 43: In Italia vero hoc idem [apes] a Vergiliarum exortu faciunt [= iam vigilant]; in eum dormiunt. Varro de r. r. 3, 16: Eximendorum favorum primum putant esse tempus Vergiliarum exortu... tertium post Vergiliarum occasum.
 
-*) Vgl. die vielen Zeugnisse der Alten b. Athen. 489 e ff. Eustath. zu Od. [GREEK]. 62 (p. 1712). Schol. z. Od. a. a. O. Von neueren Erklärern sind zu nennen: Völcker, Japet. Geschlecht 83 ff. Welcker, Götterl. 1, 69. Preller, gr. Myth. 2 1, 364. Ameis, Anhang z. Odyssee 2. S. 76.
+*) Vgl. die vielen Zeugnisse der Alten b. Athen. 489 e ff. Eustath. zu Od. μ. 62 (p. 1712). Schol. z. Od. a. a. O. Von neueren Erklärern sind zu nennen: Völcker, Japet. Geschlecht 83 ff. Welcker, Götterl. 1, 69. Preller, gr. Myth. 2 1, 364. Ameis, Anhang z. Odyssee 2. S. 76.
 
-*) Vgl. Aratos Phaen. 257 f. Chiron b. Eustath. a. a. O. Den Anlass, in dem Pleiadengestirn Tauben zu erblicken, gab wohl die Gleichheit oder Ähnlichkeit der Form, da wie aus Athen. u. Eustath. a. a. O. erhellt einerseits die [GREEK] auch sehr häufig [GREEK] (und [GREEK]) und anderseits die Tauben ([GREEK]) schon von Homer [GREEK] genannt wurden. Ursprünglich haben freilich die beiden Worte gar nichts miteinander zu schaffen. [GREEK] (vgl. über das eingeschobene [GREEK] Curtius Grdz. 4 718) hängt mit lat. _pluvia_ zusammen und bezeichnet das Gestirn, dessen Untergang das Herannahen der Regenzeit verkündet (Roscher, Hermes d. Windgott. S. 30), [GREEK] (Taube) dagegen ist verwandt mit [GREEK] grau (Curtius a. a. O. S. 271). Beachtenswert erscheint übrigens, was im Hy. auf Hermes 247 f. berichtet wird, dass in der Höhle der Pleiade Main auf der Kyllene, worin man wahrscheinlich einen Wolkenberg zu erblicken hat (Roscher, Hermes d. Windgott S. 31), reichliche Vorräte von Ambrosia und Nektar sich befunden hätten. Der liebliche Duft, welcher die Höhle erfüllte (v. 231), wird wohl als eine Wirkung jener Substanzen, deren Wohlgeruch mehrfach hervorgehoben wird (s. Kap. 3, B), aufzufassen sein.
+*) Vgl. Aratos Phaen. 257 f. Chiron b. Eustath. a. a. O. Den Anlass, in dem Pleiadengestirn Tauben zu erblicken, gab wohl die Gleichheit oder Ähnlichkeit der Form, da wie aus Athen. u. Eustath. a. a. O. erhellt einerseits die Πληιάδες auch sehr häufig Πελειάδες (und Πέλειαι) und anderseits die Tauben (πέλειαι) schon von Homer πελειάδες genannt wurden. Ursprünglich haben freilich die beiden Worte gar nichts miteinander zu schaffen. Πληΐάς, Πελειάς (vgl. über das eingeschobene ε Curtius Grdz. 4 718) hängt mit lat. _pluvia_ zusammen und bezeichnet das Gestirn, dessen Untergang das Herannahen der Regenzeit verkündet (Roscher, Hermes d. Windgott. S. 30), πέλεια (Taube) dagegen ist verwandt mit πελιός grau (Curtius a. a. O. S. 271). Beachtenswert erscheint übrigens, was im Hy. auf Hermes 247 f. berichtet wird, dass in der Höhle der Pleiade Main auf der Kyllene, worin man wahrscheinlich einen Wolkenberg zu erblicken hat (Roscher, Hermes d. Windgott S. 31), reichliche Vorräte von Ambrosia und Nektar sich befunden hätten. Der liebliche Duft, welcher die Höhle erfüllte (v. 231), wird wohl als eine Wirkung jener Substanzen, deren Wohlgeruch mehrfach hervorgehoben wird (s. Kap. 3, B), aufzufassen sein.
 
 *) Vgl. das hiermit übereinstimmende Relief einer Grabara des Vatikans bei Overbeck, Kunstmythologie 1, 1 (Zeus) S. 329.
 
@@ -514,7 +524,16 @@ Da nun nach der Vorstellung der Alten der Sitz der Götter nicht bloß im Himmel
 
 Hippol. 5. 742:
 
-[GREEK].*
+Ἑσπερίδων δ᾽ ἐπὶ μηλόσπορον ἀκτὰν  
+ἀνύσαιμι τᾶν ἀοιδῶν,  
+ἵν᾿ ὁ ποντομέδων πορφυρέας λίμνας  
+ναύταις οὐκέθ᾽ ὁδὸν νέμει,  
+σεμνὸν τέρμονα, κύρων  
+οὐρανοῦ τὸν Ἄτλας ἔχει,  
+κρῆναι τ᾽ ἀμβρόσιαι χέονται  
+Ζηνὸς μελάθρων παρὰ κοίταις,  
+ἵν᾽ ἁ βιόδωρος αὔξει ζαθέα  
+χθὼν εὐδαιμονίαν θεοῖς.*
 
 Wie wunderbar stimmt nunmehr der schon homerische Mythus von den aus dem paradiesischen Göttergarten im Westen Ambrosia bringenden Pleiaden oder Tauben mit jener oben erwähnten indisch-persischen, germanischen und finnischen Vorstellung überein, wonach die Bienen (oder Vögel) den Honig (oder Göttertrank) vom Himmel (oder aus dem Paradiese) herzutragen! Noch merkwürdiger spricht für unsere Annahme einer ursprünglichen Identität von Honig und Ambrosia (Nektar), dass nach anderen Quellen (vgl. oben das Fragment der Moiro) Zeus auf Kreta nicht von Tauben oder Pleiaden mit Ambrosia, sondern von Bienen mit Honig genährt wurde.* Dies ist offenbar nur eine andere Form eines und desselben Grundgedankens, denn die Bienen fangen erst nach dem Aufgang der Pleiaden an den von diesen gewissermaßen gebrachten himmlischen Honigtau einzutragen.
 
@@ -522,29 +541,29 @@ Wie wunderbar stimmt nunmehr der schon homerische Mythus von den aus dem paradie
 
 *) Nach Bergk, a. a. O. 318.
 
-*) Schol. [GREEK].
+*) Schol. αἱ τοῦ νέκταρος κρῆναι, καθὸ ἡ ἀμβροσία καὶ τὸ νέκταρ ἐκεῖσε φύονται --- αἱ πηγαὶ αἱ τὸ ζῆν τοῖς θεοῖς δωρούμεναι. --- φησὶ γοῦν κρήνας μὲν ἀμβροσίας τὰς τοῦ νέκταρος, εὐδαιμονίαν δὲ τὴν ἀμβροσίαν καὶ ἀφθαρσίαν.
 
 *) S. Anm. 56, 60, 66.
 
-*) Diod. 5, 70: [GREEK]. Anton. Lib. 19: [GREEK]. Kallim. hy. in Jov. 48: [GREEK]. Daraus ist dann die Legende von dem kretischen König Melisseus und seiner Tochter Melissa entstanden: Apollod. 1, 1, 6. Hyg. P. Astr. 2, 13. Lactant. 1, 22. Vgl. auch Prob. z. Verg. Geo. 4, 1: quo tempore in Ida Juppiter nutriebatur, tum primum [mel] ex aëre fluxisse eoque ipsum alitum. Colum. 9, 2.
+*) Diod. 5, 70: τὸ δὲ πάντων παραδοξότατον καὶ μυθολογούμενον περὶ τῶν μελιττῶν οὐκ ἄξιον παραλιπεῖν · τὸν γὰρ θεόν φασιν ἀθάνατον · μνήμην τῆς πρὸς αὐτὰς οἰκειότητος διαφυλάξαι βουλόμενον ἀλλάξαι μὲν τὴν χρόαν αὐτῶν καὶ ποιῆσαι χαλκῷ χρυσοειδεῖ παραπλησίαν. Anton. Lib. 19: Ἐν Κρήτῃ λέγεται εἶναι ἱερὸν ἄντρον μελισσῶν, ἐν ᾧ μυθολογοῦσι τεκεῖν Ῥέαν τὸν Δία, καὶ ἔστιν ὅσιον οὐδένα παρελθεῖν οὔτε θεὸν οὔτε θνητόν... κατέχουσι δὲ τὸ ἄντρον ἱεραὶ μέλισσαι, τροφοὶ τοὺ Διὸς. Kallim. hy. in Jov. 48: σὺ δ᾽ ἐθήσαο πίονα μάζον || Αἰγὸς Ἀμαλθείης, ἐπὶ δὲ γλυκὺ κηρίον ἔβρως. Daraus ist dann die Legende von dem kretischen König Melisseus und seiner Tochter Melissa entstanden: Apollod. 1, 1, 6. Hyg. P. Astr. 2, 13. Lactant. 1, 22. Vgl. auch Prob. z. Verg. Geo. 4, 1: quo tempore in Ida Juppiter nutriebatur, tum primum [mel] ex aëre fluxisse eoque ipsum alitum. Colum. 9, 2.
 
 Aber nicht bloß als Speise der Götter erscheint die Ambrosia, sie bezeichnet auch hie und da das Futter der Götterrosse und muss demnach in diesen Fällen als eine Art Gras oder Kraut gedacht worden sein. So heißt es Il. _E_ 777 von den Rossen der Hera:
 
-[GREEK],
+τοῖσιν δ᾽ ἀμβροσίην Σιμόεις ἀνέτειλε νέμεσθαι,
 
-wozu der Scholiast bemerkt [GREEK].* Derselben Vorstellung begegnen wir auf Il. _E_ 369, wo Iris die Rosse des Ares, und Il. _N_ 35, wo Poseidon sein Gespann mit [GREEK] füttert. Nach Alexander Aetolus fressen die Rosse des Helios ein Gras, welches auf den Inseln der Seligen im äußersten Westen wächst und mit dem Kraute, dem Glaukos die Unsterblichkeit verdankt, identisch ist.* Von demselben Grase sagt Aeschrion bei Ath. 296 f.:
+wozu der Scholiast bemerkt τὴν τῶν θεῶν τροφὴν* ἢ πόαν τινὰ νῦν, ἣν οἱ τῶν θεῶν ἵπποι ἐσθίουσιν. Derselben Vorstellung begegnen wir auf Il. _E_ 369, wo Iris die Rosse des Ares, und Il. _N_ 35, wo Poseidon sein Gespann mit ἀμβρόσιον εἶδαρ füttert. Nach Alexander Aetolus fressen die Rosse des Helios ein Gras, welches auf den Inseln der Seligen im äußersten Westen wächst und mit dem Kraute, dem Glaukos die Unsterblichkeit verdankt, identisch ist.* Von demselben Grase sagt Aeschrion bei Ath. 296 f.:
 
-[GREEK],
+Καὶ θεῶν ἄγρωστιν εὗρες, ἣν Κρόνος κατέσπειρε,
 
-womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götterparadies im äußersten Westen hingewiesen wird, wo Kronos dem Mythus zufolge gewaltet haben soll (Hes. [GREEK] 169. Pind. Ol. 2, 123. vgl. auch Diod. 5, 66 u. Cic. N, D. 3, 17). Auch sonst wird dieses Kraut oder Gras, welches dem Glaukos Unsterblichkeit verlieh, erwähnt und [GREEK] genannt.* Später scheint man es mit dem Hauslaub oder der Hauswurz, welches von seiner unverwüstlichen Triebkraft und seinem immergrünen Aussehen ebenfalls [GREEK] hieß,* identifiziert zu haben, wie schon aus der Tatsache erhellt, dass diese Pflanze auch den Namen [GREEK] führte.* Schließlich gehört hierher auch das Kraut, durch dessen Genuss Ge den Giganten, ihren Söhnen, die Unsterblichkeit sichern wollte,* die Pflanze, mit deren Hülfe Polyidos den toten Sohn des Minos ins Leben zurückruft,* endlich der Klee, der im Garten der Hera wachsend die Hirsche der Artemis und die Rosse des Zeus nährt.* Man kann diese Idee einer Unsterblichkeit verleihenden Pflanze, die einigermaßen an das Somakraut des Rigveda erinnert, entweder für uralt oder, was mir aus mehreren Gründen wahrscheinlicher dünkt,* für eine einfache Übertragung des Begriffes Unsterblichkeitsspeise von den Göttern auf ihre Rosse halten. Auch in diesem Falle wäre eine Beziehung auf den Honig nicht undenkbar, da es mehrere Pflanzen gab, die sich vor andern durch besonders starken Honiggehalt auszeichneten.* So erzählt Aelianus* von einem indischen Grase, welches in so reichlichem Masse von Honigtau befallen werde, dass es für Rinder und Schafe eine überaus süße und nahrhafte Speise bilde und in diesen Tieren eine wunderbar süße Milch erzeuge. Eine ähnliche Vorstellung von Honigblumen, die im Himmel wachsen, lässt sich in germanischen Sagen nachweisen.*
+womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götterparadies im äußersten Westen hingewiesen wird, wo Kronos dem Mythus zufolge gewaltet haben soll (Hes. ἔργα 169. Pind. Ol. 2, 123. vgl. auch Diod. 5, 66 u. Cic. N, D. 3, 17). Auch sonst wird dieses Kraut oder Gras, welches dem Glaukos Unsterblichkeit verlieh, erwähnt und ἀείζωος πόα genannt.* Später scheint man es mit dem Hauslaub oder der Hauswurz, welches von seiner unverwüstlichen Triebkraft und seinem immergrünen Aussehen ebenfalls ἀείζωον hieß,* identifiziert zu haben, wie schon aus der Tatsache erhellt, dass diese Pflanze auch den Namen διοπετές, ἀμβροσία oder ἀμέριμνον führte.* Schließlich gehört hierher auch das Kraut, durch dessen Genuss Ge den Giganten, ihren Söhnen, die Unsterblichkeit sichern wollte,* die Pflanze, mit deren Hülfe Polyidos den toten Sohn des Minos ins Leben zurückruft,* endlich der Klee, der im Garten der Hera wachsend die Hirsche der Artemis und die Rosse des Zeus nährt.* Man kann diese Idee einer Unsterblichkeit verleihenden Pflanze, die einigermaßen an das Somakraut des Rigveda erinnert, entweder für uralt oder, was mir aus mehreren Gründen wahrscheinlicher dünkt,* für eine einfache Übertragung des Begriffes Unsterblichkeitsspeise von den Göttern auf ihre Rosse halten. Auch in diesem Falle wäre eine Beziehung auf den Honig nicht undenkbar, da es mehrere Pflanzen gab, die sich vor andern durch besonders starken Honiggehalt auszeichneten.* So erzählt Aelianus* von einem indischen Grase, welches in so reichlichem Masse von Honigtau befallen werde, dass es für Rinder und Schafe eine überaus süße und nahrhafte Speise bilde und in diesen Tieren eine wunderbar süße Milch erzeuge. Eine ähnliche Vorstellung von Honigblumen, die im Himmel wachsen, lässt sich in germanischen Sagen nachweisen.*
 
 *) Dieser ersten Auffassung des Scholiasten folgte Ovid. Met. 2, 120: ignemque vomentes, ambrosiae suco saturos, praesepibus altis quadrupedes ducunt. ib. 4, 214: axe sub Hesperio sunt pascua solis equorum: ambrosiam pro gramine habent.
 
-*) Alex. Aet. b. Ath. 296 e. [GREEK]. Vgl. Claud. in Stilich. 2, 470.
+*) Alex. Aet. b. Ath. 296 e. Γευσάμενος βοτάνης [κατεποντώθη] ἣν Ἠελίῳ φαέθοντι || ἐν μακάρων νήσοις λιτὴ φύει εἴαρι γαῖα · Ἠέλιος δ᾽ ἵπποις θυμήρεα δόρπον ὁπάζει || ὕλῃ ναιετάουσαν, ἵνα δρόμον ἐκτελέσωσιν || ἄτρυτοι, καὶ μή τιν᾽ ἕλοι μεσσηγὺς ἀνίη. Vgl. Claud. in Stilich. 2, 470.
 
-*) Vgl. Gädechens, Glaukos d. Meergott S. 33 f. Bergk in Fleckeisens Jahrb. 1860. S. 385, Anm. 75. Die gemeinten Stellen sind: Aeschylos fr. 27: [GREEK]. Paus. 9, 22. 7 [GREEK]. Schol. Ap. Arg. 1, 1310 [GREEK]. Ovid. Met. 7, 232 vivax gramen. Claudian. nupt. Hon. et Mar. 158: immortales herbae. Vgl. auch Lobeck Aglaophamos 866 f.
+*) Vgl. Gädechens, Glaukos d. Meergott S. 33 f. Bergk in Fleckeisens Jahrb. 1860. S. 385, Anm. 75. Die gemeinten Stellen sind: Aeschylos fr. 27: ὁ τὴν ἀείζων ἄφθιτον πόαν φαγών und καὶ γεύομαί πως τῆς ἀειζώου πόας. Paus. 9, 22. 7 ἐπεὶ τῆς (ἀειζώον Bergk) πόας ἔφαγε. Schol. Ap. Arg. 1, 1310 ἀθάνατος βοτάνη. Ovid. Met. 7, 232 vivax gramen. Claudian. nupt. Hon. et Mar. 158: immortales herbae. Vgl. auch Lobeck Aglaophamos 866 f.
 
-*) Noch jetzt heißt die Pflanze davon in Italien semprevivo = sempervivum b. Plin. u. Palladius. Vgl. Theophr. hist. pl. 7, 15, 2: [GREEK]. Vgl. Lenz, Botanik d. a. Griechen u. Römer S. 601 f.
+*) Noch jetzt heißt die Pflanze davon in Italien semprevivo = sempervivum b. Plin. u. Palladius. Vgl. Theophr. hist. pl. 7, 15, 2: οἷον καὶ ἡ τοῦ ἀειζώου φύσις τὸ διαμένειν ὑγρὸν ἀεὶ καὶ χλωρόν κ. τ. λ. Vgl. Lenz, Botanik d. a. Griechen u. Römer S. 601 f.
 
 *) Plin. h. n. 25, 13, 101. Diosk. 4, 91 ff.
 
@@ -552,13 +571,13 @@ womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götter
 
 *) Apollod. bibl. 3, 3, 1, 2.
 
-*) Kallim. hy. in Dian. 162: [GREEK]. Über den [GREEK] im äußersten Westen vgl. Roscher, Juno u. Hera S. 82, Anm. 254. Bergk in Fleckeisens Jahrb. 1860. S. 414 f.
+*) Kallim. hy. in Dian. 162: σοὶ δ᾽ Ἀμνισιάδες μὲν ὑπὸ ζεύγληφι λυθείσας || ψήχουσιν κεμάδας, παρὰ δὲ σφισι πουλὺ νέμεσθαι || Ἥρης ἐκ λειμῶνος ἀμησάμεναι φορέουσιν || ὠκύθοον τριπέτηλον, ὃ καὶ Διὸς ἵπποι ἔδουσιν. Über den λειμὼν τῆς Ἥρας im äußersten Westen vgl. Roscher, Juno u. Hera S. 82, Anm. 254. Bergk in Fleckeisens Jahrb. 1860. S. 414 f.
 
 *) Bei den ältesten Griechen lässt sich nicht wie bei den Indern eine gras oder krautartige Pflanze nachweisen, aus welcher man ein. berauschendes Getränk bereitete.
 
-*) Varro de r. r. 3, 16 nennt Thymian, Cytisus und Melisse (Apiastrum), welche auch Meliphyllon, Melissophyllon und Melinon von ihrem Honiggehalt heißt, als Pflanzen, die vorzugsweise in der Nähe der Bienenstöcke gepflanzt werden sollen, außerdem noch Mohn, Bufbohnen, Linsen, Erbsen, Cypergras und Luzernklee (medica; vgl. Aristot. d. an. h. 9, 40, 26). Beachtenswert erscheint der Umstand, dass die letztgenannte Kleeart auch nectarea oder [GREEK] hieß. Vgl. Hesych. s. v. [GREEK]. Plin. n. h. 14, 108: Invenitur et nectarites ex herba, quam alii helenion, alii medicam, alii symphyton, alii Idaeam et Orestion, alii nectaream vocant. Schol. Ar. eq. 606: [GREEK]. Diosc. 1, 27.
+*) Varro de r. r. 3, 16 nennt Thymian, Cytisus und Melisse (Apiastrum), welche auch Meliphyllon, Melissophyllon und Melinon von ihrem Honiggehalt heißt, als Pflanzen, die vorzugsweise in der Nähe der Bienenstöcke gepflanzt werden sollen, außerdem noch Mohn, Bufbohnen, Linsen, Erbsen, Cypergras und Luzernklee (medica; vgl. Aristot. d. an. h. 9, 40, 26). Beachtenswert erscheint der Umstand, dass die letztgenannte Kleeart auch nectarea oder νεκτάρεος ῥίζα hieß. Vgl. Hesych. s. v. σύμφυτος · ἡ νεκτάρεος ῥίζα, ἣν ἔνιοι ἑλένιον, ἔνιοι δὲ μηδίκην. Plin. n. h. 14, 108: Invenitur et nectarites ex herba, quam alii helenion, alii medicam, alii symphyton, alii Idaeam et Orestion, alii nectaream vocant. Schol. Ar. eq. 606: πόα Μηδίκη... ἡ αὐτὴ δὲ τρίφυλλος λέγεται. Diosc. 1, 27.
 
-*) Ael. de nat. an. 15, 7: [GREEK].
+*) Ael. de nat. an. 15, 7: Ὕεται ἡ Ἰνδῶν γῆ διὰ τοῦ ἦρος μέλιτι ὑγρῷ... ὅπερ οὖν ἐμπῖπτον ταὶς πόαις καὶ ταῖς τῶν ἑλείων καλάμων κόμαις νομὰς τοῖς βουσὶ καὶ τοῖς προβάτοις παρέχει θαυμαστὰς κ. τ. λ.
 
 *) Vgl. Mannhardt, German. Mythen S. 424, 471.
 
@@ -568,29 +587,35 @@ womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götter
 
 **Der Honig als Speise, berauschender Trank, Salbe und Reinigungsmittel.**
 
-Schon seiner natürlichen Beschaffenheit nach lässt sich der Honig ebenso wohl als Speise wie als Getränk auffassen --- weshalb Porphyr. de antro n. 15 ihn [GREEK] und [GREEK] zugleich nennt --- daher er einerseits als Flüssigkeit bezeichnet* anderseits mit den Verben des Essens verbunden wird, welche sonst nur von konsistenter Nahrung ([GREEK] Schol. Il. _T_ 352) gebraucht werden.* Und zwar verzehrte man den Honig teils rein, was namentlich außer von Kindern* auch von den Pythagoreern und von Demokritos* berichtet wird, teils unter andere Speisen, vor allen Dingen unter das süße Gebäck, gemischt, das ohne Honig nicht denkbar war, da derselbe vollständig die Stelle unseres Zuckers vertrat.*
+Schon seiner natürlichen Beschaffenheit nach lässt sich der Honig ebenso wohl als Speise wie als Getränk auffassen --- weshalb Porphyr. de antro n. 15 ihn βόσις und πόσις zugleich nennt --- daher er einerseits als Flüssigkeit bezeichnet* anderseits mit den Verben des Essens verbunden wird, welche sonst nur von konsistenter Nahrung (ξηρὰ τροφή Schol. Il. _T_ 352) gebraucht werden.* Und zwar verzehrte man den Honig teils rein, was namentlich außer von Kindern* auch von den Pythagoreern und von Demokritos* berichtet wird, teils unter andere Speisen, vor allen Dingen unter das süße Gebäck, gemischt, das ohne Honig nicht denkbar war, da derselbe vollständig die Stelle unseres Zuckers vertrat.*
 
-*) Aristot. de anim. hist. 5, 22, 5 (ed. Didot. 3, 97, 19): [GREEK] ib. Probl. anecd. 3, 21 (ed. Didot. 4, 328, 36): [GREEK]. Ib. 3, 22 (ed. Didot 4, 328, 40) wird der Honig zu den [GREEK] gerechnet: [GREEK]. Plin. h. n. 11, 31 nennt den Honig _saliva_ und _succus_. ib. 32: Est autem initio mel ut aqua dilutum... vicesimo die crassescit... Sorbetur optimum et minime fronde infectum e quercus, tiliae, arundinum foliis.
+*) Aristot. de anim. hist. 5, 22, 5 (ed. Didot. 3, 97, 19): Συνίσταται δὲ τὸ μέλι πεττόμενον · ἐξ ἀρχῆς γὰρ οἷον ὕδωρ γίνεται, καὶ
+ἐφ᾽ ἡμέρας τινὰς ὑγρόν ἐστι... ἐν εἴκοσι δὲ μάλιστα συνίσταται. ib. Probl. anecd. 3, 21 (ed. Didot. 4, 328, 36): τὸ δὲ μέλι πάντων βαρύτατον καὶ ὑγρότατον τῶν ὑγρῶν. Ib. 3, 22 (ed. Didot 4, 328, 40) wird der Honig zu den ξηρά gerechnet: ξηρὸν τῇ φύσει ἐστίν (σημεῖον δὲ ὅτι ἑψόμενον παγύτερον γίνεται. Plin. h. n. 11, 31 nennt den Honig _saliva_ und _succus_. ib. 32: Est autem initio mel ut aqua dilutum... vicesimo die crassescit... Sorbetur optimum et minime fronde infectum e quercus, tiliae, arundinum foliis.
 
-*) Xen. Anab. 4, 8, 20: [GREEK]. Geopon. 15, 7, 3: [GREEK] (vgl. oben Aristot. Probl. anecd. 3, 22). ib. [GREEK]. Hom. hy. in Merc. 560: [GREEK} Kallim. hy. in Jov. 50: [GREEK]. Sprüche Salom. 24, 13: Iss, mein Sohn, Honig, denn es ist gut und Honigseim ist süß in deinem Halse.
+*) Xen. Anab. 4, 8, 20: τῶν κηρίων ὅσοι ἔφαγον. Geopon. 15, 7, 3: πολλῷ δὲ τῷ χρόνῳ παντὸς μέλιτος ξηραινομένου (vgl. oben Aristot. Probl. anecd. 3, 22). ib. τὸ δὲ ἄριστον [μέλι] ἔσθιε ὠμόν. Hom. hy. in Merc. 560: ἐδηδυῖαι μέλι χλωρόν Kallim. hy. in Jov. 50: γλυκὺ κηρίον ἔβρως. Hippocr. 2, 424 ed. Kühn: τὸ μέλι... ἐσθιόμενον... καὶ τρέφει καὶ εὔχροιαν παρέχει. Sprüche Salom. 24, 13: Iss, mein Sohn, Honig, denn es ist gut und Honigseim ist süß in deinem Halse.
 
 *) Schneider b. Böckh. ad. Pindar. Ol. 6, 46. K. Fr. Hermann, Privatalt. 33, 9.
 
-*) Ath. 2, 46 _e_ ff.: [GREEK]. Geopon. 15, 7: [GREEK]. Galen. 6, 742 ed. K: [GREEK].
+*) Ath. 2, 46 _e_ ff.: ἔχαιρε δὲ ὁ Δημόκριτος ἀεὶ τῷ μέλιτι... καὶ τῶν Πυθαγορικῶν δὲ τροφὴ ἦν ἄρτος μετὰ μέλιτος, ὥς φησιν Ἀριστόξενος... Λύκος δὲ πολυχρονίους φησὶν εἶναι τοὺς Κυρνίους... διὰ τὸ μέλιτι ἀεὶ χρῆσθαι. Geopon. 15, 7: οἱ οὖν ἐν γήρᾳ μέλιτι ...τρεφόμενοι ἐπὶ πλεῖστον βιοῦσι. Galen. 6, 742 ed. K: γέρουσι μὲν καὶ ὅλως ψυχραῖς τοῦ σώματος κράσεσιν [τὸ μέλι] ἐπιτήδειον εἶναι.
 
 *) Vgl. K. Fr. Hermann, Gr. Privatalterth. 24, 22. Marquardt, Röm. Privatalt. 2, 75.
 
 Wichtiger noch ist in diesem Zusammenhange die namentlich von Victor Hehn (Kulturpflanzen u. Haustiere 2 S. 134) hervorgehobene Tatsache, dass der aus der Mischung von Honig und Wasser gewonnene Meth das älteste berauschende Getränk der Griechen bildete, welches bereits vor der Einführung des Weinbaues genossen wurde. Die Zeugnisse, welche für den Gebrauch des Meths im ältesten Hellas sprechen, sind kurz folgende.
 
-Erstens die Etymologie des Wortes [GREEK]. Dasselbe bezeichnet zwar in historischer Zeit, in welcher nur der Wein als berauschendes Getränk genossen wurde, nur so viel wie [GREEK] doch muss es, wie Sanskr. _madhu_ = süße Speise, Meth, Honig, Lithauisch _medûs_ Honig, _midùs_ Meth, Altpreussisch _meddo_ Meth, Kirchenslavisch _medu_ Honig, Wein, Althochd. _mëtu_ Meth, [GREEK] trunken sein* beweisen, ursprünglich die Bedeutung eines berauschenden Honigtranks gehabt haben. Hierzu kommt noch, dass einzelne Spuren eines solchen Honigmeths sich wirklich noch bis in die historische Zeit hinein erhalten haben.
+Erstens die Etymologie des Wortes μέθυ. Dasselbe bezeichnet zwar in historischer Zeit, in welcher nur der Wein als berauschendes Getränk genossen wurde, nur so viel wie οἶνος, doch muss es, wie Sanskr. _madhu_ = süße Speise, Meth, Honig, Lithauisch _medûs_ Honig, _midùs_ Meth, Altpreussisch _meddo_ Meth, Kirchenslavisch _medu_ Honig, Wein, Althochd. _mëtu_ Meth, μεθύω trunken sein* beweisen, ursprünglich die Bedeutung eines berauschenden Honigtranks gehabt haben. Hierzu kommt noch, dass einzelne Spuren eines solchen Honigmeths sich wirklich noch bis in die historische Zeit hinein erhalten haben.
 
 *) Vgl. Fick, Vrgl. Wörterb. 2 S. 146.
 
-Eine deutliche Ahnung von dieser Tatsache scheint noch Plutarch gehabt zu haben, wenn er Q. Symp. 4, 6, 2 sagt: [GREEK]. Außerdem kommen als faktisches Zeugnis die Verse aus der Thebais des Antimachos in Betracht, welche uns Athenaios 468 _a_ aufbewahrt hat:
+Eine deutliche Ahnung von dieser Tatsache scheint noch Plutarch gehabt zu haben, wenn er Q. Symp. 4, 6, 2 sagt: καὶ μέλι σπονδὴ ἦν καὶ μέθυ πρὶν ἄμπελον φανῆναι. Außerdem kommen als faktisches Zeugnis die Verse aus der Thebais des Antimachos in Betracht, welche uns Athenaios 468 _a_ aufbewahrt hat:
 
-[GREEK].
+...ἐν μὲν ὕδωρ, ἐν δ᾽ ἀσκηθὲς μέλι χεῦεν  
+ἀργυρέῳ κρητῆρι, περιφραδέως κερόωντες ·  
+νώμησαν δὲ δέπαστρα θοῶς βασιλεῦσιν Ἀχαιῶν κ. τ. λ.  
+καὶ τοῖς ἑξῆς δέ φησι  
+καὶ χρύσεια δέπαστρα καὶ ἀσκηθὲς κελέβειον  
+ἔμπλειον μέλιτος, τό ῥά οἱ προφερέστερον εἴη.
 
-Wir ersehen daraus, dass man in ältester Zeit den Meth aus einem Gemisch von Honig und Wasser herstellte, wie es noch Plinius h. n. 14, 113 zur Bereitung des sogenannten [GREEK] empfiehlt: Fit vinum et ex aqua ac melle tantum. Quinquennio ad hoc servari caelestem [aquam] iubent; aliqui prudentiores statim ad tertias partes decoquunt et tertiam mellis veteris adiciunt; deinde 90 diebus Canis ortu in Sole habent. Hoc vocatur hydromeli et vetustate saporem vini assequitur, nusquam laudatius quam in Phrygia.* Ähnlich heißt es Geopon. 8, 28: [GREEK]. Dieser Meth muss eine recht berauschende Wirkung gehabt haben; in einem interessanten Fragment des Orpheus, welches uns Porphyr. de a. nymph. p. 118 Barnes. (= Orphica ed. G. Hermann p. 500) aufbewahrt hat, wird uns erzählt, wie Zeus dem Kronos nachstellt, nachdem er ihn mittelst eines Honigtranks berauscht hat: [GREEK].
+Wir ersehen daraus, dass man in ältester Zeit den Meth aus einem Gemisch von Honig und Wasser herstellte, wie es noch Plinius h. n. 14, 113 zur Bereitung des sogenannten ὑδρόμελι empfiehlt: Fit vinum et ex aqua ac melle tantum. Quinquennio ad hoc servari caelestem [aquam] iubent; aliqui prudentiores statim ad tertias partes decoquunt et tertiam mellis veteris adiciunt; deinde 90 diebus Canis ortu in Sole habent. Hoc vocatur hydromeli et vetustate saporem vini assequitur, nusquam laudatius quam in Phrygia.* Ähnlich heißt es Geopon. 8, 28: [GREEK]. Dieser Meth muss eine recht berauschende Wirkung gehabt haben; in einem interessanten Fragment des Orpheus, welches uns Porphyr. de a. nymph. p. 118 Barnes. (= Orphica ed. G. Hermann p. 500) aufbewahrt hat, wird uns erzählt, wie Zeus dem Kronos nachstellt, nachdem er ihn mittelst eines Honigtranks berauscht hat: [GREEK].
 
 [GREEK].
 
