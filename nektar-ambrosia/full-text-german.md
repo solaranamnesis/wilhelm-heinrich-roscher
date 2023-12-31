@@ -665,33 +665,44 @@ Die ältesten Belege für diesen Gebrauch der Ambrosia finden sich schon in der 
 τοῦ καὶ κινυμένοιο Διὸς κατὰ χαλκοβατὲς δῶ  
 ἔμπης ἐς γαῖάν τε καὶ οὐρανὸν ἵκετ᾽ ἀυτμή.
 
-Wie mir scheint müssen wir an dieser Stelle zwei Arten von Ambrosia annehmen, deren erste der Hera als Seife (σμῆγμα, ῥύμμα) diente, während unter dem ἔλαιον ἀμβρόσιον eine ölige Salbe (ἐλαιῶδες μύρον vgl. unten Anm. 87) zu verstehen ist, welche hauptsächlich den Zweck hatte dem Körper einen angenehmen Wohlgeruch und der Haut einen besonderen Glanz und größere Geschmeidigkeit zu verleihen. So entspricht die Handlung der Hera wohl am besten den beiden Manipulationen, welche Homer sonst den Menschen zuschreibt, ehe sie sich zum Mahle begeben, dem λοέσσασθαι und ἀλείψασθαι (Il. 10, 578. Od. 6, 96).* Freilich wäre es auch möglich die Begriffe ἀμβροσίη und ἔλαιον ἀμβρόσιον in diesem Falle für identisch zu halten, und anzunehmen, dass die Reinigung des Körpers eben in der Salbung mit ambrosischem Öle bestand, weil sich viele schon mit der bloßen Salbung begnügten und auf eine vorherige Abwaschung mittelst eines ῥύμμα (Reinigungsmittels) verzichteten (vgl. Hermann, Gr. Privatalt. 2 § 28, 4). In letzterem Falle würde also ἔλαιον ἀμβρόσιον ebenso wie anderwärts εἶδαρ ἄμβροτον oder ἀμβρόσιον für ἀμβροσίη stehen (S. 24). Der ersteren Auffassung scheint sich der Scholiast zu unserer Stelle angeschlossen zu haben, wenn er bemerkt: [GREEK] (Od. 4, 445) [GREEK] (Il. 19, 38). [GREEK].*
+Wie mir scheint müssen wir an dieser Stelle zwei Arten von Ambrosia annehmen, deren erste der Hera als Seife (σμῆγμα, ῥύμμα) diente, während unter dem ἔλαιον ἀμβρόσιον eine ölige Salbe (ἐλαιῶδες μύρον vgl. unten Anm. 87) zu verstehen ist, welche hauptsächlich den Zweck hatte dem Körper einen angenehmen Wohlgeruch und der Haut einen besonderen Glanz und größere Geschmeidigkeit zu verleihen. So entspricht die Handlung der Hera wohl am besten den beiden Manipulationen, welche Homer sonst den Menschen zuschreibt, ehe sie sich zum Mahle begeben, dem λοέσσασθαι und ἀλείψασθαι (Il. 10, 578. Od. 6, 96).* Freilich wäre es auch möglich die Begriffe ἀμβροσίη und ἔλαιον ἀμβρόσιον in diesem Falle für identisch zu halten, und anzunehmen, dass die Reinigung des Körpers eben in der Salbung mit ambrosischem Öle bestand, weil sich viele schon mit der bloßen Salbung begnügten und auf eine vorherige Abwaschung mittelst eines ῥύμμα (Reinigungsmittels) verzichteten (vgl. Hermann, Gr. Privatalt. 2 § 28, 4). In letzterem Falle würde also ἔλαιον ἀμβρόσιον ebenso wie anderwärts εἶδαρ ἄμβροτον oder ἀμβρόσιον für ἀμβροσίη stehen (S. 24). Der ersteren Auffassung scheint sich der Scholiast zu unserer Stelle angeschlossen zu haben, wenn er bemerkt: ἀμβροσίῃ · νῦν μὲν ὡς ἄλειμμα, ἄλλοτε δὲ ὡς ξηρὰν τροφήν, ἄλλοτε δὲ ὡς ἔλαιον · "ἀμβροσίην ὑπὸ ῥῖνα" (Od. 4, 445) "Πατρόκλῳ δ᾽ αὖτ᾽ ἀμβροσίην" (Il. 19, 38). ἡ διπλῆ, ὅτι ἐκ τούτου τοῦ τόπου πλανηθέντες τινὲς διέλαβον τὴν ἀμβροσίαν εἷναι ὑγρὰν τροφήν.*
 
-*) Vgl. auch die übereinstimmenden Verse Od. [GREEK] 364 u. hy. in Ven. 61: [GREEK], wo, wie es scheint, [GREEK] und [GREEK] scharf zu scheiden ist. Od. [GREEK] 44 f. wird von dem Leichnam des Achilleus gesagt: [GREEK].
+*) Vgl. auch die übereinstimmenden Verse Od. θ 364 u. hy. in Ven. 61: ἔνθἁ δέ μιν Χάριτες λοῦσαν καὶ χρῖσαν ἐλαέῳ || ἀμβρότῳ, οἷα θεοὺς ἐπενήνοθεν αἰὲν ἐόντας, wo, wie es scheint, λούειν und χρίειν scharf zu scheiden ist. Od. ω 44 f. wird von dem Leichnam des Achilleus gesagt: κάτθεμεν ἐν λεχέεσσι, καθήραντες χρόα καλόν || ὕδατί τε λιαρῷ καὶ ἀλείφατι.
 
-*) Noch genauer sagt Eustath. p. 974, 49 f.: [GREEK]. Im Folgenden unterscheidet er davon das [GREEK], welches er als ein [GREEK] auffasst. Ebenso erklärt der Scholiast zu Ap. Rh. 4, 871 den Ausdruck [GREEK], den der Dichter von der Salbung des kleinen Achilleus gebraucht: [GREEK]. Wie dickflüssig oder salbenähnlich die Öle sein konnten, er sieht man übrigens aus dem Ausdruck [GREEK], den Diosk. 1, 37 so erklärt: [GREEK]. Vgl. auch Plin. h. n. 15, 7 u. 23. 50. Isid. Or. 17, 7, 11.
+*) Noch genauer sagt Eustath. p. 974, 49 f.: ἡ ἀμβροσία... ἐνταῦθα... ὡς σμῆγμά τι παραλαμβάνεται, καθάπερ τὸ κάλλος ἀλλαχοῦ. Im Folgenden unterscheidet er davon das ἀμβρ. ἔλαιον, welches er als ein ἐλαιῶδες μύρον auffasst. Ebenso erklärt der Scholiast zu Ap. Rh. 4, 871 den Ausdruck ἀμβροσίῃ χρίεσκεν, den der Dichter von der Salbung des kleinen Achilleus gebraucht: θειοτάτῳ ἐλαίῳ περιέχριε τὸ ἁπαλὸν σῶμα αὐτοῦ. Wie dickflüssig oder salbenähnlich die Öle sein konnten, er sieht man übrigens aus dem Ausdruck ἐλαιόμελι, den Diosk. 1, 37 so erklärt: κατὰ Παλμυρᾶ τῆς Συρίας ἔκ τινος στελέχους ἔλαιον μέλιτος παχύτερον ῥεῖ γλυκὺ τῇ γεύσει. Vgl. auch Plin. h. n. 15, 7 u. 23. 50. Isid. Or. 17, 7, 11.
 
-Dieselbe Bedeutung wie hier die Ambrosia hat Od. [GREEK] 192 das [GREEK], womit Athene das schöne Antlitz der Penelope reinigt:
+Dieselbe Bedeutung wie hier die Ambrosia hat Od. σ 192 das κάλλος ἀμβρόσιον, womit Athene das schöne Antlitz der Penelope reinigt:
 
-[GREEK]...*
+κάλλει μέν οἰ πρῶτα προσώπατα καλὰ κάθηρεν  
+ἀμβροσίῳ, οἴῳπερ ἐυστέφανος Κυθέρεια  
+χρίεται...*
 
-Ähnlich wird das Wort auch Il. [GREEK] 667 f. gebraucht, wo Zeus dem Apollon befiehlt den blutigen Leichnam des Patroklos erst im Skamander zu waschen und alsdann mit Ambrosia zu salben:
+Ähnlich wird das Wort auch Il. Π 667 f. gebraucht, wo Zeus dem Apollon befiehlt den blutigen Leichnam des Patroklos erst im Skamander zu waschen und alsdann mit Ambrosia zu salben:
 
-[GREEK]...
+εἰ δ᾽ ἄγε νῦν, φίλε Φοῖβε, κελαινεφὲς αἷμα κάθηρον  
+ἐλθὼν ἐκ βελέων Σαρπηδόνα, καί μιν ἔπειτα  
+πολλὸν ἀποπρὸ φέρων λοῦσον ποταμοῖο ῥοῇσιν  
+χρῖσόν τ᾽ ἀμβροσίῃ...
 
 Diese ambrosische Salbe dient auch gelegentlich ebenso wie der Genuss der ambrosischen Speise dazu, Menschen unsterblich, d. i. zu Göttern zu machen. So heißt es Hy. in Cer. 234 vom kleinen Demophoon, den Demeter unsterblich machen will:
 
-[GREEK].
+Δημοφόωνθ᾽, ὃν ἔτικτεν ἐΰζωνος Μετάνειρα,  
+ἔτρεφεν ἐν μεγάροις · ὁ δ᾽ ἀέξετο δαίμονι ἶσος  
+...  
+χρίεσκ᾽ ἀμβοοσίῃ, ὡσεὶ θεοῦ ἐκγεγαῶτα.
 
 Genau dasselbe erzählen Apollonios Rhodios und Apollodoros* von der Thetis, als sie den Achilles unsterblich zu machen gedachte.
 
 Apoll. Rh. 4, 869:
 
-[GREEK].
+ἢ μὲν γὰρ βροτέας αἰεὶ περὶ σάρκας ἔδαιεν  
+νύκτα διὰ μέσσην φλογμῷ πυρός · ἥματα δ᾽ αὖτε  
+ἀμβροσίῃ χρίεσκε τέρεν δέμας, ὄφρα πέλοιτο  
+ἀθάνατος, καί οἱ στυγερὸν χροῒ γῆρας ἀλάλκοι.
 
-*) Schol. z. d. St. [GREEK].
+*) Schol. z. d. St. Κάλλεῒ νῦν τὰ μύρα. Μυθικῶς θείῳ τινὶ χρίσματι.
 
-*) Vgl. Apollod. bibl. 3, 13, 6: [GREEK].
+*) Vgl. Apollod. bibl. 3, 13, 6: Θέτις... ἀθάνατον θέλουσα ποιῆσαι τοῦτο [τὸ βρέφος] κρύφα Πηλέως εἰς τὸ πῦρ ἐγκρυβοῦσα τῆς νυκτὸς ἔφθειρεν ὃ ἦν αὐτῳ θνητὸν πατρῷον, μεθ᾽ ἡμέραν δὲ ἔχριεν ἀμβροσίᾳ.
 
 Ebenso dachte man sich endlich Aphrodite den Adonis und Kyrene den Aristaios mit Nektar oder Ambrosia salbend.* Auch in letzterem Falle hat man sich die Ambrosia als eine Art Oel zu denken, weil es der Kyrene darauf ankommt ihren Sohn für den bevorstehenden Ringkampf mit dem Proteus zu stärken und vorzubereiten (vgl. Hermann, Gr. Privatalt. 2
 § 37, 19). Auch aus diesen Stellen geht veieder unwiderleglich hervor, dass man sich unter Ambrosia keineswegs immer eine feste Substanz zu denken hat.
@@ -702,7 +713,7 @@ Ebenso dachte man sich endlich Aphrodite den Adonis und Kyrene den Aristaios mit
 
 **Süßigkeit, Lieblichkeit and Wohlgeruch des Honigs.**
 
-Das ganze Altertum kannte keine süssere und lieblichere Speise als den Honig, wie aus mannigfachen Zeugnissen erhellt, namentlich aber aus der Tatsache, dass man sich die Menschen des goldenen glückseligen Zeitalters vorzugsweise von Honig lebend dachte.* Ferner glaubte man in der ältesten Zeit, dass er die Nahrung und der aus ihm bereitete berauschende Meth den Trank der seligen Götter bildete.* Noch Galenos* nennt ihn [GREEK] und fügt hinzu [GREEK]. Darum glaubten Dichter wie Ibykos die Lieblichkeit des Ambrosiagenusses nicht besser versinnlichen zu können als durch den Vergleich mit dem Honig, als dessen höhere Potenz sie die Götterspeise auffassen.* In besonders begeisterten Worten preist der sonst so nüchterne Plinius den Honig, wenn er sagt: (h. n. 11, 30): Sive ille est caeli sudor, sive quaedam siderum saliva, sive purgantis se aëris succus, utinamque esset et purus ac liquidus et suae naturae, qualis defluit primo; nunc vero et anta cadens altitudine multumque dum venit sordescens et obvio terrae halitu infectus, praeterea e fronde ac pabulis potus et in uterculos congestus apum (ore enim cum vomunt) ad haec succo florum corruptus et alveis maceratus totiesque mutatus magnam tamen caelestis naturae voluptatem affert. Die gewöhnlichsten Epitheta des Honigs sind daher [GREEK], _dulcis_, [GREEK].* Außerordentlich häufig sind Redensarten und Ausdrücke, welchen die übertragene Bedeutung von [GREEK] (mel) = Süßigkeit, Lieblichkeit zu Grunde liegt.* So gebrauchte man u. A. im Lateinischen mel zur Bezeichnung eines innig geliebten Menschen* und verglich überhaupt die Lieblichkeit der Rede, des Gesanges u. s. w. mit dem Honig.* Ähnliche Vergleiche finden sich bekanntlich massenhaft in der deutschen und hebräischen Literatur.*
+Das ganze Altertum kannte keine süssere und lieblichere Speise als den Honig, wie aus mannigfachen Zeugnissen erhellt, namentlich aber aus der Tatsache, dass man sich die Menschen des goldenen glückseligen Zeitalters vorzugsweise von Honig lebend dachte.* Ferner glaubte man in der ältesten Zeit, dass er die Nahrung und der aus ihm bereitete berauschende Meth den Trank der seligen Götter bildete.* Noch Galenos* nennt ihn τὸ ἄριστον γλυκύτατόν τε καὶ δριμύτατον τῶν ἄλλων ἁπάντων und fügt hinzu ἐπειδὴ τὸ γένος αὐτοῦ τὴν ἐν γλυκύτητι τοιαύτην ὑπεροχὴν ἔχειν φαίνεται. Darum glaubten Dichter wie Ibykos die Lieblichkeit des Ambrosiagenusses nicht besser versinnlichen zu können als durch den Vergleich mit dem Honig, als dessen höhere Potenz sie die Götterspeise auffassen.* In besonders begeisterten Worten preist der sonst so nüchterne Plinius den Honig, wenn er sagt: (h. n. 11, 30): Sive ille est caeli sudor, sive quaedam siderum saliva, sive purgantis se aëris succus, utinamque esset et purus ac liquidus et suae naturae, qualis defluit primo; nunc vero et anta cadens altitudine multumque dum venit sordescens et obvio terrae halitu infectus, praeterea e fronde ac pabulis potus et in uterculos congestus apum (ore enim cum vomunt) ad haec succo florum corruptus et alveis maceratus totiesque mutatus magnam tamen caelestis naturae voluptatem affert. Die gewöhnlichsten Epitheta des Honigs sind daher [GREEK], _dulcis_, [GREEK].* Außerordentlich häufig sind Redensarten und Ausdrücke, welchen die übertragene Bedeutung von [GREEK] (mel) = Süßigkeit, Lieblichkeit zu Grunde liegt.* So gebrauchte man u. A. im Lateinischen mel zur Bezeichnung eines innig geliebten Menschen* und verglich überhaupt die Lieblichkeit der Rede, des Gesanges u. s. w. mit dem Honig.* Ähnliche Vergleiche finden sich bekanntlich massenhaft in der deutschen und hebräischen Literatur.*
 
 *) Nossis in der Anth. Gr. 6, 275: [GREEK]. Verg. Geo. 4, 413: Haec ait et liquidum ambrosiae diffundit odorem, || Quo totum nati corpus perduxit; at illi || Dulcis compositis apiravit crinibus aura, || Atque habilis membris venit vigor. Ov. M. 14, 606.
 
