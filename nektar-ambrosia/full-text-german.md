@@ -733,11 +733,11 @@ Das ganze Altertum kannte keine süssere und lieblichere Speise als den Honig, w
 
 Da endlich der Honig in der Regel das Arom der Pflanze bewahrt, von deren Blüten er gesammelt wird, so wird häufig auch sein Wohlgeruch hervorgehoben.* Besonders hoch scheint man den Geruch des vom Thymian gesammelten Honigs geschätzt zu haben.*
 
-*) Hom. 2. 1, 249: [GREEK]. Hes. Theog. 81: [GREEK]. Theoor. Id. 20, 27: [GREEK]. ib. 8, 83: [GREEK]. ib. 3, 54: [GREEK]. Hor. ep. 1, 19, 44: poetica mella. ib. Sat. 2, 6, 32: Hoc iuvat et melli est. Plaut. Cas. 2, 8, 21: mel mihi videor lingere u. s. w.
+*) Hom. 2. 1, 249: τοῦ καὶ ἀπὸ γλώσσης μέλιτος γλυκίων ῥέεν αὐδή. Hes. Theog. 81: ὄντικα τιμήσουσι Διὸς κοῦραι μεγάλοιο || τῷ μὲν ἐπὶ γλώσσῃ γλυκερὴν χείουσιν ἐέρσην. Theoor. Id. 20, 27: φωνὰ γλυκερωτέρα ἢ μέλι. ib. 8, 83: κρέσσον μελπομένω τευ ἀκουέμεν ἢ μέλι λείχειν. ib. 3, 54: ὡς μέλι τοι γλυκὺ τοῦτο κατὰ βρόχθοιο γένοιτο. Hor. ep. 1, 19, 44: poetica mella. ib. Sat. 2, 6, 32: Hoc iuvat et melli est. Plaut. Cas. 2, 8, 21: mel mihi videor lingere u. s. w.
 
 *) Sprichw. Salom. 16, 24. Hohel. 4, 11. Ps. 119. 103. Grimm, Deutsches Wörterb. unter Honig, Honigmonat, Honigrede, Honigschlummer, Honigseim, Honigstimme u. s. w.
 
-*) Aristot. mir. ausc. 16 (= 4, 77, 27 ed. Didot). Diosc. 2, 101. Galen. de antid. 1, 2. Vol. 2, p. 425 ed. B. Id. Method. cur. l. 7, p. 109. Vol. 4, ed. Bas. Id. de sanit. tuenda l. 4. p. 620. Vol. 4. Plin. n. h. 11, 15. Geopon. 15, 7, 2: [GREEK] und die Ausleger zu dieser Stelle.
+*) Aristot. mir. ausc. 16 (= 4, 77, 27 ed. Didot). Diosc. 2, 101. Galen. de antid. 1, 2. Vol. 2, p. 425 ed. B. Id. Method. cur. l. 7, p. 109. Vol. 4, ed. Bas. Id. de sanit. tuenda l. 4. p. 620. Vol. 4. Plin. n. h. 11, 15. Geopon. 15, 7, 2: καὶ προσέστω τὸ εὐῶδες und die Ausleger zu dieser Stelle.
 
 *) Ov. Met. 15, 80: Mella thymi redolentia florem. Verg. Geo. 4, 169: fragrantia mella thymo redolent. Coripp. l. 3: fragrantia mella. Galen. 10, p. 475. 477 ed. Kühn.
 
@@ -745,41 +745,47 @@ Da endlich der Honig in der Regel das Arom der Pflanze bewahrt, von deren Blüte
 
 **Süßigkeit, Lieblichkeit und Wohlgeruch der Ambrosia und des Nektars.**
 
-Genau dieselben Epitheta wie beim Honig lassen sich auch für die Ambrosia und den Nektar nachweisen. So ist öfters von [GREEK] von [GREEK] oder [GREEK], von ambrosia dulcis die Rede,* ja es wird sogar von Ibykos, wie wir sahen, die Ambrosia hinsichtlich ihrer Süßigkeit geradezu als eine höhere Potenz des Honigs aufgefasst.* Wenn [GREEK] wie Curtius Grdz. d. gr. Etym. 5 184 vermutet, wirklich mit [GREEK] Leckerei verwandt ist, so scheint man auch den Göttertrank ursprünglich nach seiner Süßigkeit und Lieblichkeit benannt zu haben. Wie [GREEK] in vielen Kompositis in der übertragenen Bedeutung von süß, lieblich erscheint, so auch [GREEK] und [GREEK] sowohl an und für sich als auch in den beiden Adjektiven [GREEK], Lat. _ambrosius, nectareus_.*
+Genau dieselben Epitheta wie beim Honig lassen sich auch für die Ambrosia und den Nektar nachweisen. So ist öfters von ἀμβροσίη ἐρατεινή, von νέκταρ γλυκύ oder ἡδύποτον, von ambrosia dulcis die Rede,* ja es wird sogar von Ibykos, wie wir sahen, die Ambrosia hinsichtlich ihrer Süßigkeit geradezu als eine höhere Potenz des Honigs aufgefasst.* Wenn νέκταρ wie Curtius Grdz. d. gr. Etym. 5 184 vermutet, wirklich mit νώγαλον Leckerei verwandt ist, so scheint man auch den Göttertrank ursprünglich nach seiner Süßigkeit und Lieblichkeit benannt zu haben. Wie μέλι in vielen Kompositis in der übertragenen Bedeutung von süß, lieblich erscheint, so auch ἀμβροσία und νέκταρ sowohl an und für sich als auch in den beiden Adjektiven ἀμβρόσιος, νεκτάρεος, Lat. _ambrosius, nectareus_.*
 
-*) [GREEK]: Il. _T_ 347. 353. Hy. in Apoll. 124. Hesiod. Theog. 642. [GREEK] Il. _A_ 598. Theocr. Id. 7, 82. [GREEK] Hy. in Cer. 48. Suaviolum dulci dulcius ambrosia Catull. 99, 2. Ov. Met. 14, 606 ambrosia cum dulci nectare mixta.
+*) ἀμβροσίη ἐρατεινή: Il. _T_ 347. 353. Hy. in Apoll. 124. Hesiod. Theog. 642. γλυκὺ νέκταρ Il. _A_ 598. Theocr. Id. 7, 82. νέκταρ ἡδύποτον Hy. in Cer. 48. Suaviolum dulci dulcius ambrosia Catull. 99, 2. Ov. Met. 14, 606 ambrosia cum dulci nectare mixta.
 
 *) Ibykos b. Athen. 39 b. Vgl. oben Anm. 94.
 
-*) Vgl. z. B. [GREEK] = reizendes Gewand 2. [GREEK] 385 u. Hentze z. d. St. [GREEK] Il. [GREEK] 25. [GREEK] Apoll. Rh. 3, 1009. [GREEK] Pind. fr. 46. Das lat. _nectar_ bezeichnet bildlich alles Süsse und Angenehme z. B. Honig, Verg. Geo. 4, 164. Aen. 1, 433. Wein Stat. silv. 2, 2, 99. Milch, Ov. Met. 15, 116. Wohlgeruch Lucr. 2, 847. Süßigkeit der Lippen Hor. ca. 1, 13, 16. Lieblickeit der Dichtkunst: Pers. prol. 14, _nectareus_ = lieblich vom Weine: Mart. 13, 108. App. Met. 5, p. 160, 9. vom Quellwasser: Claudian. nupt. Hon. 209. Ziemlich dieselbe Bedeutung scheint oft [GREEK], lat. _ambrosius_ zu haben, z. B. wenn ersteres Wort vom Wasser, vom Schlaf (vgl. [GREEK] Mosch. 2, 3 u. [GREEK] Il. _B_ 34. Bacchyl. b. Stob. flor. 55, 3, 5), von den Schleiern, Gewändern, Haaren der Götter gebraucht wird. In Betreff verschiedener Gerichte und Getränke, welche wegen ihres Wohlgeschmacks mit Nektar und Ambrosia verglichen und geradezu so genannt wurden, vgl. Bergk in Fleckeisens Jahrb. 1860. S. 388 ff.
+*) Vgl. z. B. νεκτάρεον ἑανόν = reizendes Gewand 2. Γ 385 u. Hentze z. d. St. νεκτάρεος χιτών Il. Σ 25. νεκτάρεον μείδησε Apoll. Rh. 3, 1009. νεκτάρεα φυτά Pind. fr. 46. Das lat. _nectar_ bezeichnet bildlich alles Süsse und Angenehme z. B. Honig, Verg. Geo. 4, 164. Aen. 1, 433. Wein Stat. silv. 2, 2, 99. Milch, Ov. Met. 15, 116. Wohlgeruch Lucr. 2, 847. Süßigkeit der Lippen Hor. ca. 1, 13, 16. Lieblickeit der Dichtkunst: Pers. prol. 14, _nectareus_ = lieblich vom Weine: Mart. 13, 108. App. Met. 5, p. 160, 9. vom Quellwasser: Claudian. nupt. Hon. 209. Ziemlich dieselbe Bedeutung scheint oft ἀμβρόσιος, lat. _ambrosius_ zu haben, z. B. wenn ersteres Wort vom Wasser, vom Schlaf (vgl. ὕπνος γλυκίων μέλιτος Mosch. 2, 3 u. ὕπνος μελίφρων Il. _B_ 34. Bacchyl. b. Stob. flor. 55, 3, 5), von den Schleiern, Gewändern, Haaren der Götter gebraucht wird. In Betreff verschiedener Gerichte und Getränke, welche wegen ihres Wohlgeschmacks mit Nektar und Ambrosia verglichen und geradezu so genannt wurden, vgl. Bergk in Fleckeisens Jahrb. 1860. S. 388 ff.
 
-Endlich galten auch Nektar und Ambrosia ebenso wie der Honig als besonders wohlriechend. Das älteste Zeugnis dafür findet sich Od. [GREEK] 445, wo von Eidothea erzählt wird, dass sie den üblen Geruch der Robbenfelle, in welche Odysseus und seine Gefährten bei der Überlistung des Proteus sich hüllten, durch wohlriechende Ambrosia vertrieben habe:
+Endlich galten auch Nektar und Ambrosia ebenso wie der Honig als besonders wohlriechend. Das älteste Zeugnis dafür findet sich Od. δ 445, wo von Eidothea erzählt wird, dass sie den üblen Geruch der Robbenfelle, in welche Odysseus und seine Gefährten bei der Überlistung des Proteus sich hüllten, durch wohlriechende Ambrosia vertrieben habe:
 
-[GREEK].*
+ἀμβροσίην* ὑπὸ ῥῖνα ἓκάστῳ θῆκε φέρουσα,  
+ἡδὺ μάλα πνείουσαν, ὅλεσσε δὲ κήτεος ὀδμήν.
 
-*) Schol. [GREEK].
+*) Schol. νῦν τὸ θεῖον καὶ εὐῶδες ἔλαιον.
 
 Außerdem kommen noch folgende Stellen in Betracht:
 
 Theogn. 5:
 
-[GREEK] (d. h. bei der Geburt Apollons).
+πᾶσα μὲν ἐπλήσθη Δῆλος ἀπειρεσίη  
+ὀδμῆς ἀμβροσίης (d. h. bei der Geburt Apollons).
 
 Ar. Ach. 196:
 
-[GREEK].
+αὗται μὲν ὄζουσ᾽ ἀμβροσίας καὶ νέκταρος.
 
 Philoxenos b. Ath. 409 e (= Bergk fr. Lyr. Gr. 2 p. 990):
 
-[GREEK].
+...ἔπειτα δὲ παῖδες νίπτρ᾽ ἔδοσαν κατὰ χειρῶν  
+...δίδοσαν δὲ χρίματα τ᾿ ἀμβροσίοδμα καὶ στεφάνους ἰοθαλέας.
 
 Nossis Anth. Gr. 6, 275:
 
-[GREEK] (Aphrodite) [GREEK].
+κεκρύφαλος... ἀδύ τε νέκταρος ὄζει,  
+τοῦ, τῷ καὶ τήνα (Aphrodite) καλὸν Ἄδωνα χρίει.
 
 Theokr. Id. 17, 28:
 
-[GREEK].
+τῷ [Ἡρακλεῖ] καὶ ἐπεὶ δαίτηθεν ἴοι κεκορημένος ἤδη  
+νέκταρος εὐόδμοιο φίλας ἐς δῶμ᾽ ἀλόχοιο,  
+τῷ μὲν τόξον ἔδωκεν ὑπωλένιόν τε φαρέτραν.
 
 Lucr. 2, 847:
 
