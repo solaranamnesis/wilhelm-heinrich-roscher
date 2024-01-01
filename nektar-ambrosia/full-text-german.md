@@ -1214,7 +1214,7 @@ Nem. 3, 74:
 Σὺν γάλακτι, κιρναμένα δ᾽ ἔερσ᾽ ἀμφέπει,  
 πόμ᾽ ἀοίδιμον Αἰολῇσιν ἐν πνοαῖσιν αὐλῶν.
 
-Dass hier κιρναμένα ἔερσα (vgl. oben Hesiod. Theog. 83 γλυκερὴ ἐέρση) wiederum den Honig [der Poesie] bezeichnet, sagt ausdrücklich der Scholiast z. d. St. mit den Worten: [ἡ δρόσος ἡ τοῦ μέλιτος κιρναμένη πρὸς τὸ γάλα ποιεῖ τὸ πόμα ἀοίδιμον καὶ τὸ ποίημα μιχθὲν αὐλοῖς γίνεται καὶ αὐτὸ θαυμάσιον.
+Dass hier κιρναμένα ἔερσα (vgl. oben Hesiod. Theog. 83 γλυκερὴ ἐέρση) wiederum den Honig [der Poesie] bezeichnet, sagt ausdrücklich der Scholiast z. d. St. mit den Worten: ἡ δρόσος ἡ τοῦ μέλιτος κιρναμένη πρὸς τὸ γάλα ποιεῖ τὸ πόμα ἀοίδιμον καὶ τὸ ποίημα μιχθὲν αὐλοῖς γίνεται καὶ αὐτὸ θαυμάσιον.
 
 Ol. 11, 101 vergleicht Pindar die Wirkung seines Gedichts auf die Bewohner von Lokroi mit einem Honigregen, welcher plötzlich auf die Stadt herabfällt:
 
