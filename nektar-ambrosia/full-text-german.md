@@ -1062,15 +1062,23 @@ Hierher gehört endlich auch die Sitte den Seelen der Abgeschiedenen Honigopfer 
 καίεο δ᾽ ἔν τ᾿ ἐσθῆτι θεῶν καὶ ἀλείφατι πολλῷ  
 καὶ μέλιτι γλυκερῷ.
 
-Als Odysseus in das Totenreich gelangt, um den Teiresias zu befragen, bringt er allen Toten eine Spende dar bestehend aus Honigtrank, Wein und Wasser (Od. λ 26. [GREEK]: Vgl. κ 518). Derselbe Brauch erhielt sich bis in die historische Zeit hinein, wie schon aus Eurip. Iph. Taurica erhellt.* Als Iphigenia den vermeintlichen Tod ihres einzigen Bruders beklagt, will sie ihm als Spende darbringen: 5. 160
+Als Odysseus in das Totenreich gelangt, um den Teiresias zu befragen, bringt er allen Toten eine Spende dar bestehend aus Honigtrank, Wein und Wasser (Od. λ 26. ἀμφ᾽ αὐτῷ δὲ χοὴν χεόμην πᾶσιν νεκύεσσιν, || πρῶτα μελικρήτῳ, μετέπειτα δὲ ἡ δέι οἴνῳ, || τὸ τρίτον αὖθ᾽ ὕδατι: Vgl. κ 518). Derselbe Brauch erhielt sich bis in die historische Zeit hinein, wie schon aus Eurip. Iph. Taurica erhellt.* Als Iphigenia den vermeintlichen Tod ihres einzigen Bruders beklagt, will sie ihm als Spende darbringen: 5. 160
 
-[GREEK].
+μέλλω κρατῆρά τε τὸν φθιμένων  
+ὑδραίνειν γαίας ἐν νώτοις,  
+πηγάς τ᾽ οὐρείων ἐκ μόσχων  
+Βάκχου τ᾽ οἰνηρὰς λοιβὰς  
+ξουθᾶν τε πόνημα μελισσᾶν,  
+ἃ νεκροῖς θελκτήρια κεῖται.
 
-*) Vgl. außerdem Aesch. Persae 607, wo als Totenspende ([GREEK]) angegeben wird: [GREEK]. Eurip. Or. 115: [GREEK].
+*) Vgl. außerdem Aesch. Persae 607, wo als Totenspende (νεκροῖσι μειλικτήρια) angegeben wird: βοός τ᾿ ἀφ᾽ ἀγνῆς λευκὸν εὔποτον γάλα, || τῆς τ ἀνθεμουργοῦ στάγμα, παμφαὲς μέλι, || λιβάσιν ὑδρηλαῖς παρθένου πηγῆς μέτα, || ἀκήρατόν τε μητρὸς ἀγρίας ἄπο || ποτὸν παλαιᾶς ἀμπέλου γάνος τόδε. Eurip. Or. 115: μελίκρατ᾽ ἄφες γάλακτος οἴνωπον τ᾽ ἄχνην.
 
 Später sagt sie ihrem Bruder zum Troste, sie werde ihm, wenn er den Opfertod erlitten, ein regelrechtes Leichenbegängnis nach hellenischer Sitte bereiten. 5. 632:
 
-[GREEK].
+πολύν τε γάρ σοι κόσμον ἐνθήσω τάφῳ,  
+ξανθῷ τ᾽ ἐλαίῳ σῶμα σὸν κατασβέδω,  
+καὶ τῆς οὐρείας ἀνθεμόρρυτον γάνος  
+ξουθῆς μελίσσης εἰς πυρᾶν βαλῶ σέθεν.
 
 Fragen wir nach der ursprünglichen Bedeutung des Honigs beim Totenopfer, so scheinen vorzugsweise zwei Gründe dafür maßgebend gewesen zu sein. Der eine von ihnen besteht wohl in der Anschauung, dass der Todte ein Heros oder ein Halbgott sei und deshalb dieselben Opfergaben wie ein Gott empfangen müsse.* Zweitens aber kommt hier die fast bei allen Naturvölkern herrschende Sitte in Betracht, den Toten solche Gegenstände und namentlich Nahrungsmittel mitzugeben, welche sie im Leben gebraucht hatten, und von denen man annahm, dass sie sie auch im Jenseits genießen würden (vgl. Tylor, Die Anfänge der Kultur, übers. von Spengel u. Poske 2, 29 ff. 1, 478 ff. Marquardt, Röm. Privatalt. 1, 368 f.). Da nun der Honig die süßeste und beliebteste Speise war, welche das Altertum kannte, so begreift sich leicht, dass man ihn vorzugsweise auf das Grab goss oder mit dem Toten auf dem Scheiterhaufen verbrannte. Eine ähnliche Bedeutung scheint der Honig bei den Germanen gehabt zu haben. Für die Bergmännlein (Elben), in welche die Seelen Verstorbener übergingen, wurde ein Tischchen gedeckt, Milch und Honig daraufgesetzt und in diese Speise das Blut einer schwarzen Henne getropft.* Das stimmt ziemlich genau mit den oben erwähnten griechischen Totenopfern überein.
 
@@ -1082,29 +1090,40 @@ Fragen wir nach der ursprünglichen Bedeutung des Honigs beim Totenopfer, so sch
 
 **Ambrosia und Nektar in der Bedeutung von Honig gebraucht. Ambrosia und Nektar als Nahrung der neugeborenen Götterkinder.**
 
-Im vorstehenden Abschnitt unserer Untersuchung haben wir gesehen, dass der Honig mehrfach als Götterspeise betrachtet wurde; jetzt wollen wir als Gegenstück dazu den Gebrauch der Ausdrücke [GREEK] und [GREEK] zur Bezeichnung des Honigs erörtern, woraus, wie kaum hervorgehoben zu werden braucht, die nahe Verwandtschaft der beiden Begriffe abermals klar erhellen wird.
+Im vorstehenden Abschnitt unserer Untersuchung haben wir gesehen, dass der Honig mehrfach als Götterspeise betrachtet wurde; jetzt wollen wir als Gegenstück dazu den Gebrauch der Ausdrücke νέκταρ und ἀμβροσία zur Bezeichnung des Honigs erörtern, woraus, wie kaum hervorgehoben zu werden braucht, die nahe Verwandtschaft der beiden Begriffe abermals klar erhellen wird.
 
-Das älteste Beispiel für den uneigentlichen Gebrauch von [GREEK] = [GREEK] habe ich bei Euripides Bacch. 142 N. gefunden:
+Das älteste Beispiel für den uneigentlichen Gebrauch von νέκταρ = μέλι habe ich bei Euripides Bacch. 142 N. gefunden:
 
-[GREEK].
+ῥεῖ δὲ γάλακτι πέδον, ῥεῖ δ᾽ οἴνῳ, ῥεῖ δὲ μελισσᾶν νέκταρι κ. τ. λ.
 
-Dass freilich dieser Gebrauch von [GREEK] viel älter als Euripides ist, scheint ein schönes Pindarisches Fragment (No. 45 b. Böckh) zu lehren, wo 5. 14 der herannahende Frühling, welchen vor allen die honigspendenden Blumen spüren, mit den begeisterten Worten gepriesen wird:
+Dass freilich dieser Gebrauch von νέκταρ viel älter als Euripides ist, scheint ein schönes Pindarisches Fragment (No. 45 b. Böckh) zu lehren, wo 5. 14 der herannahende Frühling, welchen vor allen die honigspendenden Blumen spüren, mit den begeisterten Worten gepriesen wird:
 
-[GREEK].
+Ἐν Ἀργείᾳ Νεμέᾳ μάντιν οὐ λανθάνει  
+φοίνικος ἔρνος, ὁπότ᾽ οἰχθέντος Ὡρᾶν θαλάμου  
+εὔοδμον ἐπαΐωσιν ἔαρ φυτὰ νεκτάρεα.
 
 Mehrere hierhergehörende Beispiele bietet die griechische Anthologie.
 
-6, 239 [GREEK].
+6, 239 Απολλωνίδου.
 
-[GREEK].
+Σμήνεος ἔκ μὲ ταμὼν γλυκερὸν θέρος ἀμφινομέων  
+γηραιὸς Κλείτων σπεῖσε μελισσοπόνος,  
+ἀμβροσίων ἔαρος κηρῶν μέλι πολλὸν ἀμέλξας,  
+δῶρον ἀποιμάντου τηλοπέτευς ἀγέλης.  
+θείης δ᾽ ἐσμοτόκον χορὸν ἄπλετον, εὖ δὲ μελιχροῦ  
+νέκταρος ἐμπλήσαις κηροπαγεῖς θαλάμας.
 
-ib. 6, 232: [GREEK].
+ib. 6, 232: Κριναγόρου.
 
-[GREEK].
+3 καὶ δειλαὶ δάκνεσθαι ἀμυγδάλαι, ἥ τε μελισσῶν  
+ἀμβροσίη, πυκναί τ᾽ ἰτρινέαι ποπάδες.  
+7 Πανὶ φιλοσκήπωνι καὶ εὐστόρθυγγι Πριήπῳ  
+ἀντίθεται λιτὴν δαῖτα Φιλοξενίδης.
 
-ib. 9, 404 [GREEK].
+ib. 9, 404 Ἀντιφίλου.
 
-[GREEK].
+7 χαίροιτ᾽ εὐαγέες, καὶ ἐν ἄνθεσι ποιμαίνεσθε,  
+αἰθερίου πτηναὶ νέκταρος ἐργάτιδες.
 
 Mehrfache Nachahmung hat sodann dieser Sprachgebrauch bei den römischen Dichtern gefunden.
 
@@ -1132,43 +1151,57 @@ Wie wir endlich im vorigen Abschnitt gesehen haben, dass Honig die erste Nahrung
 
 Hy. in Ap. Del. 123:
 
-[GREEK].
+οὐδ᾽ ἄρ᾽ Ἀπόλλωνα χρυσάορα θήσατο μήτηρ,  
+ἀλλὰ Θέμις νέκταρ τε καὶ ἀμβροσίην ἐρατεινὴν  
+ἀθανάτοις χείλεσσιν ἐπήρξατο.
 
 Von Aristaios sagt Pindar, dass er von Gaia und den Horen mit Nektar und Ambrosia gefüttert worden sei:
 
 Pind. Pyth. 9, 64 Böckh:
 
-[GREEK].
+ταὶ δ᾽ ἐπιγουνίδιον κατθηκάμεναι βρέφος αὑταῖς,  
+νέκταρ ἐν χείλεσσι καὶ ἀμβροσίαν στάξοισι, θήσονταί  
+τὲ νιν ἀθάνατον.
 
 # Kapitel 7.
 
 ## A.
 
-**[GREEK] in metaphorischem Gebrauch von der Süßigkeit der Rede und des Gesanges.**
+**Μέλι in metaphorischem Gebrauch von der Süßigkeit der Rede und des Gesanges.**
 
-Den ältesten Beleg für den metaphorischen Gebrauch von [GREEK] finden wir bereits im ersten Buche der Ilias Vers 249, wo die Süßigkeit der Rede des Nestor mit der Lieblichkeit des Honigs verglichen wird:
+Den ältesten Beleg für den metaphorischen Gebrauch von μέλι finden wir bereits im ersten Buche der Ilias Vers 249, wo die Süßigkeit der Rede des Nestor mit der Lieblichkeit des Honigs verglichen wird:
 
-[GREEK].
+τοῦ καὶ ἀπὸ γλώσσης μέλιτος γλυκίων ῥέεν αὐδή.
 
 Dieser Vergleich hat später vielfachen Anklang und häufige Nachahmung gefunden. Vgl. z. B.
 
 Hes. Theog. 81:
 
-[GREEK].
+ὃντινα τιμήσουσι Διὸς κοῦραι μεγάλοιο  
+γεινόμενόν τ᾽ ἐσίδωσι διοτρεφέων βασιλήων,  
+τῷ μὲν ἐπὶ γλώσσῃ γλυκερὴν χείουσιν ἐέρσην,  
+τοῦ δ᾽ ἔπε᾽ ἐκ στόματος ῥεῖ μείλιχα κ. τ. λ.
 
 Eur. fr. 891 N.
 
-[GREEK].
+εἴ μοι τὸ Νεστόρειον εὔγλωσσον μέλι [f. l. μέλος]  
+Ἀντήνορός τε τοῦ Φρυγὸς δοίη θεός,  
+οὐκ ἂν δυναίμην μὴ στέγοντα πιμπλάναι,  
+σοφοὺς ἐπαντλῶν ἀνδρὶ μὴ σοφῷ λόγους.
 
 Theocr. Id. 20, 26:
 
-[GREEK].
+...ἐκ στομάτων δέ  
+ἔρρεέ μοι φωνὰ γλυκερωτέρα ἢ μέλι κηρῶ.
 
 Noch häufiger als die Rede überhaupt wird die Poesie mit Honig verglichen.
 
 So schon bei Hesiod. Theog. 94:
 
-[GREEK].*
+ἐκ γὰρ Μουσάων καὶ ἑκηβόλου Ἀπόλλωνος  
+ἄνδρες ἀοιδοὶ ἔασιν ἐπὶ χθόνα καὶ κιθαρισταί.  
+ἐκ δὲ Διὸς βασιλῆες · ὁ δ᾽ ὄλβιος ὄντινα Μοῦσαι  
+φίλωνται · γλυκερή οἱ ἀπὸ στόματος ῥέει αὐδή.*
 
 *) Vgl. Hy. Hom. in Mus. et Apoll. No. 25, 2 ff.
 
@@ -1176,23 +1209,28 @@ Besonders häufig begegnet uns dieser Vergleich bei Pindar:
 
 Nem. 3, 74:
 
-[GREEK].
+...ἐγὼ τόδε τοι  
+πέμπω μεμιγμένον μέλι λευκῷ  
+Σὺν γάλακτι, κιρναμένα δ᾽ ἔερσ᾽ ἀμφέπει,  
+πόμ᾽ ἀοίδιμον Αἰολῇσιν ἐν πνοαῖσιν αὐλῶν.
 
-Dass hier [GREEK] (vgl. oben Hesiod. Theog. 83 [GREEK]) wiederum den Honig [der Poesie] bezeichnet, sagt ausdrücklich der Scholiast z. d. St. mit den Worten: [GREEK].
+Dass hier κιρναμένα ἔερσα (vgl. oben Hesiod. Theog. 83 γλυκερὴ ἐέρση) wiederum den Honig [der Poesie] bezeichnet, sagt ausdrücklich der Scholiast z. d. St. mit den Worten: [ἡ δρόσος ἡ τοῦ μέλιτος κιρναμένη πρὸς τὸ γάλα ποιεῖ τὸ πόμα ἀοίδιμον καὶ τὸ ποίημα μιχθὲν αὐλοῖς γίνεται καὶ αὐτὸ θαυμάσιον.
 
 Ol. 11, 101 vergleicht Pindar die Wirkung seines Gedichts auf die Bewohner von Lokroi mit einem Honigregen, welcher plötzlich auf die Stadt herabfällt:
 
-[GREEK].
+ἐγὼ δὲ συνεφαπτόμενος σπουδᾷ, κλυτὸν ἔθνος  
+Λοκρῶν ἀμφέπεσον μέλιτι  
+εὐάνορα πόλιν καταβρέχων.
 
 Isthm. 4, 59 sagt der Dichter von seinem Hymnas auf den Pankratiasten Phylakidas:
 
-[GREEK].
-
-[GREEK], d. i. nach der Erklärung des Scholiasten: [GREEK].
+...ἐν δ᾽ ἐρατεινῷ  
+μέλιτι καὶ τοιαίδε τιμαί  
+καλλίνικον χάρμ᾽ ἀγαπάζοντι, d. i. nach der Erklärung des Scholiasten: αἱ τῶν νικηφόρων τιμαὶ τὴν ἐπινίκιον ᾠδὴν ἀγαπῶσιν ὡς μέλι καὶ φιλοῦσιν. οἷον ὡς ἐν μέλιτι γλυκύτης ἐστὶν οὕτω καὶ τοῖς νικῶσιν αἱ ἐπινίκιοι ᾠδαί.
 
 Auch spätere Dichter vergleichen noch gern die Lieblichkeit der Poesie mit der Süßigkeit des Honigs. Vgl. Theocrit Id. 1, 146:
 
-[GREEK].
+πλῆρές τοι μέλιτος τὸ καλὸν στόμα, Θύρσι, γένοιτο.
 
 Lucret. 1, 945 (vgl. 4, 22):
 
@@ -1206,46 +1244,51 @@ Te solum, tibi pulcher.
 
 Anth. 9, 190:
 
-[GREEK].
+Λέσβιον Ἠρίννης τόδε κηρίον · εἰ δέ τι μικρόν,  
+ἀλλ᾽ ὅλον ἐκ Μουσέων κιρνάμενον μέλιτι.
 
 Aus dem Vergleiche des Liedes mit Honig ergab sich sodann die weitere Vergleichung des Dichters mit der Biene. Wie die Biene aus Blumenkelchen den Honig so schlürft der Dichter Poesie aus den Blüten des Lebens. 
 Niemand hat diesen Gedanken, wenn auch zunächst in ironischer Weise, schöner ausgesprochen als Aristophanes, wenn er von Phrynichos sagt:
 
 Av. 750:
 
-[GREEK].*
+ἔνθεν ὥσπερ ἡ μέλιττα  
+Φρύνιχος ἀμβροσίων μελέων ἀπεβόσκετο καρπόν,  
+ἀεὶ φέρων γλυκεῖαν ᾠδάν.*
 
-*) Vgl. auch Hor. ca. 4, 2, 27: ...ego apis Matinae || More modoque, || Grata carpentis thyma per laborem... || Carmina fingo. Vgl. auch Vita Soph. p. 132, 99: [GREEK]. Mehr b. Schneidewin Einl. z. Sophokles Aias 1 p. 30 Anm.
+*) Vgl. auch Hor. ca. 4, 2, 27: ...ego apis Matinae || More modoque, || Grata carpentis thyma per laborem... || Carmina fingo. Vgl. auch Vita Soph. p. 132, 99: Σοφοκλῆς ἀφ᾽ ἑκάστου τὸ λαμπρὸν ἀπανθίζει, κθά ὃ καὶ μέλιττα ἐλέγετο. Mehr b. Schneidewin Einl. z. Sophokles Aias 1 p. 30 Anm.
 
 Derselbe Aristophanes nennt Sophokles einen mit Honig Gesalbten:
 
 fr. 2, 1176 ed. Mein.
 
-[GREEK].
+Ὁ δ᾽ αὖ Σοφοκλέους τοῦ μέλιτι κεχρισμένου  
+ὥσπερ καδίσκου περιέλειχε τὸ στόμα.
 
-Mehrfach werden Dichter und prosaische Schriftsteller, welche über eine schöne Sprache verfügen, geradezu Bienen ([GREEK]) genannt, z. B. Erinna, Sophokles, Platon, Xenophon,* und es entstand die Legende, dass Bienen, die Vögel der Musen,* sich solchen Lieblingen der Göttinnen unmittelbar nach der Geburt auf die Lippen gesetzt und ihnen durch Zutragen von Honig gewissermaßen die musische Weihe erteilt hätten.* Die Musen selbst heißen μελίστακτοι in einem Epigramm der Anthologie (4, 1, 33):
+Mehrfach werden Dichter und prosaische Schriftsteller, welche über eine schöne Sprache verfügen, geradezu Bienen (μέλισσαι) genannt, z. B. Erinna, Sophokles, Platon, Xenophon,* und es entstand die Legende, dass Bienen, die Vögel der Musen,* sich solchen Lieblingen der Göttinnen unmittelbar nach der Geburt auf die Lippen gesetzt und ihnen durch Zutragen von Honig gewissermaßen die musische Weihe erteilt hätten.* Die Musen selbst heißen μελίστακτοι in einem Epigramm der Anthologie (4, 1, 33):
 
 λείψανὰ τ᾽ εὐκαρπεῦντα μελιστάκτων ἀπὸ Μουσέων.
 
-*) Anth. 7, 13, 1: [GREEK]. Hermesianax b. Ath. 598 c [GREEK] 57: [GREEK]. (Vgl. Schol. z. Arist. Vesp. 462. Suid. s. v. [GREEK]. Vita Soph. ed. Gaisf.) Suid. s. v. [GREEK]. Wenn hie und da die Pythia [GREEK] genannt wurde (Pind. Pyth. 4, 106. Schol. Eurip. Hipp. 72), so scheint ihr diese Benennung mit Bezug auf ihre poetischen Orakelsprüche zu teil geworden zu sein.
+*) Anth. 7, 13, 1: Παρθενικὴν νεαοιδὸν ἐν ὑμνοπόλοισι μέλισσαι || Ἤρινναν, Μουσῶν ἄνθεα δρεπτομέναν, || Ἅιδας εἰς ὑμέναιον ἀνάρπασεν. Hermesianax b. Ath. 598 c υ. 57: Ἀτθὶς δ᾽ οἷα μέλισσα πολυπρήωνα κολώνην || λείπουσ᾽ ἐν τραγικαὶς ᾖδε χοροστασίαις. (Vgl. Schol. z. Arist. Vesp. 462. Suid. s. v. Σοφοκλῆς. Vita Soph. ed. Gaisf.) Suid. s. v. Ξενοφῶν αὐτὸς δὲ Ἀττικὴ μέλισσα ἐπωνομάζετο. Wenn hie und da die Pythia μέλισσα genannt wurde (Pind. Pyth. 4, 106. Schol. Eurip. Hipp. 72), so scheint ihr diese Benennung mit Bezug auf ihre poetischen Orakelsprüche zu teil geworden zu sein.
 
 *) Varro de r. r. 3, 16 nennt die Bienen Musarum volucres. Die Musen nehmen selbst Bienengestalt an b. Philostr. Ic. 2, 8, p. 823 Ol. Anthol. 9, 505, 6.
 
-*) Solches erzählt man von Pindar. Paus. 9, 23, 2: [GREEK]. Von Platoni Cic. div. 1, 36, 78: Platoni, cum in cunis parvulo dormienti apes in labellis consedissent, responsum est, singulari illum suavitate orationis fore (vgl. Plin. 11, 17. Ael. v. h. 10, 21. Olymp. u. Anon. V. Plat.).
+*) Solches erzählt man von Pindar. Paus. 9, 23, 2: μέλισσαι αὐτῷ καθεύδοντι προσεπέτοντο τε καὶ ἔπλασσον πρὸς τὰ χείλη τοῦ κηροῦ. Von Platoni Cic. div. 1, 36, 78: Platoni, cum in cunis parvulo dormienti apes in labellis consedissent, responsum est, singulari illum suavitate orationis fore (vgl. Plin. 11, 17. Ael. v. h. 10, 21. Olymp. u. Anon. V. Plat.).
 
 Ebenda v. 21 wird die Poesie des Kallimachos einer Myrthenbeere, angefüllt mit Honig verglichen:
 
-[GREEK].
+...ἡδύ τε μύρτον  
+Καλλιμάχου, στυφελοῦ μεστὸν ἀεὶ μέλιτος.
 
-Eine äußerst anmutige wesentlich auf der eben besprochenen Anschauung beruhende Legende erzählt uns Theokrit Id. 7, 78 ff.: Ein Sklave Namens Komatas, welcher die Heerden seines Herrn weidete, opferte häufig den Musen. Der Herr schloss ihn in einen Sarg ([GREEK]) von Zedernholz ein, um zu sehen, ob die Musen ihn retten würden. Als nach zwei Monaten der Sarg geöffnet wurde, fand man den Sarg voll Honig und den Hirten lebendig. Bienen hatten den Liebling der Musen mit Honig gefüttert.*
+Eine äußerst anmutige wesentlich auf der eben besprochenen Anschauung beruhende Legende erzählt uns Theokrit Id. 7, 78 ff.: Ein Sklave Namens Komatas, welcher die Heerden seines Herrn weidete, opferte häufig den Musen. Der Herr schloss ihn in einen Sarg (λάρναξ) von Zedernholz ein, um zu sehen, ob die Musen ihn retten würden. Als nach zwei Monaten der Sarg geöffnet wurde, fand man den Sarg voll Honig und den Hirten lebendig. Bienen hatten den Liebling der Musen mit Honig gefüttert.*
 
 *) Nach den Scholien z. d. St. soll sich die Geschichte bei Thurioi zugetragen haben.
 
 ## B.
 
-**[GREEK] in übertragener Bedeutung von der Süßigkeit des Gesanges.**
+**Νέκταρ in übertragener Bedeutung von der Süßigkeit des Gesanges.**
 
-Ebenso wie [GREEK] nur nicht so häufig, lässt sich auch [GREEK] in metaphorischem Sinne von der Lieblichkeit der Poesie nachweisen. Selbstverständlich folgere ich daraus nicht etwa, dass die Dichter, welche diesen Ausdruck in dem angegebenen Sinne gebrauchten, sich dabei der ursprünglichen Identität der Begriffe Honig und Nektar irgendwie bewusst gewesen sein müssten: ich glaube nur, dass jene von mir behauptete ursprüngliche Gleichheit von Nektar und Honig sich unter Anderem auch noch in der gleichen oder ähnlichen Bedeutungsentwickelung zeige.
+Ebenso wie μέλι nur nicht so häufig, lässt sich auch νέκταρ in metaphorischem Sinne von der Lieblichkeit der Poesie nachweisen. Selbstverständlich folgere ich daraus nicht etwa, dass die Dichter, welche diesen Ausdruck in dem angegebenen Sinne gebrauchten, sich dabei der ursprünglichen Identität der Begriffe Honig und Nektar irgendwie bewusst gewesen sein müssten: ich glaube nur, dass jene von mir behauptete ursprüngliche Gleichheit von Nektar und Honig sich unter Anderem auch noch in der gleichen oder ähnlichen Bedeutungsentwickelung zeige.
 
 Der älteste Dichter, bei welchem der in Rede stehende Sprachgebrauch meines Wissens vorkommt, ist Pindar. Derselbe sagt Ol. 7, 7:
 
