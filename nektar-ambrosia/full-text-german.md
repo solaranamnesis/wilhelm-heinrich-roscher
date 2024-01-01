@@ -853,11 +853,11 @@ Wie alt zunächst der Gebrauch des Honigs als eines Arzneimittels ist, erkennt m
 
 *) Ib. 112: Aqua mulsa et tussientibus utilis traditur etc. Vgl. auch Galen. ed. Kühn 15, 651. 809. 17 _B_ 329. 369. 15, 650. 658. 787. 10, 733. 823.
 
-*) Arist. mir. ausc. 18 (vol. 4, 77, 33 D.): [GREEK]. Vgl. Ael. v. h. 5, 42 u. Geopon. 15, 9, 4.
+*) Arist. mir. ausc. 18 (vol. 4, 77, 33 D.): Ἐν Τραπεζοῦντι τῇ ἐν τῷ Πόντῳ γίνεται τὸ ἀπὸ τῆς πύξου μέλι βαρύοσμον, καί φασι τοῦτο τοὺς μὲν ὑγιαίνοντας ἐξιστάναι, τοὺς δ᾽ ἐπιλήπτους καὶ τελέως ἀπαλλάττειν. Vgl. Ael. v. h. 5, 42 u. Geopon. 15, 9, 4.
 
-*) Vgl. a. a. O. Z. 11: [GREEK]. Ib. Z. 15: [GREEK]. Auch in Zauberrecepten spielt der Honig eine Rolle: Parthey, Zwei griech. Zauberpapyri (Abh. d. Berl. Akademie. 1866) 1, 6 u. 20 u. 2, 19.
+*) Vgl. a. a. O. Z. 11: Αἷμα ἀναφέροντι Ἰουλιανῷ ἀφηλπισμένῳ ὑπὸ παντὸς ἀνθρώπου ἐχρημάτισεν ὁ θεὸς ἐλθεῖν καὶ ἐκ τοῦ τριβώμου ἆραι κόκκους στροβίλου καὶ φαγεῖν μετὰ μέλιτος διὰ τρεὶς ἡμέρας, καὶ ἐσώθη κ. τ. λ. Ib. Z. 15: Οὐαλερίῳ Ἄπρῳ στρατιώτῃ τυφλῷ ἐχρημάτισεν ὁ θεὸς ἐλθεῖν καὶ λαβεῖν αἷμα ἐξ ἀλεκτρυόνος λευκοῦ μετὰ μέλιτος κ. τ. λ. Auch in Zauberrecepten spielt der Honig eine Rolle: Parthey, Zwei griech. Zauberpapyri (Abh. d. Berl. Akademie. 1866) 1, 6 u. 20 u. 2, 19.
 
-*) Oben Anm. 82. Außerdem vgl. noch Plin. h. n. 11, 37: mel aestivum... medicamenta, non mella, gignuntnr, oculis hulceribus internisque visceribus dona caelestia. Theodot. Epit. p. 805 D ed. Sylb. [GREEK]. Galen. ed. Kühn 12, 70. 10, 501. 11, 134. 6, 266. 7, 102. 10, 475. 13, 731 f.
+*) Oben Anm. 82. Außerdem vgl. noch Plin. h. n. 11, 37: mel aestivum... medicamenta, non mella, gignuntnr, oculis hulceribus internisque visceribus dona caelestia. Theodot. Epit. p. 805 D ed. Sylb. παιδεύων τοὺς εἱλκωμένους τὴν καρδίαν καθάπερ μέλιτι σωτηρίῳ. Galen. ed. Kühn 12, 70. 10, 501. 11, 134. 6, 266. 7, 102. 10, 475. 13, 731 f.
 
 Dieselbe Bedeutung hat der Honig auch bei den andern Völkern, z. B. bei den Finnen. Gubernatis (Die Tiere in der indogerm. Mythologie, übers, v. Hartmann p. 508) teilt ein interessantes finnisches Lied an die Biene mit, welches lautet: „Biene, Du Weltvögelein, flieg in die Weite, über neun Seen, über den Mond, über die Sonne, hinter des Himmels Sterne, neben die Achse des Wagengestirns; flieg in den Keller des Schöpfers, in des Allmächtigen Vorratskammer, bring Arznei mit Deinen Flügeln, Honig in Deinem Munde für böse Eisenwunden und Feuerwunden.“
 
@@ -869,21 +869,29 @@ In seiner schon öfters erwähnten Abhandlung über die Geburt der Athene (Fleck
 
 *) Nägelsbach, Hom. Theol. 2 S. 42.
 
-1\. Zwar ist in den homerischen Gedichten selbst nirgends ausdrücklich ausgesprochen, dass die Unsterblichkeit der Götter auf dem Genüsse besonderer Nahrung beruhe, aber doch würde es entschieden irrig sein, wenn man mit Bergk daraus folgern wollte, dass Homer den Glauben an ein gewissermaßen außerhalb der Götterwelt gelegenes Prinzip der Unsterblichkeit nicht kenne. Der Dichter hebt dasselbe vielmehr nur deswegen nicht ausdrücklich hervor, weil es sich ihm von selbst versteht. Indirekt lässt es sich freilich aus mehreren Stellen erschließen. In erster Linie kommt hier die in Od. [GREEK] 136 ff. geschilderte Scene in Betracht. Hier wird nämlich, nachdem erzählt worden ist, dass Odysseus das Anerbieten der Kalypso ihn unsterblich und ewig jugendlich zu machen ausgeschlagen habe (vgl. 5. 135 u. 209), bei der Schilderung der gemeinsamen Mahlzeit ausdrücklich hervorgehoben, dass Odysseus menschliche Speise genossen habe, während die Dienerinnen der Kalypso Ambrosia und Nektar hätten vorsetzen müssen (5. 197, vgl. auch 13, wo Kalypso den Hermes mit göttlicher Nahrung bewirtet). Wenn demnach auch Menschen der Unsterblichkeit teilhaftig werden können, und der einzige Unterschied in der Lebensweise zwischen Göttern und Menschen eben in dem Genüsse verschiedenartiger Nahrung besteht, so folgt schon aus jener Stelle doch wohl mit ziemlicher Sicherheit, dass das ewige Leben der Götter auf dem Genuss unsterblicher Nahrung beruht.* Auf dieselbe Idee einer unsterblich machenden Substanz führt auch Il. _T_ 38, wo erzählt wird, wie Thetis, um den Leichnam des Patroklos vor Fäulnis zu bewahren, demselben durch die Nase Ambrosia und Nektar einflößt. Thetis erwidert ihrem Sohne, der befürchtet, Fliegenmaden und Fäulnis möchten den Körper des geliebten Freundes zerstören:
+1\. Zwar ist in den homerischen Gedichten selbst nirgends ausdrücklich ausgesprochen, dass die Unsterblichkeit der Götter auf dem Genüsse besonderer Nahrung beruhe, aber doch würde es entschieden irrig sein, wenn man mit Bergk daraus folgern wollte, dass Homer den Glauben an ein gewissermaßen außerhalb der Götterwelt gelegenes Prinzip der Unsterblichkeit nicht kenne. Der Dichter hebt dasselbe vielmehr nur deswegen nicht ausdrücklich hervor, weil es sich ihm von selbst versteht. Indirekt lässt es sich freilich aus mehreren Stellen erschließen. In erster Linie kommt hier die in Od. ε 136 ff. geschilderte Scene in Betracht. Hier wird nämlich, nachdem erzählt worden ist, dass Odysseus das Anerbieten der Kalypso ihn unsterblich und ewig jugendlich zu machen ausgeschlagen habe (vgl. 5. 135 u. 209), bei der Schilderung der gemeinsamen Mahlzeit ausdrücklich hervorgehoben, dass Odysseus menschliche Speise genossen habe, während die Dienerinnen der Kalypso Ambrosia und Nektar hätten vorsetzen müssen (5. 197, vgl. auch 13, wo Kalypso den Hermes mit göttlicher Nahrung bewirtet). Wenn demnach auch Menschen der Unsterblichkeit teilhaftig werden können, und der einzige Unterschied in der Lebensweise zwischen Göttern und Menschen eben in dem Genüsse verschiedenartiger Nahrung besteht, so folgt schon aus jener Stelle doch wohl mit ziemlicher Sicherheit, dass das ewige Leben der Götter auf dem Genuss unsterblicher Nahrung beruht.* Auf dieselbe Idee einer unsterblich machenden Substanz führt auch Il. _T_ 38, wo erzählt wird, wie Thetis, um den Leichnam des Patroklos vor Fäulnis zu bewahren, demselben durch die Nase Ambrosia und Nektar einflößt. Thetis erwidert ihrem Sohne, der befürchtet, Fliegenmaden und Fäulnis möchten den Körper des geliebten Freundes zerstören:
 
-30 [GREEK].
+30 τῷ μὲν ἐγὼ πειρήσω ἀλαλκεῖν ἄγρια φῦλα,  
+μυίας, αἵ ῥά τε φῶτας ἀρηιφάτους κατέδουσιν.  
+ἤν περ γὰρ κῆταί γε τελεσφόρον εἰς ἐνιαυτόν,  
+αἰεὶ τῷδ᾽ ἔσται χρὼς ἔμπεδος, ἢ καὶ ἀρείων.
 
 Darauf heißt es 5. 38:
 
-[GREEK].
+Πατρόκλῳ δ᾽ αὖτ᾽ ἀμβροσίην καὶ νέκταρ ἐρυθρόν  
+στάξε κατὰ ῥινῶν, ἵνα οἱ χρὼς ἔμπεδος εἴη.
 
-*) Il. _E_ 340 wird das unsterbliche Blut der Götter ([GREEK]) aus drücklich auf den Genuss himmlischer Nahrung zurückgeführt: [GREEK].
+*) Il. _E_ 340 wird das unsterbliche Blut der Götter (ἰχώρ) aus drücklich auf den Genuss himmlischer Nahrung zurückgeführt:  
+ἄμβροτον αἷμα θεοῖο,  
+ἰχὼρ, οἷός πὲρ τε ῥέει μακάρεσσι θεοῖσιν ·  
+οὐ γὰρ σῖτον ἔδουσ᾽, οὐ πίνουσ᾽ αἴθοπα οἷνον ·  
+τοὔνεκ᾽ ἀναίμονές εἰσι καὶ ἀθάνατοι καλέονται.
 
-Zu dem nämlichen Zwecke, nämlich um den Körper des Sarpedon vor vorzeitiger Verwesung zu bewahren, beauftragt Zeus Il. [GREEK], 670 den Apollon denselben mit Ambrosia zu salben. Il. [GREEK] 186 salbt dagegen Aphrodite den Leichnam des Hektor mit ambrosischem Öle, um dessen Haut fest zu machen, damit sie durch das Schleifen nicht beschädigt werde. Wie kann man schon angesichts dieser Stellen behaupten, dass Homer den Glauben an eine unsterblich machende Wirkung der Ambrosia und des Nektars nicht gekannt habe!
+Zu dem nämlichen Zwecke, nämlich um den Körper des Sarpedon vor vorzeitiger Verwesung zu bewahren, beauftragt Zeus Il. Π, 670 den Apollon denselben mit Ambrosia zu salben. Il. Ψ 186 salbt dagegen Aphrodite den Leichnam des Hektor mit ambrosischem Öle, um dessen Haut fest zu machen, damit sie durch das Schleifen nicht beschädigt werde. Wie kann man schon angesichts dieser Stellen behaupten, dass Homer den Glauben an eine unsterblich machende Wirkung der Ambrosia und des Nektars nicht gekannt habe!
 
-2\. Dasselbe Resultat gewinnen wir durch folgende Erwägung. Es unterliegt wohl keinem Zweifel, dass die Vorstellung von Speise und Trank genießenden Göttern im letzten Grunde auf der Analogie des menschlichen Lebens beruht. Wie aber die Menschen durch irdische Nahrung ihren sterblichen Leib erhalten, so ernähren die Götter ihren unsterblichen Körper durch eine himmlische Nahrung, deren Genuss den Menschen als solchen versagt ist, weil sie sonst ebenfalls zu Göttern und Unsterblichen werden würden. Dies lehrt vor allen Dingen die Sage von Tantalos, dessen Vergehen in der Entwendung von Nektar und Ambrosia bestand, womit er seine Genossen ebenfalls unsterblich machen wollte. Wenn nun die Götterspeise noch dazu als [GREEK] d. h. als Unsterblichkeitsnahrung bezeichnet wird, so folgt daraus unmittelbar der Glaube an eine unsterblich machende Wirkung derselben. Dass [GREEK] wirklich in diesem Sinne zu nehmen ist, erhellt aus dem Umstande, dass hie und da statt ihrer der Ausdruck [GREEK] gesetzt wird,* eine Tatsache, welche Buttmann und Nägelsbach* sogar zu dem meiner Ansicht nach zu weit gehenden, weil eine zu große Abstraktion der ältesten Griechen voraussetzenden, Schlusse verleitet hat, dass [GREEK] „nichts anderes als der in Form von Speise real oder konkret gewordene Begriff der Unsterblichkeit“ sei.
+2\. Dasselbe Resultat gewinnen wir durch folgende Erwägung. Es unterliegt wohl keinem Zweifel, dass die Vorstellung von Speise und Trank genießenden Göttern im letzten Grunde auf der Analogie des menschlichen Lebens beruht. Wie aber die Menschen durch irdische Nahrung ihren sterblichen Leib erhalten, so ernähren die Götter ihren unsterblichen Körper durch eine himmlische Nahrung, deren Genuss den Menschen als solchen versagt ist, weil sie sonst ebenfalls zu Göttern und Unsterblichen werden würden. Dies lehrt vor allen Dingen die Sage von Tantalos, dessen Vergehen in der Entwendung von Nektar und Ambrosia bestand, womit er seine Genossen ebenfalls unsterblich machen wollte. Wenn nun die Götterspeise noch dazu als ἀμβροσία d. h. als Unsterblichkeitsnahrung bezeichnet wird, so folgt daraus unmittelbar der Glaube an eine unsterblich machende Wirkung derselben. Dass ἀμβροσία wirklich in diesem Sinne zu nehmen ist, erhellt aus dem Umstande, dass hie und da statt ihrer der Ausdruck ἀθανασία gesetzt wird,* eine Tatsache, welche Buttmann und Nägelsbach* sogar zu dem meiner Ansicht nach zu weit gehenden, weil eine zu große Abstraktion der ältesten Griechen voraussetzenden, Schlusse verleitet hat, dass ἀμβροσία „nichts anderes als der in Form von Speise real oder konkret gewordene Begriff der Unsterblichkeit“ sei.
 
-*) Lucian Dial. Deor. 4: [GREEK] (den Ganymed) [GREEK]. Schol. Pind. Pyth. 9, 113: [GREEK]. Vgl. oben Anm. 94 u. Schol. Eur. Hippol. oben Aum. 56.
+*) Lucian Dial. Deor. 4: νῦν δὲ ἄπαγε αὐτὸν (den Ganymed) ὦ Ἑρμῆ, καὶ πιόντα τῆς ἀθανασίας ἄγε οἰνοχοήσαντα ἡμῖν. Schol. Pind. Pyth. 9, 113: ὃ [τὸ μέλι] δὴ τῆς ἀθανασίας δέκατον μέρος ᾠήθησαν εἶναι. Vgl. oben Anm. 94 u. Schol. Eur. Hippol. oben Aum. 56.
 
 *) Buttmanu, Lexilogus 1, p. 133. Nägelsbach, Hom. Theologie 2 43.
 
@@ -891,33 +899,33 @@ Zu dem nämlichen Zwecke, nämlich um den Körper des Sarpedon vor vorzeitiger V
 
 Lustratum genitrix divino corpus odore  Unxit, et ambrosia cum dulci nectare mixta  Contigit os fecitque deum.
 
-Dieselbe Anschauung des gesamten Altertums bezeugt endlich Aristoteles Met. 2, 4, 12 (ed. Didot. 2, 495, 34): [GREEK]. Endlich ist noch darauf aufmerksam zu machen, dass nicht bloß dem Nektar und der Ambrosia, sondern auch einer gewissen Pflanze die Fähigkeit Todte wieder lebendig und Sterbliche zu Unsterblichen zu machen zugeschrieben wurde.* Ebenso soll auch das Styxwasser, das in der Achilleussage neben der Ambrosia erscheint, eine unsterblich oder unverwundbar machende Wirkung besessen haben.* Zwar ist dies eine nur in jüngeren Quellen erhaltene Variante, aber doch dürfte dieselbe auf hohes Alter Anspruch erheben, zumal da manche in der Styxsage erhaltene Vorstellung den Eindruck macht, als sei dieser Fluss ursprünglich mit der Quelle des Nektars und der Ambrosia identisch gewesen. Ich erinnere erstens an den Ausdruck [GREEK]* (Hes. Theog. 805 vgl. [GREEK] 397), ferner an die eigentümliche Bedeutung welche der Schwur bei der Styx für die Götter hatte, insofern diese zur Strafe des Meineides neun Jahre lang gewissermaßen ihrer Göttlichkeit verlustig gingen, einem Todesschlafe verfielen, und vom Genuss der Ambrosia und des Nektars ausgeschlossen wurden,* an die Kinder der Styx Kratos und Bia, d. i. die Repräsentanten göttlicher Gewalt und Stärke, wie sie der Genuss von Nektar und Ambrosia gewährte* u. s. w. (vgl. Bergk a. a. O. S. 403 ff.). Noch immer knüpft sich an den Namen der Styx, welche frühzeitig mit der berühmten Quelle in der romantischen Schlucht bei Nonakris in Arkadien identifiziert wurde, die Legende, dass wer an einem bestimmten Tage im Jahre daraus trinke, die Unsterblichkeit gewinne (Schwab, Arkadien S. 16. Bergk a. a. O. S. 405 Anm. 26).
+Dieselbe Anschauung des gesamten Altertums bezeugt endlich Aristoteles Met. 2, 4, 12 (ed. Didot. 2, 495, 34): οἱ μὲν οὖν περὶ Ἡσίοδον... θεοὺς... ποιοῦντες τὰς ἀρχὰς καὶ ἐκ θεῶν γεγονέναι, τὰ μὴ γευσάμενα τοῦ νέκταρος καὶ τῆς ἀμβροσίας θνητὰ γενέσθαι φασὶν, δῆλον ὡς ταῦτα τὰ ὀνόματα γνώριμα λέγοντες αὐτοῖς. Endlich ist noch darauf aufmerksam zu machen, dass nicht bloß dem Nektar und der Ambrosia, sondern auch einer gewissen Pflanze die Fähigkeit Todte wieder lebendig und Sterbliche zu Unsterblichen zu machen zugeschrieben wurde.* Ebenso soll auch das Styxwasser, das in der Achilleussage neben der Ambrosia erscheint, eine unsterblich oder unverwundbar machende Wirkung besessen haben.* Zwar ist dies eine nur in jüngeren Quellen erhaltene Variante, aber doch dürfte dieselbe auf hohes Alter Anspruch erheben, zumal da manche in der Styxsage erhaltene Vorstellung den Eindruck macht, als sei dieser Fluss ursprünglich mit der Quelle des Nektars und der Ambrosia identisch gewesen. Ich erinnere erstens an den Ausdruck Στυγὸς ἄφθιτον ὕδωρ* (Hes. Theog. 805 vgl. Στὺξ ἄφθιτος 397), ferner an die eigentümliche Bedeutung welche der Schwur bei der Styx für die Götter hatte, insofern diese zur Strafe des Meineides neun Jahre lang gewissermaßen ihrer Göttlichkeit verlustig gingen, einem Todesschlafe verfielen, und vom Genuss der Ambrosia und des Nektars ausgeschlossen wurden,* an die Kinder der Styx Kratos und Bia, d. i. die Repräsentanten göttlicher Gewalt und Stärke, wie sie der Genuss von Nektar und Ambrosia gewährte* u. s. w. (vgl. Bergk a. a. O. S. 403 ff.). Noch immer knüpft sich an den Namen der Styx, welche frühzeitig mit der berühmten Quelle in der romantischen Schlucht bei Nonakris in Arkadien identifiziert wurde, die Legende, dass wer an einem bestimmten Tage im Jahre daraus trinke, die Unsterblichkeit gewinne (Schwab, Arkadien S. 16. Bergk a. a. O. S. 405 Anm. 26).
 
 *) Hy. in Cer. 236.
 
 *) Apoll. Rh. 4, 869: Apollod. 3, 13, 6.
 
-*) Pind. Ol. 1, 98: [GREEK].
+*) Pind. Ol. 1, 98: κλέψας || ἁλίκεσσι συμπόταις νέκταρ ἀμβροσίαν τε ἔδωκεν || οἷσιν ἄφθιτον θέσσαν.
 
-*) Theocr. Id. 15, 106: [GREEK].
+*) Theocr. Id. 15, 106: Κύπρι Διωναία, τὺ μὲν ἀθάνατον ἀπὸ θνατᾶς, || ἀνθρώπων ὡς μῦθος, ἐποίησας Βερενίκαν, || ἀμβροσίαν ἐς στῆθος ἀποστάξασα γυναικός.
 
 *) Vgl. oben Anm. 60 ff.
 
 *) Stat. Ach. 1, 269. Quint. Smyrn. 3, 60 ff. Hygin. Fab. 107. Fulgent. Myth. 3, 7. Serv. Verg. Aen. 6, 57. Schol. Hor. Epod. 13. Die Eintauchung in die Styx dargestellt auf dem Kapitolinischen Puteal (Overbeck, Gall. her. Bild. Taf. 14, 3.)
 
-*) Insofern [GREEK] (= [GREEK]) [GREEK] vergleichbar ist.
+*) Insofern ἄφθιτον (= ἄμβροτον) ὕδωρ mit ἀμβροσία vergleichbar ist.
 
-Auch als göttliche Pharmaka scheinen Ambrosia und Nektar gegolten zu haben, da Apollon nach Bion den verwundeten Hyakinthos damit salbt* und nach Vergil die Venus den schwerverwundeten Aeneas mit heilkräftiger Ambrosia und wohlriechender Panacee besprengt.* Die zugleich belebende und stärkende Wirkung des Nektars scheint aus den beiden Hesychischen Glossen [GREEK] und [GREEK] sowie aus der Hesiodischen Sage zu folgen, dass die Götter sich zum Kampfe mit den Titanen durch den Genuss von Ambrosia und Nektar gestärkt hätten.*
+Auch als göttliche Pharmaka scheinen Ambrosia und Nektar gegolten zu haben, da Apollon nach Bion den verwundeten Hyakinthos damit salbt* und nach Vergil die Venus den schwerverwundeten Aeneas mit heilkräftiger Ambrosia und wohlriechender Panacee besprengt.* Die zugleich belebende und stärkende Wirkung des Nektars scheint aus den beiden Hesychischen Glossen νεκταροῦσιν · ἐλαφρίζουσιν und νεκτάρθη · ἐθυμίσθη sowie aus der Hesiodischen Sage zu folgen, dass die Götter sich zum Kampfe mit den Titanen durch den Genuss von Ambrosia und Nektar gestärkt hätten.*
 
-*) Hes. Theog. 793: [GREEK].
+*) Hes. Theog. 793: ὅς κὲν τὴν ἐπίορκον ἀπολείψας ἐπομόσσῃ || ἀθανάτων, οἳ ἔχουσι κάρη νιφόεντος Ὀλύμπου, || κεῖται νήῢτμος τετελεσμένον εἰς ἐνιαυτόν, || οὐδὲ ποτ᾽ ἀμβροσίης καὶ νέκταρος ἔρχεται ἆσσον || βρώσιος ἀλλά τε κεῖται ἀνάπνευστος καὶ ἄναυδος || στρωτοῖς ἐν λεχέεσσι, κακὸν δ᾽ ἐπὶ κῶμα καλύπτει.
 
 *) Hes. Theog. 401 u. 640 f. Anm. 140.
 
-*) Bion 11: [GREEK].
+*) Bion 11: Ἀμφασία δ᾽ ἄρα Φοῖβον ἕλεν τόσον ἄλγος ἔχοντα. || δίζετο φάρμακα πάντα σοφὰν δ᾽ ἐπεμαίετο τέχναν. || χρῖεν δ᾽ ἀμβροσίᾳ καὶ νέκταρι, χρῖεν ἅπασαν || ὠτειλάν. Μοιραῖα δ᾽ ἀναλθέα τραύματα πάντα.
 
 *) Vergil. Aen. 12, 419: Spargitque salubris ambrosiae sucos et odoriferam panaceam.
 
-*) Hes. Theog. 639: [GREEK].
+*) Hes. Theog. 639: ἀλλ᾽ ὅτε δὴ κείνοισι παρέσχεθεν ἄρμενα πάντα, || νέκταρ τ᾽ ἀμβροσίην τε, τόπερ θεοὶ αὐτοὶ ἔδουσι, || πάντων ἐν στήθεσσιν ἀέξετο θυμὸς ἀγήνωρ.
 
 # Kapitel 5.
 
