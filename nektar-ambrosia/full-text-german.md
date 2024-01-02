@@ -524,7 +524,7 @@ Da nun nach der Vorstellung der Alten der Sitz der Götter nicht bloß im Himmel
 
 Hippol. 5. 742:
 
-Ἑσπερίδων δ᾽ ἐπὶ μηλόσπορον ἀκτὰν  
+Ἑσπερίδων δ᾽ ἐπὶ μηλόσπορον ἀκτὰν*  
 ἀνύσαιμι τᾶν ἀοιδῶν,  
 ἵν᾿ ὁ ποντομέδων πορφυρέας λίμνας  
 ναύταις οὐκέθ᾽ ὁδὸν νέμει,  
