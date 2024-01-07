@@ -1,8 +1,14 @@
-# Neue Omphalosstudien
+# Neue Omphalosstudien.
 
-## Von Wilhelm Heinrich Roscher
+### Ein Archäologischer beitrag zur vergleichenden Religions-Wissenschaft.
+
+## Von Wilhelm Heinrich Roscher.
 
 ### Mitglied der Kgl. Sächsischen Gesellschaft der Wissenschaften.
+
+## Leipzig, 1915.
+
+### Bei B. G. Teubner.
 
 ---
 
