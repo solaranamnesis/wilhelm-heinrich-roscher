@@ -1,6 +1,6 @@
 # Omphalos
 
-### Eine Philologisch-Archäologisch-Volkskundliche Abhandlung über die vorstellungen der griechen und anderer Völker vom 'Nabel der Erde'
+### Eine Philologisch-Archäologisch-Volkskundliche Abhandlung über die vorstellungen der griechen und anderer Völker vom 'Nabel der Erde.'
 
 ## Von Wilhelm Heinrich Roscher.
 
