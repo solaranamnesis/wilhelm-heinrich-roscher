@@ -617,4 +617,198 @@ Weiteres s. unter Postscripta S. 88 f.
 
 # Register.
 
+## A. Systematische Inhaltsübersicht.
+
+### Vorwort.
+
+### Kap. 1: Über die Etymologie von [GREEK] (= _umbilicus_ etc.) und die Bedeutung des 'Nabels' bei den Griechen und andern Völkern:
+
+Meringers neue Etymologie von Wu. _nebh_ = 'bewässern,' 'benetzen,' wonach [GREEK]. (= umbilicus) eigentlich nicht den 'Nabel,' sondern die (den Embryo 'wässernde') 'Nabelschnur' bedeuten soll: S. 5-10. --- Widerlegung dieser Ansicht und Nachweis, daß in den verschiedensten Sprachen das Wort für 'Nabel' ursprünglich die Vertiefung in der Mitte des Leibes und folglich 'Zentrum' und erst in zweiter Linie die 'Nabelschnur' bedeutet: S. 6-8. --- Die neuen von Meringer nachgewiesenen, an die Nabelschnur geknüpften Vorstellungen und Gebräuche verschiedener Völker: S. 8-10. --- Der Nabel als Sitz der Seele und Ausgangspunkt bei der Bildung des Embryos im Mutterleibe; die merkwürdige, bisher noch unerklärte Sekte der [GREEK] auf dem Athos: S. 11 f.
+
+### Kap. 2: Der Gedanke eines Zentrums ('Nabels') der Erdoberfläche bei verschiedenen Völkern.
+
+Dschedda am Roten Meere, das Grab Evas vr “N abel der Welt' Hach arabischer Auffassung: S.13f. --- Die Vorstellungen der Inder und Phönizier: S. 14 f. --- Neue Zeugnisse für die Geltung Jerusalems als 'Nabel der Welt': S. 15-18 (u. 73 f.). --- Vielleicht wurde auch das im Zentrum d. Peloponnes gelegene Lykaiongebirge als 'Nabel d. Erde' angesehen: S. 19-22. --- Die Annahme von Svoronos, daß ein in der Mitte der athenischen Akropolis gelegenes Heiligtum der Ge zugleich als [GREEK] angesehen worden sei: S. 22-23. --- Die von J. Loth entdeckten Zeugnisse für die Annahme eines 'Nabels der Erde' im Gebiete der Kelten: S. 24 ff.
+
+### Kap. 3: Branchidai (Didyma) und sein Orakel als Nabel der Erde:
+
+Für meine Annahme, daß Ionien und Milet (Branchidai) in älterer Zeit neben Delphi als Mittelpunkt der Erdscheibe gegolten habe und deshalb auf der ältesten Weltkarte der Ionier als deren Zentrum dargestellt worden sei, spricht jetzt auch die von Jacoby, unabhängig von mir, ausgesprochene Ansicht, daß die ältesten ionischen Geographen nach Herod. 1, 142 etc. nicht Delphi, sondern Ionien wegen seines mittleren Klimas für das Zentrum der Erde gehalten und als solches dargestellt hätten: S. 29 f. --- Neues Relief von Milet mit der Darstellung eines ruhenden Apollon, der einen schlangenumwundenen Omphalos neben sich hat: S. 30.
+
+### Kap. 4: Delphi und sein Orakel als Mittelpunkt ([GREEK]) der Welt und sein Nabelstein.
+
+#### A. Die literarischen Zeugnisse.
+
+Über die Frage, ob es im Adyton zu Delphi ein [GREEK] gegeben hat oder nicht: S. 31-41. --- Die antiken Zeugnisse des Aischylos, Cicero, Strabon, Diodor, Pompejus Trogus, Apollodor, Ps.-Aristoteles (de mundo), Plinius, Plutarch, Cassius Dio, Pausanias: S. 31-37. --- Die neueren Zeugnisse Pomtows, Karos und Baedekers: S. 38 ff. --- Ergebnis: auf Grund der Schriftstellerzeugnisse kann an der einstigen Existenz eines [GREEK] und einer damit in Verbindung stehenden Quellader der Kassotis im Adyton kaum gezweifelt werden: S. 40 f. --- Nach Pomtows Ansicht wird das [GREEK] selbst oder wenigstens seine Stelle sicher aufgefunden werden, sobald man --- was bis 1912 noch nicht geschehen war --- das Adyton sorgfältig ausgräbt: S. 39 ff. --- Der ursprüngliche alte Omphalos muß im Adyton in unmittelbarer Nähe des [GREEK] und des pythischen Dreifußes gestanden haben, aber außerdem gab es wahrscheinlich noch einen zweiten Omphalos in der eigentlichen Tempelcella, der in einer besonderen 'aedicula' stand und im Gegensatz zu dem alten Nabelstein des nur wenigen zugänglichen Adytons für alle Tempelbesucher sichtbar und zugänglich war: S. 42 f. --- Wie es scheint, ist es jetzt dem französischen Archäologen Courby gelungen, den echten alten Nabelstein des Adytons aufzufinden: S. 43 ff. --- Über Varro de l. l. 7, 17: S. 46. --- Über den [GREEK] im Tempel des Apollon Pythaeus in Argos: S. 46 f. --- Weitere Schriftstellerzeugnisse für Delphi als 'Nabel der Erde': S. 47 f.
+
+#### B. Die monumentalen Zeugnisse.
+
+a\. Die plastischen Nachbildungen des delphischen Omphalos.
+
+Der von Rhomaios entdeckte Omphalos von Thermos in Aitolien: S. 49 f. --- Der Marmoromphalos von Delos: S. 50 f. --- Das Omphalosrelief von Kyzikos: S. 51 f. --- Die Kandelaberbasis aus den Thermen des Titus: S. 52. --- Das aus dem Temenos des Apollon Daphnephoros zu Eretria stammende Omphalosrelief etc: S. 52 f.
+
+b\. Wandgemälde.
+
+c\. Der delphische Omphalos auf Münzen.
+
+d\. Vasenbilder.
+
+### Kap. 5: Weitere wahrscheinlich nicht von Delphi abhängige Kulte des Apollon, Asklepios usw., in denen Omphaloi vorkamen.
+
+Der omphalosförmige 'Bomos' im Tempel zu Thymbra: S. 58 f. --- Die Kulte von Patara und Lyrbe: S. 59. --- Der Omphalos als Attribut des Telesphoros und der Hestia: S. 59 f.
+
+### Kap. 6: Grabmonumente in Omphalosform.
+
+### Kap. 7: Problematische Omphaloi.
+
+Der netzbedeckte, schlangenumwundene Omphalos' in ern ungedeuteten Reliefs etruskischer Aschenkisten: 8. 62---64. --- Verschiedene 'Omphaloi' (Baityloi?) auf Münzen und Tesseren: S. 64ff. --- Die von Burarp als Symbole der Hestia und des Genius gedeuteten (gemalten) Omphaloi, an den Außenwänden von Häusern auf Delos: S.67 ff. --- Omphaloi(?) auf attischen Bleitesseren: 8. 69.
+
+### Schlußwort.
+
+### 8. Zusätze und Berichtigungen.
+
+### 9. Systematische Inhaltsübersicht.
+
+### 10. Alphabetisches Register.
+
+### 11. Stellenregister.
+
+### 12. Erläuterndes Verzeichnis der Abbildungen.
+
+### 13. Postscripta.
+
+# Erläuterndes Verzeichnis der Abbildungen.
+
+## a\. Im Texte:
+
+S. 38: Das delphische Adyton als Höhle mit Omphalos, hinter dem sich der Pythondrache zu verbergen sucht; links davor Leto mit dem kindlichen Apoll auf dem Arm, der gerade im Begriff ist, einen Pfeil auf den Python abzuschießen, rechts davor die jungfräuliche Artemis den Python im Adyton beobachtend. Schwarzfigurige (archaische) Lekythos in Paris nach Roschers Lexikon d. Mythol. 3 Sp. 3408 Fig. 4; vgl. 'Omphalos' S. 104 f. sowie daselbst Tafel 4 Fig. 3.
+
+S. 69: Omphalosförmiger Grabtumulus mit Stele dahinter: Lekythos aus Eretria im Brit. Museum, nach Jahrb. d. Archäol. Inst. 27 (1912) S. 138. S. ob. S. 61 f. und unten S. 89.
+
+S. 71: Revers einer Bronzemünze des Gallienus von Tyrus (COLonia TVROs METropolis): Europa ([SVG][GREEK]), einen Korb mit den Händen tragend, steht am Strande von Tyros. Ihr nähert sich der aus dem Meere kommende Zeus-Stier. Die Lokalität von Tyros ist deutlich bezeichnet durch die beiden omphalosförmig ge bildeten 'ambrosischen Felsen' ([GREEK]), zwischen denen der feurige Ölbaum ([GREEK] Nonnos) als Symbol des Zentrums der Erdscheibe (?) erscheint. S. oben S. 15 u. Anm. 34. Müller-Wieseler, Denkm. a. Kunst 3 S. 40 u. daselbst Tafel 3 Fig. 40.
+
+## b\. Auf den Tafeln:
+
+### Tafel 1.
+
+Fig. 1: Der kürzlich von Courby an der Stelle des alten apollinischen Adytons von Delphi entdeckte große omphalosförmige Porosstein mit der altertümlichen Inschrift ([SVG] [= [GREEK]?]), der höchstwahrscheinlich den echten alten Nabelstein des Adytons darstellt. S. oben S. 44 ff. Federzeichnung von Alice Roscher nach Comptes Rendus de l'Acad. d. Inscript. et B.-L. de l'année 1914 (Bull. d'Avril-Mai) p. 268 Fig. 3.
+
+Fig. 2: Der auf dem Vorplatze des delphischen Apollontempels ausgegrabene große, prachtvolle, mit elegantem Netzwerk ([GREEK]) versehene Marmoromphalos, dessen Pausanias (10, 16, 3) gedenkt. Vgl. Omphalos S. 81 f. und daselbst Tafel 6 Fig. 1. Nach einer mir gütigst von der Deutschen Verlagsanstalt, der Herausgeberin von 'Über Land und Meer' (s. Jahrg. 1913 Nr. 3 S. 1083), überlassenen großen Photographie (verkleinert).
+
+Man beachte die große formelle Verschiedenheit der beiden hauptsächlichsten Nabelsteine im Apollontemenos von Delphi selbst; doch ähnelt die Form der meisten Omphalosdarstellungen in Reliefs, Münzen, Wand- und Vasenbildern viel mehr dem alten konischen Porosstein als dem erheblich jüngeren, auf dem Vorplatz des Tempels aufgestellt gewesenen, mehr zylindrisch geformten, welcher Umstand sehr für die Echtheit und Bedeutung des ersteren spricht.
+
+Fig. 3: Der Omphalos von Thermos nach einer mir von Rhomaios gütigst zur Verfügung gestellten Photographie. S. oben S. 49 f.
+
+### Tafel 2. (Münztafel.)
+
+Fig. 1 u. 2: Obvers und Revers einer archaischen Didrachme (unediert!) der kretischen Stadt Lappa (etwas vergrößert). S. oben S. 56 f.
+
+Fig. 3: Didrachme von Tauromenion, nach einem mir von Imhoof-Blumer gütigst übersandten Gipsabdruck (etwas vergrößert). S. oben S. 55. Obv.: Apollonkopf mit Lorbeerkranz. --- ℞: [SVG] und Omphalos von (lebendiger) Schlange umringelt. Paris (de Luynes). Vgl. Ann. d. Inst. 1847 S. 418 Anm. 2.
+
+Fig. 4: Bronzemünze von Pergamon nach einem Gipsabguß Imhoof-Blumers (etwas vergrößert). Obv.: Kopf des Asklepios mit Lorbeer r. --- ℞: [SVG] und Omphalos von (lebendiger) Schlange umringelt.
+
+Fig. 5: Silberdiobolos von Rhegion, nach einem Gipsabdruck Imhoof-Blumers (etwas vergrößert). Obv.: Apollonkopf mit Lorbeer. --- ℞: [SVG] und Omphalos auf niedriger Basis stehend, ohne Schlange.
+
+Fig. 6: Bronzemünze von Neapolis, nach einem Gipsabguß Imhoof-Blumers (etwas vergrößert). Obv.: Apollonkopf mit Lorbeer. --- ℞: [SVG] und Lyra an den Omphalos gelehnt, auf dessen Spitze eine Schlange sich emporhebt. Vgl. Brit. Mus. Italy S. 116.
+
+Fig. 7 u. 8: Bronzemünze des Sept. Severus von Chalkis auf Euboea. Obv.: [SVG], Kopf des Severus r., lorbeerbekränzt. --- ℞: [SVG], Hera ([SVG]) sitzend l. auf einem netzbedeckten Omphalos ('conical rock'?? 'Korb'??); sie trägt ein Diadem und hält in der R. eine Patera, in der L. ein mit einer Binde versehenes Szepter und ist bekleidet mit eine1n langen Chiton und Peplos. Nach Brit. Mus. Central Greece Pl. 21, 12 (vgl. S. 118). S. oben S. 65 f.
+
+Fig. 9: Silberstater Philippos' 2. (etwas vergrößert). Obv.: Kopf des Zeus mit Lorbeerkranz. --- ℞: [SVG]. Jugendlicher nackter Reiter r. Unter dem Bauche des Pferdes, zwischen dessen Füßen netzbedeckter konischer (spitzzulaufender) Omphalos. Nach einem Gipsabdruck Imhoof-Blumers.
+
+Fig. 10: Bronzemünze von Myrina (Aiolis). Obv.: Apollonkopf mit Lorbeer r. --- ℞: [GREEK] Omphalos (konisch, sehr spitz zulaufend) neben Dreifuß und darüber Lorbeerzweig. Vgl. Imhoof-Blumer, Griech. u. röm. Mzkde. 1908, 57, 1. Nach einem Gipsabdruck Imhoof-Blumers (etwas vergrößert).
+
+Fig. 11: Bronzemünze von Pitane (Mysien), nach einem Gipsabdruck Imhoof-Blumers (etwas vergrößert). Obv.: Kopf des Zeus Ammon von vorn. --- ℞: [SVG], Omphalos von einer Schlange umwunden. Im Felde ein Pentalpha. Vgl. Zeitschr. f. Num. 1 (1873) 139, 2 und Head, Hist. Nu. 1 S. 464 f. Brit. Mus. Mysia S. 171 ff. Tafel 34, 5 ff. Zum Pentalpha vgl. Eisler, Weltenmantel etc. S. 303 ff.
+
+Fig. 12: Große Bronzemünze des Philippus Senior von Bizya (Thrakien) nach Brit. Mus. Thrace S. 89. Obv.: [SVG], Kopf des Phil. r. mit Lorbeerkranz, mit Brustharnisch und Paludamentum. --- ℞: [SVG]. In der Mitte Apollon nackt, stehend, einen Lorbeerzweig in der R. haltend. Links von ihm Asklepios mit Schlangenstab in der R., stehend, zwischen ihm und Apollon der kleine Telesphoros. Rechts von Apollon Hygieia, in der R. eine Schlange, in der L. eine Schale haltend und aus dieser die Schlange tränkend. Zwischen Apollon und Hygieia ein zylindrisch geformter, flachgewölbter Omphalos (kein Ei = 'egg'!), um den sich eine lebendige Schlange windet. Im Felde oben l. Statue der sitzenden Fortuna mit Ruder und Füllhorn, r. die eines nackten stehenden Zeus, der den Blitz mit der R. schleudert.
+
+Fig. 13: Silberstater von Anaktorion in Akarnanien, einer Kolonie der Korinther, nach einem Gipsabdruck Imhoof-Blumers (etwas vergrößert). Kopf der Athena mit korinthischem Helm l. Dahinter r. [SVG] und ein netzbedeckter konischer Omphalos, von dem Troddeln herabhängen. Vgl. 'Omphalos' Taf. 1 Fig. 21.
+
+Fig. 14: Drachme von Delphoi, nach einem Gipsabdruck Imhoof-Blumers (etwas vergrößert). Obv.: Kopf der Demeter mit Schleier l. --- ℞: [GREEK], netzbedeckter, konischer, nicht besonders hoher Omphalos, von einer lebendigen Schlange umringelt. Vgl. Prokesch-Osten, Rev. Num. 1860 Tafel 12 (jetzt Berlin).
+
+Fig. 15: Bronzemünze des Caracalla von Emisa. Obv.: [SVG], Kopf des Caracalla r., mit Lorbeerkranz, Harnisch und Paludamentum. --- ℞: [SVG]. Sechssäuliger Tempel des Elagabal zu Emisa, darin der konische Baitylos auf einer hohen würfelförmigen Basis, oben l. und r. zwei Sonnenschirme. Nach Brit. Mus. Galatia etc. Tafel 27, 13 (vgl. S. 239).
+
+Fig. 16: Erzmünze des Antoninus Pius von Emisa nach Brit. Mus. Galatia etc. Tafel 27, 9 (vgl. S. 237). Obv.: [SVG], lorbeerbekränzter Kopf des Kaisers r. --- ℞: Der heilige Stein des Elagabal (omphalosförmig), an ihm ein Stern, auf ihm ein Adler. Inschrift: [SVG].
+
+Fig. 17: Bronzemünze von Chalkis auf Euboia nach Imhoof-Blumer, Antike griech. Münzen. Genf 1913. Tafel 1 nr. 2. Vgl. oben S. 64 f.
+
+Fig. 18: Desgl. S. oben S. 64 f.
+
+Fig. 19: Bronzemünze des Severus Alexander von Seleucia nach Brit. Mus. Galatia etc. Tafel 33, 8 (vgl. S. 277). Obv.: [SVG]..., Kopf des Sever. Alex. mit Lorbeerkranz, im Harnisch und Paludamentum r. --- ℞: [SVG]... Der heilige omphalosförmige Stein des Zeus Kasios mit einem eigentümlichen Überzug (Agrenon?) in einem viersäuligen Tempel, unter dem die Inschrift [SVG][GREEK]? erscheint.
+
+Fig. 20: Münze des L. Rubrius Dossen[nus] nach Babelon, Monn. de la républ. Rom. 2 p. 408. Obv.: Doppelkopf des bärtigen Ianus; zwischen den beiden maskenförmigen Profilen ein Omphalos oder Cippus (auf Basis), um den sich eine lebendige Schlange windet. --- ℞: Schiffsprora, darüber L. RVBRI DOSSEN.
+
+Fig. 21: Bleitessera des numismatischen Nationalmuseums in Athen, nach einem mir von Svoronos gütigst übersandten Abguß (etwas vergrößert). Svoronos schreibt mir dazu: 'Empreinte en cire d'une tessère attique copiant l'Apollon sur l'omphalos des monnaies des [GREEK] de Delphes (No. 3239 = 868).
+
+Fig. 22: Bleitessera aus Athen nach Bulletin de Corresp. Hellén. 8 (1884) Pl. 6 nr. 214. Obv.: Omphalos mit Schlange, daran gelehnt ein Füllhorn. --- ℞: Sphinx.
+
+Fig. 23: Münze des L. Rubrius Dossen[nus] nach Babelon, Monn. de la républ. Rom. 2 p. 408. Obv.: Doppelkopf des Mercurius mit Flügelhut. --- ℞: Säulentempel, darin ein von einer Schlange umwundener Omphalos, rechts eine Schiffsprora.
+
+Fig. 24, 25, 27, 28: Bleitesseren von Athen, nach Gipsabdrücken, die ich Svoronos verdanke (etwas vergrößert). Man beachte die verhältnismäßige Schlankheit des Omphalos auf Nr. 25 und 27, die einigermaßen an die Säulen des Apollon Agyieus erinnert und vielleicht den Übergang zu diesen bildet.
+
+Fig. 26: Münze der Rubria nach Babelon a. a. O. 2 p. 409. Obv.: Kopf des Mercurius mit Flügelhut. --- ℞: Säulentempel mit Omphalos darin, der von einer lebendigen Schlange umringelt ist. Rechts davon eine Schiffsprora.
+
+### Tafel 3. (Reliefs.)
+
+Fig. 1: Relief von Panormos bei Kyzikos, jetzt im Brit. Museum, nach Bullet. de Corresp. Hellén. 23 (1899) Pl. 4. S. oben S. 51 f.
+
+Fig. 2: Relief aus Eretria nach [GREEK] 3 (1911) p. 33 Fig. 21. S. oben S. 52 f.
+
+Fig. 3: Relief von Delos nach Bulard, Monuments et Mémoires Piot 14 (1907) p.62 f. Fig. 20. S. oben S. 51.
+
+### Tafel 4.
+
+Fig. 1: Aedicula auf altar- oder würfelförmiger Basis Darin ein netzumsponnener, von einer lebendigen Schlange umringelter 'Omphalos.' Von einer etruskischen Aschenkiste, wo eine bis jetzt rätselhafte mythologische Szene dargestellt ist. Nach Brunn-Koerte, Rilievi d. urne etrusche 2 Tafel 94, 2. S. oben S. 63 f.
+
+Fig. 2: Relief von einer Kandelaberbasis, gefunden in den Thermen des Titus, nach Annali d. Inst. 1850 Tav. d'agg. B. S. oben S. 52. Auch hier ist die den Omphalos umringelnde Schlange offenbar lebendig zu denken.
+
+Fig. 3: Aedicula mit schlangenumwundenem 'Omphalos' aus der ungedeuteten Szene einer etruskischen Aschenkiste, nach Brunn-Koerte a. a. O. 1 Tafel 47. S. oben S. 62 f.
+
+Fig. 4: Pompejanisches Wandbild nach Bulard a. a. O. S. 70 Fig. 21. S. oben S. 55.
+
+Fig. 5: Aedicula mit Omphalos wie Fig. 1 und 3 nach Brunn-Koerte a. a. O. 2 Tafel 75, 1. S. oben S. 63.
+
+### Tafel 5.
+
+Fig. 1: Terrakotta (von Taman) in St. Petersburg, beschrieben von Stephani im Compte Rendu de St. Pétersb. 1870/71 (Petersb. 1874) S. 164 und abgebildet in dem dazu gehörigen Atlas Tafel 2 Fig. 3 sowie b. Hauser, Österr. Jahresh. 16 (1913) S. 67 Fig. 27: Apollon auf einem Würfel sitzend. Unter seinen ausgestreckten Füßen der delphische Omphalos (niedrig, ohne Basis und Netz); halbkugelförmig S. 'Omphalos' S. 95.
+
+Fig. 2: Schöner Marmoromphalos von Delos (mit Lorbeerkranz und umringelnder Schlange) nach Bulard in den Monuments et Mémoires Piot 14 (1907) p. 62 f. Fig. 19. S. oben S. 50 f. u. S. 68 Anm. 95.
+
+Fig. 3: Schöne Bronzemünze (des Commodus) von Milet nach 'Omphalos' Tafel 1 Fig. 2: Apollon sitzt malerisch hingegossen auf einem Felsen und stützt sich mit dem linken Arm auf einen von einer Schlange umringelten ziemlich hohen bienenkorbförmigen Omphalos. Vgl. 'Omphalos' Tafel 1 Fig. 2 und S. 47, wo u. a. die Ansicht ausgesprochen ist, daß die Münze auf 'ein schönes statuarisches Bildwerk oder Relief aus bester Zeit' hindeute, 'welches der betreffende Münzstempelschneider bei seiner Darstellung des Gottes vor Augen gehabt hat.' Diese Vermutung ist jetzt auf das Erfreulichste bestätigt worden durch:
+
+Fig. 4: Relief aus dem Theater von Milet (nach Kawerau-Rehm, Das Delphinion in Milet. Berlin 1914. S. 421 Fig. 101), das trotz seiner rechts oben und links unten wahrnehmbaren Verstümmelung den Gott offenbar in fast genau derselben Haltung darstellt wie die Münze; nur ist hier der Omphalos (mit der Schlange) wesentlich niedriger gebildet als auf der Münze. S. oben S. 30.
+
+Fig. 5: Tetradrachme von Kalchedon: Apollon nackt auf basislosem bienenkorbförmigen Omphalos sitzend und in der vorgestreckten rechten Hand einen Pfeil haltend. Vgl. 'Omphalos' Tafel 1 Fig. 10 und daselbst S. 98.
+
+Fig. 6: Münze des Septimius Severus von Megara nach Svoronos, [GREEK]. 3 (1912) 3/4 [GREEK]. 22: Sept. Sev. als Adorant vor dem langgewandeten Apollon Kitharodos (= Pythios?) stehend; in der Mitte der basislose, netzbedeckte, fast halbkugelförmige Omphalos von Delphi, auf dessen Spitze zwei Adler sitzen, die die Köpfe voneinander abwenden. Vgl. 'Omphalos' Tafel 1 Fig. 9 und daselbst S. 126 f., sowie das ebendort Tafel 8 Fig. 3 abgebildete ganz ähnliche Relief von Aigina.
+
+Fig. 7: Relief aus dem alten athenischen Asklepieion nach (Hauser in) Jahreshefte des österreich. archäol. Instituts 16 (1913) S. 63 Fig. 26: In der Mitte Asklepios auf einem großen, sehr breiten und flachgewölbten, netzbedeckten Omphalos sitzend. Vgl. Hauser a. a. O. Das Relief ist auch abgebildet bei Svoronos, Nationalmuseum 1, 53 S. 333 und besprochen außer von Hauser a. a. O. auch von v. Duhn, Archäol. Ztg. 1877 S. 162 u. 170, sowie von Milchhöfer, Athen. Mitteil. 1880 S. 219 und von Furtwängler ebenda 1878 S. 186. Nach Hauser a. a. O. S. 63 f. ist es entstanden bald nach dem Parthenonfries, also, da der athenische Asklepiosdienst offiziell erst um 420 eingeführt wurde, bald nach Beginn des neuen Kultes. 'Den Sitz des Gottes halte ich [Hauser] mit Furtwängler und Svoronos für den mit Agrenon bedeckten Omphalos, trotz der entgegenstehenden Angaben v. Duhns und Milchhöfers. Seine hier durcheinander und übereinander verschobenen Stemmata finden eine genaue Analogie an dem zu Delphi ausgegrabenen Omphalos.' [S. unsere Tafel 1 Fig. 2.] 'Wenn im Asklepiosrelief der Gott ausnahmsweise einmal auf dem Omphalos sitzt, so darf das bei ihm, der von Haus aus Orakelgott und nicht Heilgott war, nicht allzusehr wundernehmen; er behält ja selbst in jüngeren statuarischen Werken meist einen --- dann allerdings stark reduzierten --- Omphalos neben sich.' [Eine andere Erklürung des O. des Asklepios habe ich 'Omphalos' S. 111 ff. zu geben versucht.] Den Jüngling links mit geschorenem Haar hält Hauser für Apollon, das Weib rechts Furtwängler für Hygieia, was Hauser aber für etwas zweifelhaft erklärt.
+
+Fig. 8: Bronzemünze hadrianischer Zeit von Delphi, darstellend den von einer (lebendigen?) Schlange umringelten konischen Omphalos von Delphi, nach Brit. Mus. Central Greece Tafel 4, 20 = 'Omphalos' Tafel 1 Fig. 8 (vgl. S. 96). Ähnlich auch Svoronos, Journ. Internat. d'Arch. Numism. 14 (1912) [GREEK] 27; [GREEK] 13 (Pergamon); 12 u. 23 (Delphi).
+
+Fig.9: Delphische Amphiktionenmünze (4. Jahrh.) nach Overbeck, Apollon, Münztafel 3 nr. 35 = 'Omphalos' Tafel 1 Fig. 7: Apollon Kitharodos auf dem delphischen Omphalos sitzend (vgl. daselbst S. 95 f.).
+
+### Tafel 6.
+
+Fig. 1: Gemälde von dem Kopfende eines klazomenischen Sarkophags in Leiden nach (Hauser in) Jahrb. des kais. deutschen Archäol. Instituts 28 (1913) S. 274 f. u. Tafel 3: Neoptolemos führt die Polyxena zum (omphalosförmigen) Grabmal des Achilleus, um sie zu opfern.* Vgl. oben S. 61 f. und unten Fig. 3. S. auch v. Duhn, Jahrb. des kais. deutschen Archäol. Instituts 28 (1913) S. 272 f.
+
+*) 'Wie der Aufsatz [auf dem Tymbos] richtig zu erklären ist, zeigt erst die tyrrhenische Amphora: Flammen schlagen aus der Spitze des Tymbos empor. Demnach ein wichtiger Anhaltspunkt für die Bestimmung des bienenkorbförmigen Tymbos, dessen Verständnis Engelmann in den Österr. Jahresheften 8 (1905) S. 145 und zuletzt 11 (1908) im Beiblatt S. 107 erheblich gefördert hat. Der Maler dachte sich demnach den Tymbos des Achilleus, als Polyxena geopfert wurde, noch in voller Glut, und tatsächlich muß ja auch das Holz in diesem wenig Luft zulassenden Hohlraum ähnlich wie im Kohlenmeiler langsam abgeglostet haben' (Hauser a. a. O. S. 274 f.). Vgl. auch das Vasenbild 'Omphalos' Tafel 4 Fig. 1.
+
+Fig. 2: Bronzemünze von Rhegion nach Overbeck, Apollon, Münztafel 3, 43 = 'Omphalos' Tafel 1, 14: Apollon (nackt) auf dem Omphalos sitzend und in der R. einen Pfeil haltend.
+
+Fig. 3: Schwarzfiguriges Bild einer Hydria in Berlin (nr. 1902) nach Overbeck, Galerie heroischer Bildw. Tafel 27, 17 = Roschers Lexikon der Mythol. 3 Sp. 2735/6 Fig. 11: Neoptolemos führt Polyxena zur Opferung an das omphalosförmige Grabmal des Achilleus. Am Grabmal eine Schlange, oberhalb desselben das Eidolon des Achilleus.
+
+Fig. 4: Tetradrachme des Antiochos 1. von Syrien nach Overbeck a. a. O. Münztafel 3, 31 = 'Omphalos' Tafel 1, 13: Apollon (nackt) auf dem Omphalos sitzend und in der R. einen Pfeil haltend.
+
+Fig. 5: Themis auf dem delphischen Omphalos sitzend, Figur aus dem Bilde der schönen Petersburger Vase bei Furtwängler-Reichhold 2 Tafel 69 = Studniczka, Themis... Festgabe z. Winckelmannsfeste des archäol. Seminars d. Univers. Leipzig am 9. Dez. 1913 S. 3, mit gütiger Bewilligung des F. Bruckmannschen Verlages in München und des Geheimr. Studniczka in Leipzig (ebenso wie die folgende Figur) wiedergegeben. S. oben S. 57 f.
+
+Fig. 6: Themis auf dem delphischen Omphalos sitzend, Figur aus dem Bilde der Petersburger Vase aus Pavlovskoi-Kourgane bei Furtwängler-Reichhold a. a. O. 2 Tafel 70 = Studniczka a. a. O. S. 4.
+
+### Tafel 7. (Vasenbilder mit omphalosförmigen Grabmälern.)
+
+Fig. 1: Schwarzfiguriges Vasenbild nach Gerhard, Auserles. Vasenbilder 3, 199 = Roschers Lex. d. Mythol. 3 Sp. 1711/12: Schleifung Hektors um das omphalosförmige Grabmal des Patroklos, dessen gerüstetes Eidolon über dem Tumulus schwebt (anwesend Achilleus, Odysseus und eine rätselhafte Flügelgestalt [GREEK]?).
+
+Fig. 2: Schwarzfiguriges Bild einer Vase aus Attika, im Besitz von Ed. Roese nach Archäol. Anzeiger 1909 1 Sp. 29 ff.: Zwei Silene rechts und links von einem omphalosförmigen Grabmal, auf dem ein großer Raubvogel sitzt und vor dem eine schlanke Hirschkuh vorüberspringt. S. oben S. 60 f.
+
+Fig. 3: Schwarzfiguriges Bild einer Vase in Berlin nach Gerhard a. a. O. Tafel 198. Links: Viergespann, das den omphalosförmigen Tumulus des Patroklos umfährt; rechts: Achilleus (Hoplit) laufend. Über dem Viergespann schwebt das geflügelte Eidolon des Patroklos.
+
+# Postscripta.
+
 ...
