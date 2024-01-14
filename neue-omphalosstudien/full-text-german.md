@@ -246,24 +246,33 @@ Auf einen wunden Punkt in meinen Darlegungen des 4. Kapitels (vgl. S. 78 f. Anm.
 
 1\. Aeschyl. Choeph. 795 Herm.:
 
-[GREEK].*
+τὸ δὲ καλῶς κτίμενον ὦ μέγα ναίων  
+στόμιον, εὖ δὸς ἀνέδην δόμον ἀνδρός,  
+καί νιν ἰδεῖν φιλίοις  
+ὄμμασιν ἐκ δνοφερᾶς καλύπτρας.*
 
-*) Ähnlich auch Karo (Arch. Anz. 1913 Sp. 103): 'Schon jetzt... darf man sagen, dass das [GREEK] nie wirklich existiert hat.' Weiteres s. unt. S. 41 A. 72 b.
+*) Ähnlich auch Karo (Arch. Anz. 1913 Sp. 103): 'Schon jetzt... darf man sagen, dass das χάσμα γῆς nie wirklich existiert hat.' Weiteres s. unt. S. 41 A. 72 b.
 
 *) Soeben sehe ich, dass Wilamowitz in seiner neuen Ausgabe folgende mir viel mehr einleuchtende Lesungen bietet:  
-806: [GREEK].
+806:  
+τὸ καλῶς δὲ κτίμενον [ὦ]  
+μέγα ναίων στόμιον [εὖ]  
+ἀνιδεῖν δὸς δόμον ἀνδρός,  
+καί νιν ἐλευθερίας  
+λαμπρὸν φῶς ἰδεῖν φιλίοις  
+ὄμμασιν <ἐκ> δνοφερᾶς καλύπτρας.
 
-Hermann (2 S. 557) bemerkt dazu: 'Libri [GREEK]... Scholiastes [GREEK]. Recte Bambergerus haec sic emendavit, [GREEK]. --- Scholiastes haec verba, [GREEK], interpretatur [GREEK].* Apollinem recte intellexit Heathius. Infra v. 941: [GREEK]... 'Tu vero, qui bene conditam magnam speluncam tenes, fac ut domus viri libere, et ipse (Agamemno) amicis oculis ex caliginoso velamine (sepulcri) adspiciat.' --- Ob freilich hier unter dem [GREEK] (= [GREEK]) der doch jedenfalls schmale Erdspalte zu verstehen ist, aus dem der mantische Dunst emporstieg, dürfte einigermaßen zweifelhaft sein. Die Ausdrücke [GREEK] und [GREEK] scheinen vielmehr auf etwas viel 'Größeres,' durch prachtvolle Architektur Imponierendes, d. h. entweder auf die Grotte des delphischen Adytons als Ganzes* oder wohl noch besser auf die imposante delphische (auch den schmalen mantischen Erdspalte einschließende) Schlucht, d. i. das Pleistostal, hinzudeuten, die a. a. O. v. 941 sehr passend auch als [GREEK] bezeichnet wird. Aus diesen Gründen und weil auch sonst die Überlieferung und das Verständnis dieser Verse ziemlich unsicher ist, trage ich Bedenken, die Worte des Aischylos als vollgültiges Zeugnis für [GREEK] im Sinne von 'Erdspalte' zu betrachten.
+Hermann (2 S. 557) bemerkt dazu: 'Libri τόδε καλῶς κτάμενον... Scholiastes διὰ τοῦτο τὸ καλῶς ἀναιρεθησόμενον. λέγει δὲ τὸ αἷμα τοῦ Αἰγίσθου. ὦ Ἅιδη. Recte Bambergerus haec sic emendavit, τὸ δὲ καλῶς κτίμενον. --- Scholiastes haec verba, ὦ μέγα ναίων στόμιον, interpretatur ὦ Ἅιδη.* Apollinem recte intellexit Heathius. Infra v. 941: ὁ Λοξίας ὁ Παρνάσσιος μέγαν ἔχων μυχὸν χθονός. Hesych. στόμια, χάσματα... 'Tu vero, qui bene conditam magnam speluncam tenes, fac ut domus viri libere, et ipse (Agamemno) amicis oculis ex caliginoso velamine (sepulcri) adspiciat.' --- Ob freilich hier unter dem μέγα στόμιον (= μέγας μυχός) der doch jedenfalls schmale Erdspalte zu verstehen ist, aus dem der mantische Dunst emporstieg, dürfte einigermaßen zweifelhaft sein. Die Ausdrücke μέγα und καλῶς κτίμενον scheinen vielmehr auf etwas viel 'Größeres,' durch prachtvolle Architektur Imponierendes, d. h. entweder auf die Grotte des delphischen Adytons als Ganzes* oder wohl noch besser auf die imposante delphische (auch den schmalen mantischen Erdspalte einschließende) Schlucht, d. i. das Pleistostal, hinzudeuten, die a. a. O. v. 941 sehr passend auch als μέγας μυχὸς χθονός bezeichnet wird. Aus diesen Gründen und weil auch sonst die Überlieferung und das Verständnis dieser Verse ziemlich unsicher ist, trage ich Bedenken, die Worte des Aischylos als vollgültiges Zeugnis für στόμιον im Sinne von 'Erdspalte' zu betrachten.
 
-*) Vielleicht dachte der Scholiast bei seiner Erklärung an Pind. P. 4, 44: [GREEK].
+*) Vielleicht dachte der Scholiast bei seiner Erklärung an Pind. P. 4, 44: πὰρ χθόνιον Ἅιδα στόμα, Ταίναρον εἰς ἱερόν.
 
-*) Über [GREEK] ([GREEK]) im Sinne von [GREEK] s. Rohde, Psyche 2 1, 135, 1; Aesch. Eum. 39. Eur. Or. 331 (= Omphalos S. 59 Anm. 109).
+*) Über μυχός (-οί) im Sinne von ἄντρον s. Rohde, Psyche 2 1, 135, 1; Aesch. Eum. 39. Eur. Or. 331 (= Omphalos S. 59 Anm. 109).
 
 2\. Cicero de divin. 1, 36, 79: Dii immortales... ipsi se nobis non offerunt, vim autem suam longe lateque diffundunt: quam cum terrae cavernis includunt, tum hominum naturis implicant. Nam terrae vis Pythiam Delphis incitabat, naturae Sibyllam.
 
-3\. Strabon 9 p. 419: [GREEK].
+3\. Strabon 9 p. 419: Φασὶ δ᾽ εἶναι τὸ μαντεῖον ἄντρον κοῖλον κατὰ βάθος οὐ μάλα εὐρύστομον, ἀναφέρεσθαι δ᾽ ἐξ αὐτοῦ πνεῦμα ἐνθουσιαστικόν, ὑπερκεῖσθαι δὲ τοῦ στομίου τρίποδα ὑψηλόν, ἐφ᾽ ὃν τὴν Πυθίαν ἀναβαίνουσαν δεχομένην τὸ πνεῦμα ἀποθεσπίζειν ἔμμετρά τε καὶ ἄμετρα.
 
-4\. Diod. 16, 26: [GREEK].*
+4\. Diod. 16, 26: Λέγεται... τὸ παλαιὸν αἶγας εὑρεῖν τὸ μαντεῖον· οὗ χάριν αἰξὶ μάλιστα χρηστηριάζοντάι μέχρι νῦν οἱ Δελφοί. τὸν δὲ τρόπον τῆς εὑρέσεως γενέσθαι φασὶ τοιοῦτον. Ὄντος χάσματος ἐν [GREEK].*
 
 *) Das [GREEK] wird von Herod. 1, 47; 7, 140 auch [GREEK] genannt, welcher Ausdruck bekanntlich öfters ein unterirdisches oder unterhalb des Niveaus der Tempelcella liegendes Gemach bezeichnet (Stengel, Griech. Kultusaltertümer 2 S. 26, 5). Damit stimmt die Tatsache überein, dass von dem Betreten des delphischen Adytons oft Ausdrücke wie [GREEK], descendere, mergere etc. gebraucht werden (s. Plut. Timol. 8; Ulrichs Reisen u. Forsch. 1 p. 80 u. Pomtow, Philologus 71 (1912) S. 71).
 
