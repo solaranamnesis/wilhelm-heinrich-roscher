@@ -10,7 +10,7 @@
 
 ### Bei B. G. Teubner.
 
-![](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/NeueOmphalos/rosher-omph2-tab5-2.png)
+[Titelbild.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/NeueOmphalos/rosher-omph2-tab5-2.png)
 
 ---
 
