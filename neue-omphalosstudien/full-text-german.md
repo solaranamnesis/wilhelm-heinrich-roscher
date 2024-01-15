@@ -352,7 +352,7 @@ und Eudoxos b. Plut. de Pyth. orac. 17 bezeichnet es wegen seiner dämonischen o
 
 *) Auch den Ausdruck ἄντρον in den Worten des Philodamos-Paian Strophe 11: ἔταξε (Ἀπόλλων)... ζαθέῳ τε τ[εῦ]ξαι θεῷ πρέπον ἄντρον bezieht Pomtow a. a. O. S. 72 auf das apollinische Adyton. --- Vgl. auch die merkwürdige schwarzfigurige Lekythos, auf der die delphische Grotte nebst dem Omphalos deutlich abgebildet ist (Omphalos Tafel 4 Abb. 4); s. unsere Abbildung auf der folg. S. 38 und das Vasenbild bei Baumeister, Denkm. S. 103 Fig. 109.
 
-[Das delph. Adyton als Höhle mit Omphalos: s. Anm. 69.]()
+[Das delph. Adyton als Höhle mit Omphalos: s. Anm. 69.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/NeueOmphalos/rosher-omph2-fig1.png)
 
 Was hat man nun im Hinblick auf diese im großen und ganzen übereinstimmenden Überlieferungen des klassischen Altertums von der neuerdings, namentlich von den um die Ausgrabung Delphis so hochverdienten französischen Archäologen, vertretenen Annahme zu halten? Sollte wirklich der Behauptung, dass sich im Adyton ein magische Dünste und prophetisch begeisterndes Quellwasser bergender Felsspalt befunden habe, nur eine (aus der Analogie von Klaros und Branchidai erklärbare) 'pia fraus' zugrunde liegen?
 
@@ -594,7 +594,7 @@ Ganz rätselhaft ist bis jetzt auch das auf römischen Familienmünzen (namentli
 
 In diesem Zusammenhang sind endlich auch noch mehrere in Attika gefundene Bleitesseren zu erwähnen, von denen eine im Bull. de Corr. Hellén. 8 (1884) Pl. 6 nr. 214 (s. unsere Tafel 2 Fig. 23) abgebildet ist, während vier andere, nach Svoronos dem 4. Jahrh. angehörende, mir von diesem ausgezeichneten Forscher in Gipsabdrücken gütigst zur Verfügung gestellt worden sind (s. unsere Tafel 2 Fig. 24, 25, 27, 28). Im ersten Falle handelt es sich um einen schlangenumwundenen Omphalos neben einem Füllhorn, bei zweien der Svoronosschen Abdrücke ist der auffallend schlanke 'Omphalos,' wie es scheint, von einem mir völlig rätselhaften einfachen oder doppelten Rahmen umgeben (vgl. jedoch die Tafel 2 Fig. 19 abgebildete Münze von Seleucia, wo der betreffende Baitylos ebenfalls von einer eigentümlichen Umrahmung [Decke?] umgeben erscheint).
 
-[Omphalosförm. Grabtumulus mit Stele dahinter: Lekythos aua Eretria im Brit. Mus. nach Jahrb. d. Arch. Inst. 27 (1912) S. 138 (s. oben S. 61 f.).]()
+[Omphalosförm. Grabtumulus mit Stele dahinter: Lekythos aua Eretria im Brit. Mus. nach Jahrb. d. Arch. Inst. 27 (1912) S. 138 (s. oben S. 61 f.).](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/NeueOmphalos/rosher-omph2-fig2.png)
 
 # Schlusswort.
 
