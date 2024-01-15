@@ -602,7 +602,7 @@ Hiermit wäre nunmehr die Verarbeitung des für die 'Neuen Omphalosstudien' von 
 
 Dieser Gesichtspunkt legt auch die Frage nahe, wo wohl in ferner Zukunft, wenn, nach Überwindung und Ausgleichung der jetzigen nationalen Gegensätze in Europa, das nach Analogie des den politischen Abschluss des klassischen Altertums bildenden römischen Imperiums mit voller Sicherheit zu erwartende neuere Weltreich entstanden ist, dessen 'Nabel' oder Zentrum anzunehmen sein dürfte. Nicht undenkbar wäre es, dass Deutschland oder besser gesagt der zu erwartende Bund germanischer und gleichen Idealen politischer und kultureller Art huldigender Völker infolge seiner zentralen Lage in Europa einmal berufen sein könnte, die Rolle eines ὀμφαλὸς γῆς im höchsten Sinne des Wortes zu spielen.
 
-[Münze von Tyrus mit Europa und dem Stier; links von Europa über dem Stier die beiden omphalosförmigen ἀμβρόσιαι πέτραι und zwischen ihnen der feurige Ölbaum.]()
+[Münze von Tyrus mit Europa und dem Stier; links von Europa über dem Stier die beiden omphalosförmigen ἀμβρόσιαι πέτραι und zwischen ihnen der feurige Ölbaum.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/NeueOmphalos/rosher-omph2-fig3.png)
 
 # 8.
 
