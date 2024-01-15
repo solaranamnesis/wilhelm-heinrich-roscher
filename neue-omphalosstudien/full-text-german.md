@@ -850,11 +850,11 @@ Man beachte die große formelle Verschiedenheit der beiden hauptsächlichsten Na
 
 ### Tafel 7. (Vasenbilder mit omphalosförmigen Grabmälern.)
 
-Fig. 1: Schwarzfiguriges Vasenbild nach Gerhard, Auserles. Vasenbilder 3, 199 = Roschers Lex. d. Mythol. 3 Sp. 1711/12: Schleifung Hektors um das omphalosförmige Grabmal des Patroklos, dessen gerüstetes Eidolon über dem Tumulus schwebt (anwesend Achilleus, Odysseus und eine rätselhafte Flügelgestalt Κόνισος?).
+[Fig. 1:](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/NeueOmphalos/rosher-omph2-tab7-1.png) Schwarzfiguriges Vasenbild nach Gerhard, Auserles. Vasenbilder 3, 199 = Roschers Lex. d. Mythol. 3 Sp. 1711/12: Schleifung Hektors um das omphalosförmige Grabmal des Patroklos, dessen gerüstetes Eidolon über dem Tumulus schwebt (anwesend Achilleus, Odysseus und eine rätselhafte Flügelgestalt Κόνισος?).
 
-Fig. 2: Schwarzfiguriges Bild einer Vase aus Attika, im Besitz von Ed. Roese nach Archäol. Anzeiger 1909 1 Sp. 29 ff.: Zwei Silene rechts und links von einem omphalosförmigen Grabmal, auf dem ein großer Raubvogel sitzt und vor dem eine schlanke Hirschkuh vorüberspringt. S. oben S. 60 f.
+[Fig. 2:](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/NeueOmphalos/rosher-omph2-tab7-2.png) Schwarzfiguriges Bild einer Vase aus Attika, im Besitz von Ed. Roese nach Archäol. Anzeiger 1909 1 Sp. 29 ff.: Zwei Silene rechts und links von einem omphalosförmigen Grabmal, auf dem ein großer Raubvogel sitzt und vor dem eine schlanke Hirschkuh vorüberspringt. S. oben S. 60 f.
 
-Fig. 3: Schwarzfiguriges Bild einer Vase in Berlin nach Gerhard a. a. O. Tafel 198. Links: Viergespann, das den omphalosförmigen Tumulus des Patroklos umfährt; rechts: Achilleus (Hoplit) laufend. Über dem Viergespann schwebt das geflügelte Eidolon des Patroklos.
+[Fig. 3:](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/NeueOmphalos/rosher-omph2-tab7-3.png) Schwarzfiguriges Bild einer Vase in Berlin nach Gerhard a. a. O. Tafel 198. Links: Viergespann, das den omphalosförmigen Tumulus des Patroklos umfährt; rechts: Achilleus (Hoplit) laufend. Über dem Viergespann schwebt das geflügelte Eidolon des Patroklos.
 
 # Postskripta.
 
