@@ -10,3 +10,5 @@ Bee_pollen_cell3.png ---  CC BY-SA 4.0 Solar Anamnesis; modified attribution, Jo
 blackandwhiteborder1.png --- Public Domain Solar Anamnesis; modified attribution Cherubini, Luigi - Medea - Restoration Public Domain via Wikimedia Commons.
 
 pleiades.jpeg --- CC BY 2.0 Solar Anamnesis; modified attribution, Carsten Frenzl from Deutschland, CC BY 2.0, via Wikimedia Commons or Flickr: https://flic.kr/p/2oeBmbN.
+
+Modified figure attribution: http://digital.slub-dresden.de/id302203281
