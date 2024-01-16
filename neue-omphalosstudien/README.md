@@ -11,4 +11,4 @@ blackandwhiteborder1.png --- Public Domain Solar Anamnesis; modified attribution
 
 pleiades.jpeg --- CC BY 2.0 Solar Anamnesis; modified attribution, Carsten Frenzl from Deutschland, CC BY 2.0, via Wikimedia Commons or Flickr: https://flic.kr/p/2oeBmbN.
 
-Modified figure attribution: http://digital.slub-dresden.de/id302203281
+CC BY-NC 4.0 Solar Anamnesis; Modified figure attribution, for scientific and research purposes, non-commerical use only: http://digital.slub-dresden.de/id302203281
