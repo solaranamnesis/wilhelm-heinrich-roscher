@@ -6,6 +6,10 @@
 
 ### Bei B. G. Teubner.
 
+---
+
+---
+
 # Vorwort.
 
 Als ich vor drei Jahren das Schlußwort zu den 'Neuen Omphalosstudien' schrieb, da war ich zwar, wie dieses beweist (S. 70 f.), weit davon entfernt zu glauben, daß nunmehr das gesamte zum Omphalosproblem gehörige Material von mir gesammelt und kritisch verarbeitet worden sei, aber ich hatte damals noch keine Ahnung, wie schnell und in welcher Fülle mir neuer Stoff aus allen möglichen Weltgegenden zu neuer Bearbeitung zuströmen würde.
