@@ -305,4 +305,76 @@ Es ist das Verdienst von Wensinck in der schon oft zitierten Abhandlung der Amst
 
 ### 3\. Adam und Eva in Hebron bestattet.
 
+Ein merkwürdiger Widerspruch hinsichtlich der Lokalität des Adamgrabes findet sich in den Schriften des Kirchenvaters Hieronymus (340-420). Während er Epist. 46 = Migne, P. L. 22, 485 schreibt: 'Unde et locus, ubi crucifixus est Dominus noster, Calvaria appellatur, scilicet quod ibi sit antiqui hominis calvaria condita et sanguis Christi de cruce stillans primi Adam et iacentis protoplasti peccata dilueret,' versetzt er an anderen Stellen, nämlich In Matth. 4, 27, 33 = Migne P. L. 26 217 B C und In Ephes. 5 = Migne P. L. 26 559 A B* das Grab Adams vielmehr nach Hebron.* Dieser Widerspruch erklärt sich leicht aus der Tatsache, daß dem Hieronymus zwei ganz verschiedene Überlieferungen vorlagen und er sich zu verschiedenen Zeiten erst für die eine, dann für die andere entschieden hat. Zwar die Genesis, die in der Höhle von Hebron die Sara (Gen. 23, 9), Abraham (25, 19), Isaak, Rebekka, Lea (49, 31), Jakob (50, 1 ff.; vgl. Jos. b. Jud. 4, 9, 7) beigesetzt werden läßt, weiß nichts von einer dort stattgefundenen Bestattung Adams zu berichten, wohl aber lassen sich aus der späteren jüdischen Literatur, die Hieronymus gekannt haben muß, eine Anzahl von Zeugnissen beibringen, die von einem Grabe Adams zu Hebron sprechen.*
+
+*) Vgl. auch Lagarde, Hieronymi quaest. hebr. in Gen. p. 35, 23: ...ibi [in Hebron] Abraham et Isaac et Jacob conditus est et ipse princeps humani generis Adam, ut in libro Jesu [14, 15] apertius demonstrabitur. S. Klameth a. a. O. S. 110 Anm. 1. Baumstark a. a. O. S. 26 Anm. 6 u. 7.
+
+*) Ebenso, wahrscheinlich der Autorität des Hieronymus folgend, der Kirchenschriftsteller Arkulf (vgl. Klameth a. a. O. S. 111. Geyer, Itin. Hierosolym. saec. 4-8, p. 233).
+
+*) Ich verdanke die zunächst folgenden fünf Zitate der Güte Prof. Winters in Dresden und gebe sie im Hinblick auf ihren Wert und den Umstand, daß sie bisher, so viel ich weiß, viel zu wenig bekannt sind, möglichst vollständig wieder. Auch Herrn Dr. J. M. Berdyczewski (Bin-Gorion) in Berlin-Friedenau, dem Herausgeber der im 'Born Judas' gesammelten Legenden und Märchen bin ich für einige wertvolle Mitteilungen zu Dank verpflichtet.
+
+Sota 13a: Als sie (mit der Leiche Jakobs auf dem Zuge von Ägypten nach Kanaan) bei der Höhle Machpela anlangten, kam Esau und wollte (die Bestattung) verhindern. Er sagte zu ihnen: "Mamre Kirjath ha-Arba' (die Stadt der Vier) das ist Chebron" (Genes. 35, 27). --- R. Jizchak hat aber gesagt: Sie heißt Kirjath Arba (Stadt der Vier), weil vier Paare dort waren: Adam und Eva, Abraham und Sara, Isak und Rebekka, Jakob und Lea --- er (Jakob) begrub Lea in dem seinigen (in dem Stücke der Höhle Machpela, welches ihm als Erbteil von Isak zukommt); was übrig ist, gehört mir.
+
+Erubin 53a: "Die Höhle der Verdoppelung" (Genes. 23, 9).* Rab und Samuel (erklären die Bezeichnung). Der eine sagt: Es waren zwei Häuser, das eine innenwärts vom andern (hinter dem andern); der andere sagt: Es war ein Haus und ein Obergeschoß darüber. Nach der Ansicht dessen, der sagt: eines über dem andern, trifft zu: 'Verdoppelung'; nach der Ansicht dessen aber, der sagt: 'zwei Häuser, eines innenwärts vom andern,' was bedeutet "Verdoppelung"?' Sie war ver(ge)doppelt durch Paare (es waren Doppelgräber darin). Denn es heißt (Genesis 35, 27): "Mamre Kirjat ha-Arba, das ist Chebron," und R. Jizchak hat gesagt: Die Stadt der vier (arba) Paare, Adam und Eva, Abraham und Sara, Jizchak und Ribka, Jakob und Lea.
+
+*) Eine doppelte Grahhöhle bezeugt für Hebron auch Baedeker (= Benzinger), Palästina u. Syrien 4 (1897) S. 135 f.: 'Doppelte Höhle, jeder Teil mit besonderem Eingang. Sechs Kenotaphe befinden sich über dem Boden nach Angabe der Muslimen genau über den unterirdischen Gräbern von Abraham, Isaak und Jakob und ihren Frauen Sarah, Rebekka und Lea.' Also weiß auch die heutige Lokaltradition der Muhammedaner nichts von einem Grabe Adams und Evas zu Hebron. Das erklärt sich wohl zum Teil aus der Tatsache (s. unt. Kap. 4), daß nach islamischer Annahme Adam auf dem Berge Abukais bei Mekka und Eva zu Dschedda bestattet war (s. Neue Omphalosstudien S. 13 f.)
+
+Baba batra 58a: R. Banaa versah die (Gräber-)Höhlen mit Abzeichen (Raschi: Er ging in die Höhlen hinein und maß ihre Länge im Innern aus; dann maß er an den entsprechenden Stellen außen und machte dort ein Zeichen mit Kalk, damit man den Ort der Unreinheit erkenne.) Als er zur Höhle des Abraham kam, fand er Elieser, den Knecht Abrahams, au der Pforte stehen. Er sprach zu ihm: Was macht Abraham? Jener sprach: Er schläft in den Armen der Sara, die ihm aufmerksam (liebevoll) auf's Haupt blickt. Er sprach: Geh', sag ihm: Banaa steht an der Pforte. Er (Abraham) sprach: Er mag hereinkommen; man weiß, daß in dieser Welt der Trieb nicht herrscht. Er ging hinein, blickte um sich und ging hinaus. Als er zur Höhle des ersten Menschen (Adam) kam, ging eine Tochterstimme (Himmelsstimme) aus und sprach: Du hast das Ähnlichkeitsbild meines Abbildes gesehen, mein Abbild sollst du nicht sehen.* [Er sprach]: Ich will doch die Höhle mit einem Zeichen versehen. (Die Tochterstimme erwiderte): Wie das Maß der äußeren, so ist das Maß der inneren.* Und nach dem, der sagt*: Zwei Häuser, eines über dem andern (erwiderte die Tochterstimme): Wie das Maß der oberen, so ist das Maß der unteren. R. Banaa sagte: Ich betrachtete seine zwei Fersen, und sie glichen den zwei Rädern der Sonne.*
+
+*) Adam ist das Abbild Gottes, jeder andere Mensch, hier Abraham, ist das Abbild Adams.
+
+*) Von der Pforte aus gesehen, bildet Abrahams Grabstätte den äußeren, die des Adam den weiter nach innen zu liegenden Teil der Höhle.
+
+*) S. oben Erubin 53a.
+
+*) Vgl. auch Bin-Gorion, D. Sagen d. Juden 1. Frankfurt a. M. 1913, S. 163 f.
+
+Bereschit rabba 58, 4: 'Und Sara starb in Kirjat arba' (Genes. 23, 1). Mit vier Namen wurde sie (die Stadt) benannt: Eschkol, Mamre, Kirjat arba, Chebron. Und warum nennt er sie Kirjat arba (Stadt der Vier)? Weil vier Gerechte darin wohnten: Aner, Eschkol, Mamre, Abraham, und vier Gerechte darin beschnitten wurden: Abraham, Aner, Eschkol und Mamre. --- Eine andere Erklärung: Kirjat arba, weil vier Gerechte, Väter der Welt, darin begraben wurden: Adam der Erste, Abraham, Jizchak und Jakob. --- Eine andere Erklärung: Weil vier Mütter darin begraben wurden: Chawa (= Eva) und Sara und Ribka (= Rebekka) und Lea.
+
+Pirke Rabbi Elieser* Abschn. 20: Adam saß und forschte in seinem Herzen und sprach: "Denn ich weiß, in den Tod wirst du mich zurückführen und in das Sammelhaus für alles Lebende" (Hiob 30, 23). Da sprach Adam: Während ich noch in der Welt bin, will ich mir eine Herberge für mein Lager [= eine Grabhöhle?] bauen außerhalb des Berges Morija.* Und er haute aus und baute sich eine Herberge für sein Lager.* Adam sprach: Wie vor den Bundestafeln, welche einst werden geschrieben werden mit dem Finger Gottes, die Wasser des Jordan fliehen werden (Josua 3, 9-17), so wird mein Körper, da er ihn mit seinen zwei Händen geknetet und den Hauch seines Mundes in meine Nase geblasen hat, [Wunder wirken], und sie werden nach meinem Tode mich und meine Gebeine nehmen und sich einen Götzen machen. Allein ich will meine Lade (Bahre) tief einsenken innerhalb der Höhle und innenwärts von der Höhle. Deshalb wird sie genannt 'Höhle der Verdoppelung,' weil sie doppelt ist. Und dorthin gab man Adam und Eva, Abraham und Sara, Isaak und Rebekka, Jakob und Lea. Und deshalb heißt sie Kirjat arba (Stadt der Vier), weil dort vier Paare begraben sind. Und betreffs ihrer sagt die Schrift: 'Es kommt der Friede; sie ruhen auf ihrer Lagerstatt, wer gerade gewandelt' (Jesaias 57, 2).
+
+*) Nach Strack bei Herzog-Plitt-Hauck 3 19, 319, 54 lebte R. Elieser noch zur Zeit des Tempels. Vgl. auch Midrasch Haggadol Gen. 5, 5 und Midr. Tehillim (Berdyczewski).
+
+*) Vorher heißt es, daß Adam, als er aus dem Garten Eden vertrieben wurde, auf dem Berge Morija seinen Wohnsitz nahm, weil das Tor des Gartens Eden nahe dem Berge Morija ist.
+
+*) Damit wird offenbar die Anlage einer Grabhöhle in dem felsigen Terrain von Hebron angedeutet. Berdyczewski teilt mir mit, daß es nach Sota 7 p. 34 b 'keinen steinigeren Boden in Palästina gibt, als den von Hebron und daß man deshalb dort die Toten [in Felsenhöhlen] bestattet.'
+
+Hierzu kommen noch folgende mir von Dr. Berdyczewski mitgeteilte Zeugnisse, aus denen auf eine ganz besondere Heiligkeit und Bedeutung Hebrons geschlossen werden muß.
+
+Abr. Saba Zerin Hamor, Venedig 1539, Gen. p. 24c: Sara ist in der zwiefachen Höhle (von Hebron) begraben worden, weil die Höhle seit den Tagen Adams ein heiliger Ort ist.* Kirjath Arba wird Hebron genannt, weil das ein auserwählter Ort* im ganzen Lande Israel ist. Seit der Erschaffung der Welt wird Hebron Kirjath Arba genannt der vier Paare wegen, die dort begraben worden sind. Auch wird Kirjath Arba Hebron genannt, weil die Seelen derer, die dort ruhen, sich oben (in einem himmlischen Paradies?) vereinigen.
+
+*) Das hohe Alter der ursprünglich kanaanitischen, einst von den Israeliten eroberten und zu einer Freistätte bestimmten Stadt Hebron ist auch sonst bezeugt (Winer, Bibl. Realwört. 3 1, 474).
+
+*) Offenbar wird hier der Name Hebron ([GREEK] oder [GREEK]) von _caher_ = auswählen abgeleitet (Berdyczewski).
+
+Bechai b. Asar, Kommentar, Venedig 1546, Gen. p. 31c.:
+
+a\. Danach begrub Abraham Sara, sein Weib, in der Höhle des Ackers, die zwiefach ist, Mamre gegenüber: das ist Hebron (Gen. 23, 19). Sieh und erfahre, wie groß das Verdienst Saras war, daß der Ort, wo sie gestorben und begraben worden ist, die Stätte war, wo dereinst das Haus Elohims errichtet werden sollte. Daselbst ist (auch) das Himmelstor.*
+
+*) Dieselbe Vorstellung findet sich auch in der Lokalsage Bethels von der Himmelsleiter. S Kap. 3 b.
+
+b\. Es läßt sich sagen, daß Kirjath Arba deswegen Hebron* genannt wird, weil die Seele dessen, der dort begraben liegt, sich in der himmlischen Götterstadt, die über diesem Orte liegt,* und in der die vier Scharen um die Schechina stehen, sich... vereinigt.
+
+*) Hebron von _habber_ = binden, vereinigen.
+
+*) Vgl. für diese Anschauung Jeremias, Handb. d. altoriental. Geisteskultur. Leipzig 1913, S. 188 ff. und Bin-Gorion, Die Sagen d. Juden 1, S. 42.
+
+Sohar Genes. p. 57b:
+
+R. Abba sprach: Als Adam sich vor dem Heiligen, gelobt sei er, versündigt und sein Gebot übertreten hatte, war der Herr traurig und sprach zu Adam: Wehe dir, Adam, daß du die oberste Kraft geschwächt hast. In dieser Stunde erlosch ein Licht. Alsbald vertrieb der Herr Adam aus dem Eden und sprach zu ihm: Ich hatte dich in den Garten Eden gebracht, damit du opfertest, du aber hast den Altar entweiht, und so kann nicht mehr geopfert werden. Von nun an mußt du die Erde bearbeiten. Und er verhängte über Adam den Tod. Er erbarmte sich aber seiner und bestattete ihn, als er starb, in der Nähe des Edens. Was tat Adam, als er sterben sollte? Er grub eine Höhle, und in dieser Höhle wurde er und sein Weib begraben. Woher wußte er den Ort (zu wählen)? Er sah ein feines Licht von dieser Stätte aufsteigen. Das kam von Eden, und er bekam Lust, hier begraben zu werden. Dieser Ort [Hebron?] aber ist in der Nähe des Gartens Eden.*
+
+*) Vgl. auch Bin-Gorion, Die Sagen der Juden 1, Frankfurt a. M. (1913) S. 162, 2 (1914) S. 319 ff.
+
+Sohar ed. Amsterdam 1805, Genes. p. 127a:
+
+R. Juda sagt: Abraham wußte ein Merkmal (wodurch er die zweifache Höhle finden konnte), und all sein Sinnen und Trachten galt der Höhle. Noch bevor er Sara dort begraben hatte, stieg er (einst) hinab und sah Adam und Hawa ruhen. Woher wußte er aber, daß das Adam war? Er hatte (vorher) einmal ein Gesicht, er schaute vor sich, und da sah er eine Tür des Edens aufgehen und das Bildnis Adams stand vor ihm. Er sah ein Leuchten in der Höhle, denn ein Licht brannte daselbst. Deshalb wollte Abraham an diesem Orte ruhen. Sein Sinnen und Trachten waren nur auf die Höhle gerichtet.
+
+Die angeführten Zeugnisse der späteren jüdischen Literatur sind nicht bloß deswegen bemerkenswert, weil sie offenbar schon dem Hieronymus bekannt waren und ihm zur Rechtfertigung seiner Ansicht von Hebron als dem Bestattungsort Adams im Gegensatz zu Golgotha gedient haben, sie beweisen auch, daß die uralte, schon in der kanaanitischen (vorisraelitischen) Zeit bestehende Stadt Hebron* eine ganz hervorragende Rolle ähnlich wie Jerusalem und Sichem, vielleicht sogar als Erdnabel, gespielt haben muß. Darauf deutet einerseits ihre Auffassung als 'Himmelstor' (S. 44) und ihre Lage in unmittelbarer Nähe des Gartens Eden (S. 45), anderseits die Vorstellung einer 'himmlischen Gottesstadt' oder eines überirdischen Paradieses (Elysiums), das oberhalb Hebrons liegen und die Seelen der daselbst Ruhenden vereinigen sollte (S. 44).* Es scheint demnach die Vermutung gerechtfertigt, daß Hebron als Lokal der Legenden von Adam, Abraham, Isaak und Jakob sowie vom Paradies und Himmelstor in ältester Zeit auch den Anspruch erhoben hat, ebenso wie Jerusalem und Sichem als Mittelpunkt der Erdscheibe zu gelten. Doch konnte es natürlich später gegenüber der immer wachsenden Macht und Größe Jerusalems diesen Anspruch nicht aufrecht erhalten, und so ist es gekommen, daß sich nur verhältnismäßig schwache Spuren seiner ursprünglichen Bedeutung erhalten haben. Eine ganz ähnliche Entwicklung läßt sich auch auf griechischem Boden beobachten, wo es schließlich der mächtigen Priesterschaft Delphis gelungen ist, alle übrigen Konkurrenten um den Besitz des Erdnabels (Paphos, Branchidai, Delos usw.) aus dem Felde zu schlagen (s. unten S. 78 Anm. 126).
+
+*) Über Hebron als Stadt der 'Riesen' (Enakiter) s. Winer, Realwört. 3 1, 326 u. 2, 330. Ed. Meyer, Gesch. d. Alt. 1, § 179. Man bedenke dabei, daß auch Adam, Eva und ihre unmittelbaren Nachkommen für 'Riesen' galten (s. oben S. 30 Anm. 38) und Fabricius, Cod. Pseudepigr. Vet. Test. 2, 41.
+
+*) Vgl. damit die eigentümliche Vorstellung des 'himmlischen' [oberhalb des irdischen] liegenden Jerusalems in den von Bin Gorion (Frankfurt a. M. 1913) herausgegebenen 'Sagen der Juden' 1 S. 42.
+
+### 4\. Die Adamlegenden von Babylon, Damaskus, Indien und Mekka.
+
 ...
