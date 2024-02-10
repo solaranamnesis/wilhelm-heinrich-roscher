@@ -589,4 +589,74 @@ Zweifellos würde die Vorstellung von Athen und Eleusis als 'Nabel der Erde' noc
 
 # 6\. Die Ägypter (vgl. Omphalos S. 31 f.).
 
+Meine früher (s. Omphalos S. 31) ausgesprochene Hoffnung, daß künftige Funde und Ausgrabungen im Nillande uns die Möglichkeit gewähren würden, das für Ägypten, die Heimat der ältesten Geometer, nicht unwichtige Omphalosproblem durch den Nachweis ausdrücklicher Zeugnisse monumentaler und literarischer Art aus älterer Zeit zu fördern, ist neuerdings einigermaßen in Erfüllung gegangen. Am 21. April 1917 erhielt ich von Herrn Prof Günther Roeder, jetzt Direktor des Pelizaeusmuseums in Hildesheim, einen Brief mit der Mitteilung, daß die von Reisner (Harvard Univers.) für das Museum in Boston a usge führte Grabung am Gebel Barka- (= Napata) im Sudan im Tempel der nubisch-meroitischen Könige einen Stein gefunden habe, der als Omphalos des Amon-Orakels von Napata um 1 v. Chr. gedient hat,* vgl. Griffith in Journ. of egypt. Archaeol. 3 (1916) 255 mit Abbildung; das Exemplar des Heftes, das er bei Gelegenheit einer Osterreise in Berlin habe einsehen können, befinde sich in den Händen von Geheimr. Prof. Borchardt in den Kgl. Museen in Berlin. Da mich dieser Fund natürlich in hohem Grade interessierte, so richtete ich alsbald an Borchardt die Bitte, mir den Aufsatz Griffiths zugänglich zu machen, und erhielt darauf umgehend diesen in genauer Abschrift (nebst Abbildung), die ich im Hinblick auf die große durch den Weltkrieg bedingte Schwierigkeit, wissenschaftliche Literatur aus dem feindlichen Auslande zu beziehen, hier mit dem Ausdrucke aufrichtigen Dankes wörtlich abdrucken lasse (s. Fig. 6).
+
+*) Hinsichtlich dieses Orakels verweise ich auf Perrot-Chipiez, Gesch. d. Ku. i. Altert. 1, bearb. von Pietschmann (1884) S. 334, 338, 661 f. Erman, D. ägypt. Religion. Berlin 1905, S. 199 f.
+
+[Fig. 6: 'Omphalos' aus Napata in Nubien (nach Journal of Egyptian Archaeology 3 [1916] Seite 255).]()
+
+Volume 3. Part 4. The Journal of Egyptian Archaeology. October 1916. S. 255.
+
+An Omphalos from Napata.
+
+By F. Ll. Griffith, M. A.
+
+With Dr. Reisner's kind permission a sketch, made from a photograph, is here given of a remarkable Meroitic monument which discovered last year at Gebel Barkal, towards the inner end of the great temple of Ammon. It is of sandstone and evidently of moderate size. Its conical shape is precisely that of the omphalos at the oracle of Delphi.* In a previous note* I ventured to identify it with the umbilicus-like figure of the god of the Oasis of Ammon which is recorded only by Quintus Curtius in the following description: --- "The thing which is worshipped as a god has not the shape that artificers have usually applied to the gods; its appearance is most like an umbilicus, and it is made of an (?) emerald and gemscemented together."* But M. Daressy had already discovered a strange sack-like form of Ammon of Karnak with which he quite appropriately compared this description of the Ammon in the Oasis.*
+
+*) Daremberg et Saglio, Dict. des Antiq., s. v. Omphalos.
+
+*) Journal 3, p. 221.
+
+*) Curtius 4, 7: Id, quod pro deo colitur, non eandem effigiem habet, quam vulgo diis artifices accommodaverunt; umbilico maxime similis est habitus, smaragdo et gemmis coagmentatus. Hunc, quum responsum petitur, navigio aurato (vgl. dazu Perrot-Chipiez, Gesch. d. Kunst im Alt. 1, bearb. v. Pietschmann, S. 335 ff. Diodor. 17, 50 f.), gestant sacerdotes, multis argenteis pateris ab utroque navigii latere pendentibus; sequuntur matronae virginesque, patrio more inconditum quoddam carmen canentes, quo propitiari Jovem credunt, ut certum edat oraculum. Roscher.
+
+*) Annales du Service des Antiquités 9, 64. Vgl. unt. S. 84 f.
+
+Anyhow the present omphalos is unique from Nubia and is probably to be conected with an oracle of Ammon. Perhaps the imitative Nubians took the idea from Delphi. The curved top is decorated as if with strings of beads or pendants, the sides are sculptured with figures of deities and two royal cartouches, and a band of upright lotus buds and flowers encircles the base. The cartouches contain Egyptian prenomen [HIERO] Nibmere', copied from that of Amenhotp 3, and a Meroitic nomen [HIERO] Mnhnêwêl (?) _i. e._ Amanikhanêwêl (?). This makes a second Meroitic Nibmere', there being already known an Amaniten mêmize with that prenomen in the shrine of Pyramid A. 38 at Meroe.* That date of the monument would seem to be round about A. D. 1.
+
+*) Mer. Inscr. 1, nos. 66, 67.
+
+Der Fund dieses aus dem Ammoneion zu Napata stammenden 'Omphalos' ist deshalb von größter Wichtigkeit, weil er nicht bloß den Bericht des Curtius Rufus über den von Alexander M. und seinen Begleitern bei der Befragung des Zeus Ammon in Libyen gesehenen _umbilicus_ (= [GREEK]) bestätigt, sondern auch sichere Rückschlüsse auf den Kult des im ägyptischen Theben (Karnak) hochverehrten Ammon gestattet. Denn es kann ja, wie mir auch von einem so ausgezeichneten Kenner altägyptischer Religion wie G. Roeder bezeugt wird, keinem Zweifel unterworfen sein, daß beide Kulte, sowohl der von Napata als auch der von Siwa, nur 'Ableger' des thebanischen Amon sind,* dessen Orakel ebenfalls hochberühmt war.* Meine Vermutung, daß sich aus der Kombination von Curtius 4, 7, 23 mit dem neuen Omphalos von Gebel Barkal (Napata) schließen lasse, daß auch die Metropole des Ammonkultus, Theben, dem Omphalosgedanken gehuldigt und folglich Theben als Mittelpunkt (Herz, Omphalos) Ägyptens und dos orbis terrarum gegolten habe, ist mir von Roeder ebenso wie von Sethe als für die 'spätere Zeit' 'möglich' oder 'denkbar' bezeichnet worden. Roeder fügt hinzu: 'Im Ganzen jedoch gehört Theben zu den jüngertn Tempeln*; ursprünglich waren andere Tempel Mittelpunkt der Welt; das kann auf Theben übertragen sein.'
+
+*) Nach Herodot 2, 54 behaupteten die Priester des thebanischen Ammon, das Orakel von Siwa sei ebenso wie das von Dodona von je einer aus dem ägyptischen Theben von Phönikern entführten Priesterin gegründet worden. Vgl. Wilkinson, Anc. Egyptians 4, p. 248 f.
+
+*) Roeder schreibt mir u. a. auf meine Frage, ob auch der Ammon von Theben als Orakelgott galt: 'Ja, ganz sicher; wir kennen Berichte über Orakelerteilung durch Amon von Theben.' Vgl. Herod. 2, 54 u. 57. Lysimachos (fr. 1) b. Joseph, c. Apion. 1, 34; Tac. hist. 5, 3; Oros. 1, 10, 3; wo nach Pietschmann bei Pauly-Wissowa 1 Sp. 1859 gezweifelt werden kann, ob der Pharao zu Moses Zeit das Orakel von Siwa oder das zu Theben befragt habe. Sethe teilt mir brieflich mit: 'Das Orakel des thebanischen Amon ist vielfach bezeugt: vgl. Ztschr. f. äg. Sprache 44, 30. Breasted, Ancient Records of Egypt 4, S. 303, 318, 328.'
+
+*) Nach Perrot-Chipiez a. a. O. S. 69 (vgl. S. 307, 1) kommt der Name des Ammon, des Lokalgottes von Theben, auf den Denkmälern nicht vor der 2. Dynastie (Ed. Meyer, Gesch. d. Alt. 1, § 95 ff.) vor.
+
+Obwohl aber sowohl die Form des zu Napata gefundenen konischen Steines als auch die literarischen Zeugnisse für die einstige Existenz des Omphalosgedankens in Ägypten (siehe unten), 'des Landes der Mitte' und der Bericht des Curtius Rufus über den 'umbilicus' von Siwa die Deutung der beiden heiligen Steine in den Ammontempeln Napatas und Siwas als richtiger [GREEK], d. h. als Wahrzeichen der Erdmitte, sehr wahrscheinlich machen, verlangt es doch die wissenschaftliche Vorsicht und Umsicht, eines gewichtigen Einwandes zu gedenken, den ein so ausgezeichneter Ägyptologe wie Pietschmann vor einigen Jahren gegen die Auffassung des 'umbilicus' bei Curtius Rufus als Nabelstein vorgetragen hat. P. meint nämlich in seinem Artikel Ammoneion b. Pauly-Wissowa 1, Sp. 1859, 'das prunkvolle Gehäuse des Ammon sei von Curtius (oder wohl besser von dessen griechischem Gewährsmann) fälschlich einem umbilicus verglichen worden,' es sei also kein [GREEK] gewesen. P. beruft sich dabei auf die Tatsache (vgl. Perrot-Chipiez 1, 335 f.), daß das Sanktuarium des ägyptischen Tempels ([GREEK]) im Gegensatz zur Cella des griechischen Tempels keine Kultstatue des betreffenden Gottes, sondern nur eine sogen. 'Bari,' d. h. eine kleine Barke oder einen Kasten enthielt. 'Und zwar war das der Regel nach eine Art von Tabernakel oder kleiner Kapelle, worin hinter einer Flügeltür sich entweder ein Bild oder ein Sinnbild der Gottheit befand, vor dem an den durch religiöse Vorschriften bestimmten Tagen Gebete hergesagt und besondere Bräuche vollzogen wurden. Bisweilen lief dieses Tabernakel auf eine Nische, auf eine Art Wandschrank hinaus; oft aber bildete es ein besonderes Häuschen, das mitten im Sanktuarium stand. War es, gleich der Bundeslade der Hebräer, aus bemaltem oder vergoldetem Holz, so ist es spurlos abhanden gekommen oder nur ganz ausnahmsweise der Vernichtung entgangen wie das Tabernakel des Turiner Museums (Fig. 210). In einigermaßen bedeutenden Tempeln gab es einen großen, ausgehöhlten Granitoder Basaltblock als Aedicula. Einer derselben mit dem Namensringe Nektanebus' 1. steht noch am Platze in dem Ptolemäustempel zu Edfu, und sämtliche Museen besitzen solche in den Trümmern der altägyptischen Gotteshäuser entdeckte monolithe Kapellen. Zu den schönsten gehört eine im Louvre befindliche, auf welcher der Name des Amasis eingegraben ist; sie ist aus Rosengranit und ganz und gar bedeckt (wie der Stein von Napata!) mit Inschriften und Skulpturen (Fig. 211).' --- Wer diese Darlegungen in Betracht zieht, der dürfte in der Tat geneigt sein, mit Pietschmann in diesem Falle an ein Mißverständnis des Curtius und seiner griechischen Quelle zu glauben und den Omphalosgedanken für das Ammoneion zu Siwa in Abrede zu stellen.
+
+Wenn ich es gleichwohl wage, die Annahme eines [GREEK] im Tempel zu Siwa zu rechtfertigen, so berufe ich mich vor allem auf die ausgesprochene Omphalosform des massiven, nicht hohlen Steins von Napata, der auch nicht die geringste Andeutung von einer 'Flügeltür' oder davon enthält, daß es ein 'Gehäuse' oder Behälter des eigentlichen, in ihm verborgenen Heiligtums sein sollte. Es kommt hinzu der Umstand, daß der 'umbilicus' zu Siwa ebenso wie der massive Stein aus dem Ammoneion von Napata bereits einer Zeit angehört, in der starker griechischer Einfluß möglich und wahrscheinlich war. Nun aber war das Ammonorakel Libyens schon seit der Gründung von Kyrene starken griechischen Einflüssen zugänglich und damit zum Konkurrenten von Delphi und Branchidai geworden, deren Nabelsteine geradezu Weltruhm besaßen.* Es kann daher nicht wunderbar erscheinen, wenn die Priesterschaft von Siwa wie von Napata ihrem Idol, das ursprünglich, wie Daressys S. 80 erwähnter Aufsatz (mit Abbildungen!) zeigt,* nicht die Form eines Omphalos, sondern eines Sackes oder Schlauches hatte, Omphalosgestalt verlieh, um damit anzudeuten, daß Ägypten 'das Land der Mitte' und die Ammontempel zu Theben und Siwa wiederum die Mittelpunkte der bewohnten Erde seien.
+
+*) Über das Orakel von Branchidai, das vom ägyptischen König Necho 2. (Ende des 7. Jahrh.) und später von Kroisos befragt und reich beschenkt wurde, vgl. Roscher, D. neuentdeckte Schrift eines altmiles. Naturphilosophen 1912, S. 25 ff.
+
+*) S. unten den gleich folgenden Exkurs.
+
+Zu dem schönen, bereits im 'Omphalos' S. 31 angeführten Zeugnis (aus dem hermetischen Traktat [GREEK] = Stob. ecl. 1, p. 302 Meineke) für die zentrale Lage Ägyptens:
+
+[GREEK]
+
+kommt jetzt als wertvolle Parallele folgender Satz aus Horapollons Hieroglyphica 1, 21 a. E.:
+
+[GREEK]
+
+(vgl. dazu Leemans Ausgabe p. 229).*
+
+*) Allerlei merkwürdige hier einschlagende Vorstellungen von der menschenartigen Gestalt und Lage der Erde, von Ägypten als 'templum totius mundi,' als 'Herz der Oikumene' _etc._ (vgl. Omphalos S. 31 f. und die dort abgebildete Figur) s. jetzt bei Kroll, D. Lehren des Hermes Trismegistos. Münster 1914, S. 159, 166 f. Vgl. auch Horapoll. ed. Leemans, p. 125.
+
+Exkurs: Der Amon von Karnak nach Daressy.
+
+Bei der Bedeutung von Daressys Aufsatz und der Schwierigkeit, während des Weltkriegs seiner habhaft zu werden, scheint es mir in hohem Grade wünschenswert, ja notwendig, zur Förderung des ägyptischen Omphalosproblems die von D. mitgeteilten Abbildungen nebst kurzen Erläuterungen hier wiederzugeben:
+
+p. 64: 'Parmi la multitude d'objets sortis par M. Legrain de la fosse aux statues de Karnak, se trouvent 3 petits monuments d'aspect étrange dont je ne connais pas d'autres spécimens. Qu'on s'imagine un siège divin flanqué de lions, comme en sont fréquemment les trônes d'Horus, et sur ce lion un sphinx; comme dossier, 2 déesses ptérophores, puis à l'intérieur, au lieu de la tablette attendue, tout l'espace est occupé par un édifice hypèthre avec port à l'avant et posée dessus (au lieu d'être au milieu de la cour), une masse arrondie, semblable à une outre, dont la partie gauche se relève formant une protubérance; tout cela orné de dessin et doré...'
+
+p. 65: 'Quant à l'emblème étrange posé sur ce monument il est également orné de figures en relief. Au-dessus de ce sac, dans l'axe une brisure ronde marque la place du cou d'une tête d'Amon qui devait être placée là; en avant est gravé un pectoral dont l'intérieur est seulement rempli de points...' (Es folgt nunmehr die Beschreibung der dekorativen Figuren; vgl. Taf. 1 u. uns. Fig. 7a-d S. 85).
+
+p. 66: Ähnlich mehrere weitere, aber weniger gut gearbeitete Exemplare derselben Art, von denen es heißt: 'A la partie supérieure est restée une partie de l'arrière de la tête d'Amon.'
+
+Weiter führt D. [p. 67] ein merkwürdiges 'tableau' zu Médinet-Habou an, auf dem unter anderem erscheint l'espèce de sac avec sa proéminence latérale surmonté d'une tête d'Amon, ayant un collier auquel est attaché un pectoral...'
+
+S. 69 schließt D. seine Darlegungen mit den Worten: 'Ces documents... suffisent pour nous prouver que cette forme divine appartenan tà Min créateur, confondu avec Harsiési, ce Panthée que les statuettes et les bas-reliefs nous présentent sous tant d'aspects différents. Le trait caractéristique est ce sac dans lequel le dieu est enfermé, sa tête émergeant seule...' Zuletzt vergleicht D. noch die sackähnliche Gestalt des Amon von Theben mit dem 'umbilicus' des Curtius Rufus in der Oase von Siwa und meint nicht ohne innere Berechtigung: 'L'ombilic dont parle l'auteur ne peut être mieux représenté que par la protubérance du sac où Amon est caché.'
+
+# 7\. Die Etrusker, Italiker und Deutschen.
+
 ...
