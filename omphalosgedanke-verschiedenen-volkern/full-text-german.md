@@ -657,6 +657,8 @@ Weiter führt D. [p. 67] ein merkwürdiges 'tableau' zu Médinet-Habou an, auf d
 
 S. 69 schließt D. seine Darlegungen mit den Worten: 'Ces documents... suffisent pour nous prouver que cette forme divine appartenan tà Min créateur, confondu avec Harsiési, ce Panthée que les statuettes et les bas-reliefs nous présentent sous tant d'aspects différents. Le trait caractéristique est ce sac dans lequel le dieu est enfermé, sa tête émergeant seule...' Zuletzt vergleicht D. noch die sackähnliche Gestalt des Amon von Theben mit dem 'umbilicus' des Curtius Rufus in der Oase von Siwa und meint nicht ohne innere Berechtigung: 'L'ombilic dont parle l'auteur ne peut être mieux représenté que par la protubérance du sac où Amon est caché.'
 
+[Fig. 7: Amonidole aus dem ägyptischen Theben (nach Annales du Service des Antiquités T. 9 [1908], Pl. 1, p. 64 ff. zu dem Artikel von Daressy, 'Une nouvelle Forme d'Amon').]()
+
 # 7\. Die Etrusker, Italiker und Deutschen.
 
 ...
