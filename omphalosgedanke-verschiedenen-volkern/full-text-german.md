@@ -807,4 +807,82 @@ S. 57 möchte ich jetzt hinzufügen, daß auch Bethlehem bisweilen als Zentrum d
 
 S. 63 hätte wohl auch die von Svoronos (Journ. Internat. d'Archéol. Numismatique 14 (1912), S. 22) aufgestellte Hypothese Erwähnung verdient, daß durch die genau in der geometrischen Mitte der Grundfläche der athenischen Akropolis in den Felsboden eingemeißelte Inschrift [GREEK] die Stelle bezeichnet worden sei, wo sich nicht bloß ein [GREEK] (Paus. 1, 24, 3), sondern auch ein dieser Göttin geweihter Omphalos befunden habe, der in den Skizzen des westlichen Parthenongebiets von Carrey und Nointel unter den Vorderfüßen des vordersten sich bäumenden Rosses vom Gespann der Athene noch deutlich sichtbar sei (vgl. Omphalosstudien S. 22 f.). Es wäre ganz erfreulich, wenn diese Vermutung durch weitere Forschung oder Entdeckung bestätigt würde, was bis jetzt noch nicht der Fall ist.
 
-...
+# Systematische Inhaltsübersicht.
+
+## Vorwort.
+
+## 1\. Der Gedanke eines Zentrums ('Nabels') der Erde bei den Völkern des Ostens.
+
+### 1\. Die Chinesen.
+
+### 2\. Die Turkstämme Südsibiriens.
+
+### 3\. Die Inder.
+
+Die runde, in 7 konzentrische durch Berge und Meere voneinander getrennte _dvîpa_ (Inseln) zerfallende Erdscheibe der Inder (Mahâbhârata): S. 2. --- Ihr Zentrum ist Indien, dessen Mittelpunkt wieder entweder durch den Berg Meru oder durch die in Zentralindien gelegene Stadt dos Vikramâditya Uggajini (Ozene, Asin) gebildet wird: S. 2. --- Diese Vorstellung von der zentralen Lage und dem Meridian von Ozene-Asin ist im 13. Jahrh. auch in die geographische Literatur der Araber und aus ihr in die des christlichen Mittelalters übergegangen: S. 3. --- Auch die Insel Zeylon mit ihrem Adampik und die rätselhafte vom Istrier Aithikos erwähnte Insel Syrtinice scheinen in diesen Zusammenhang zu gehören: S. 5.
+
+### 4\. Die Assyrer und Babylonier.
+
+Der berühmte arabische Geograph Ja'kūbī erklärt den 'Irāk (= Mesopotamien und Chaldaea) für den 'Nabel' der Welt und Baghdad, nicht Mekka oder Jerusalem, wieder für die Mitte des 'Irāk. Das erklärt sich höchst wahrscheinlich aus altbabylonischer Vorstellung, weil Baghdad in unmittelbarer Nähe des alten Babylon gelegen ist: S. 8. --- Babylon erscheint als [GREEK] auch in der Sage vom Turmbau zu Babel: S. 9. --- Brief Prof. J. Hehns (Würzburg) mit weiteren Gründen für die Annahme, daß Babylon das Zentrum der Erde war: S. 10. --- Das Gleiche scheint nach Aithikos auch von Ninive zu gelten: S. 11.
+
+## 2\. Der Omphalosgedanke bei den Juden.
+
+### A\. Jerusalem als Nabel der Erde (vgl. Omphalos S. 24 ff. u. Neue Omphalosstudien S. 15 f.).
+
+Wesentliche Vermehrung des Zeugnismaterials durch Wensincks und Klameths Arbeiten: S. 12. --- Die ältesten literarischen Belege finden sich bei Jesaias 2, 2 und Ezechiel 5, 5: S. 13. --- Über die Vorstellung, daß Jerusalem nicht bloß die zentralste, sondern auch die höchstgelegene Stadt der Welt sei: S. 13. --- Der Stein Schetija als [GREEK] und Ausgangspunkt der Weltschöpfung: S. 14. --- Die Präexistenz dieses Steines und des Heiligtums in Jerusalem nach jüdischen, syrischen und arabischen Quellen: S. 15. --- Der Hauptgrand für diese Anschauung liegt in der Vergleichung des embryonalen Nabels mit dem Nabel der Welt oder der Erde: S. 16. --- Zeugnisse für Jerusalems Bedeutung als Erdnabel aus dem Buche Henoch, dem Talmud und Midrasch: S. 17. --- Zeugnisse aus dem christlichen Mittelalter: die Kreuzprobewunderlegende, das Zeugnis des Adamnanus (Arculfus), des Baeda, Victorinus Pictabionensis, des Typikon (vor 720): S. 18. --- Das noch heute in der griechischen Kathedrale bestehende Denkmal der Erdmitte: S. 23. --- Die mittelalterlichen Weltkarten mit Jerusalem als Mittelpunkt: S. 23.
+
+### B\. Der Omphalos in der Adamlegende.
+
+#### 1\. Die Adamlegende von Golgotha.
+
+Das Zeugnis des äthiopischen Adambuches: S. 25. --- Adams Grab im Golgothafelsen unterhalb des Ortes der Kreuzigung: S. 26. --- Das Zeugnis der syrischen Spelunca thesaurorum (Schatzhöhle): S. 27. --- Die Zeugnisse des Origenes, Athanasius, Ambrosius, Basilius: S. 28. --- Sie alle machen sehr wahrscheinlich, daß die Adamlegende von Golgotha jüdischen, vorchristlichen Ursprungs ist, aber später von den Juden nach Hebron verlegt wurde: S. 33. --- Die Zeugnisse für die Sage, daß Adam auf Golgotha auch erschaffen worden sei: S. 33.
+
+#### 2\. Die Adamlegende von Zion und Morija.
+
+Sie unterscheidet sich von der auf Golgotha lokalisierten Legende dadurch, daß für sie mehr das Motiv der Er- schaffung, als das der Bestattung Adams in Betracht kommt: S. 34. --- Zeugnisse des Rabbi Elieser und der [GREEK]: S. 34. --- Spätere Übertragung dieser Sage auf Mekka: S. 36. --- Verlegung des Paradieses in die Nähe von Zion und Morija nach späteren jüdischen Quellen, weil das Paradies ebenso wie Jerusalem zugleich das Zentrum und die höchste Erhebung der Erdscheibe bedeutet: S. 36.
+
+#### 3\. Adam und Eva in Hebron bestattet.
+
+Merkwürdiger Widerspruch der Zeugnisse des Hierony- mus, der zuerst für Golgotha, später für Hebron ein- getreten ist: S. 40. --- Weitere Zeugnisse der späteren jüdischen Literatur (Sota, Erubin, Baba batra usw.): S. 41. --- Das 'Himmelstor' zu Hebron und 'die über Hebron liegende himmlische Gottesstadt': S. 44. --- Dies alles legt die Vermutung nahe, daß Hebron in ältester Zeit auch den Anspruch erhoben hat, ebenso wie Jeru- salem und Sichem, der [GREEK] zu sein: S. 45.
+
+#### 4\. Die Adamlegenden von Babylon und Damaskus.
+
+## 3\. Weitere [GREEK] in Palästina.
+
+### a\. Sichem und Garizim (samaritanische Überlieferung).
+
+Hohes Alter des Kultes von Sichem, der schon in der kanaanäischen Urzeit ein hochheiliger Ort gewesen sein muß: S. 49. --- Sichem als Konkurrent Jerusalems zur Zeit der Samaritaner: S. 50. --- Der Jehovatempel auf dem Berge Garizim als Gegenstück zum Tempel Jerusalems und als Erdnabel, als welcher der Garizim auch schon Richter 9, 37 ('Nabel des Landes') erscheint: S. 51. --- Weitere Zeugnisse aus der talmudischen und christlichen Literatur, wonach der Garizim von der Sintflut nicht betroffen und der aus Ev. Joh. 4 bekannte Jakobsbrunnen geradezu als 'umbilicus terrae nostrae habitabilis' mit einer eigentümlichen, auch für andere umbilici terrae charakteristischen Begründung angesehen wurde: S. 52.
+
+### b\. Bethel.
+
+Auch Bethel war seit der kanaanäischen Urzeit ein hochheiliger Ort und die Stätte, wo Jakob im Traume die 'Himmelsleiter' erblickte, es galt für 'den Wohnsitz Gottes und die Pforte des Himmels' (Gen. 28, 11 ff.): S. 54. --- Daß der daselbst von Jakob errichtete Denkstein wahrscheinlich ein [GREEK] gewesen ist, geht aus späteren jüdischen und christlichen Überlieferungen hervor, die geradezu Bethel als 'Mittelpunkt der Erde' und den Denkstein des Jakob als 'Grundstein der Erde' und 'Nabel der Welt,' d. h. als Parallele zum Stein Schetija im Heiligtum Jerusalems, bezeugen: S. 56.
+
+## 4\. Mekka als Nabel der Erde.
+
+Zwar haben Mohammed und seine ältesten Anhänger noch Jerusalem als Mittelpunkt der bewohnten Erde angesehen, aber früh schon kam im Islam die Ansicht auf, daß Mekka und speziell die Ka'aba mit dem heiligen schwarzen Stein den Nabel der Erde darstelle: S. 57. --- Übertragung altjüdischer auf Jerusalem bezüglicher Vorstellungen auf Mekka nach arabischen, von Wensinck gesammelten Zeugnissen: S. 58. --- Altarabische Weltkarten mit Mekka als Zentrum: S. 58. --- Die Vorstellung, daß Mekka der höchstgelegene Ort auf der Erde und deshalb von der Sintflut nicht berührt worden sei: S. 59. --- Die Präexistenz Mekkas und der Ka'aba: S. 60. --- Übertragung der Legenden von Adam und Abraham nach Mekka: S. 60. --- Das Grab Evas zu Dschedda als Nabel der Erde: S. 61.
+
+## 5\. Der Omphalos von Athen und Eleusis.
+
+Der von den Peisistratiden gestiftete Zwölfgötteraltar als [GREEK] nach Pindar: S. 62. --- Athen als [GREEK] nach Xenophon de vect. 1, 6 und Aristeides Panath. 99: S. 62. --- Weitere Zeugnisse für denselben Gedanken liefern uns zwei schöne, neuerdings an der Stätte des eleusinischen Telesterions aufgefundene Pinakes und drei auf die eleusinischen Gottheiten (Mysterien) bezügliche Vasenbilder, die sämtlich einen deutlichen Omphalos zur Bezeichnung des Ortes, wo die heilige Handlung stattfindet, zur Darstellung bringen: S. 64.
+
+a\. Der Ninnion-Pinax: S. 64. --- b. Die Vase von Sta Maria di Capua: S. 68. --- c. Der boiotische Teller mit der vor einem 'Omphalos' thronenden Demeter oder Persephone: S. 70. --- d. Die in Kreta gefundene attische Vase des Zentralmuseums in Athen Nr. 1442. S. 72. --- e. Der zweite im Raume des eleusinischen Telesterions (zusammen mit dem unter a behandelten) gefundene Pinax: S. 73.
+
+Schlußfolgerung: Im Hinblick auf diese 5 monumentalen Zeugnisse kann die einstige Existenz eines richtigen Omphalos im Kult der eleusinischen Gottheiten nicht mehr bezweifelt werden: S. 75. --- Daß es sich aber im Grunde um einen [GREEK] im eleusinischen Mysterienkult handelt, folgt mit größter Wahrscheinlichkeit aus der Sage von Triptolemos, in der Athen als Mittel- und Ausgangspunkt aller auf den Segnungen des Ackerbaus beruhenden höheren Kultur und Gesittung erscheint: S. 76. --- Zeugnisse des Isokrates (Panegyr. 28 ff.) und des Platon (Menex. p. 237): S. 76. --- Daß der Erdnabel des eleusinischen Geheimkults bis jetzt nur monumental, nicht literarisch bezeugt ist, beruht auf dem außerordentlichen Einflusse Delphis, das jede offen auftretende Konkurrenz energisch und erfolgreich zu bekämpfen wußte: S. 78.
+
+## 6\. Die Ägypter.
+
+Der kürzlich im Orakeltempel des Amon von Napata (Nubien) ausgegrabene und von Griffith im Journ. of egypt. Archaeol. 3 (1916) 255 ff. besprochene und veröffentlichte Omphalosstein: S. 79. --- Er bestätigt die Nachricht des Curtius Rufus (4, 7), wonach das Idol des von Alexander d. Gr. befragten Amonorakels der Oase Siwa in Libyen "umbilico maxime similis" war: S. 80. --- Beide Kulte, sowohl der von Napata als auch der von Siwa, sind Ableger des thebanischen Amon, dessen Orakel ebenfalls hochberühmt war; Theben galt aber wahrscheinlich als Mittelpunkt ('Omphalos') Ägyptens: S. 81. --- Pietschmanns Auffassung des 'umbilicus' von Siwa als "Tabernakel": S. 82. --- Gegen diese Ansicht und für die Deutung als [GREEK] spricht erstens der Umstand, daß der Stein von Napata nicht hohl, sondern massiv ist und zweitens daß sowohl der 'umbilicus' von Siwa wie der von Napata bereits einer Zeit angehören, die griechischen Einflüssen ausgesetzt war, so daß das ursprünglich mehr sack- oder schlauchähnlich gestaltete Idol von Theben später die Form des delphischen Omphalos annahm: S. 83. --- Literarische Zeugnisse für die Geltung Ägyptens als Land der Mitte (Stob. ecl. 1 p. 302 M. u. Horapoll. 1, 21 a. E.): S. 84.
+
+## 7\. Die Etrusker, Italiker und Germanen.
+
+Wie es scheint, weist der eigentümliche als etruskisch bezeichnete Ritus bei der Gründung von Städten, insbesondere die Anlage eines sogen. 'mundus' im geometrischen Zentrum des Stadtplanes auf die einstige Existenz des Omphalosgedankens auch bei den Italikern hin: S. 86. --- Die runde Form dieses '_mundus_' und die ebenfalls in der Hauptsache runden Stadtmauern und Stadtgräben, die dem runden Horizont (Himmel) oder dem _orbis terrarum_ entsprechen, scheinen anzudeuten, daß Cato b. Fest. p. 154 Recht hat mit seiner Erklärung: 'Mundo nomen impositum est ab eo mundo qui supra nos est [d. h. dem caelum, [GREEK]]: forma enim eius est, ut ex his, qui intravere cognoscere potui, adsimilis illi [also rund und gewölbt]: S. 88. --- Wahrscheinlich ist '_mundus_' in diesem Falle ein euphemistischer Ausdruck für die "untere Welt" oder "Unterwelt," d. h. die Welt der abgeschiedenen Geister (manes): S. 89. --- Eine treffliche Parallele zum italischen "mundus" bildet der '_Dillestein_' der Germanen, der dieselben Beziehungen zum Totenreiche besitzt und zugleich das Zentrum der Erde bildet: S. 89.
+
+## 8\. Der Omphalosgedanke bei den Kelten.
+
+Die von dem französischen Keltologen Loth hervorgezogenen Zeugnisse Cäsars (de bell. Gall. 6, 13) und des Giraldus Cambrensis Topogr. Hibern. 3, 4: S. 91. --- Das Zeugnis der Aventure de Lludd et Llevelys: S. 92. --- Weitere Belege für die einstige Existenz des Omphalosgedankens bei den alten Kelten: S. 93.
+
+## 9\. Der Erdnabel der Luiseño-Indianer Kaliforniens.
+
+## 10\. Nachträge.
+
+## 11\. Systematische Inhaltsübersicht.
