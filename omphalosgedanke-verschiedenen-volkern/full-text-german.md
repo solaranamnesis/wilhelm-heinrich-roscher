@@ -709,4 +709,102 @@ C'était un grand cri qui se faisait entendre chaque nuit de premier mai* au des
 
 *) Sonst wird den in den Schlangen (Drachen) verkörperten Hausgeistern Milch vorgesetzt (Grimm, D. Mythol. 3 650 f.); bei den Griechen erhalten die heiligen Schlangen als Opfer in der Regel Honigkuchen ([GREEK]): Rohde, Psyche 2 1, 305 Anm. 2. Gruppe, Griech. Mythol. u. Rel.-Gesch. S. 909 A. 5.
 
+Loth beschränkt sich darauf, hervorzuheben, welche Bedeutung in dieser echtbritannischen Sage dem Begriffe des Mittelpunktes eines Landes oder der Erde ([GREEK]) zuzuerkennen ist, offenbar dieselbe, die er auch in der irischen Legende des Giraldus Cambrensis vom 'umbilicus Hiberniae' und vom dortigen 'medium et meditullium terrae' und in dem Berichte Caesars von der 'regio media totius Galliae' im Gebiete der Carnutes nachgewiesen hat. Von den übrigen in der Sage enthaltenen merkwürdigen Elementen schweigt er. Auch ich kann an dieser Stelle nicht alles erörtern, möchte aber doch wenigstens darauf hinweisen, daß die Sage insofern einen interessanten historischen Hintergrund hat, als sie offenbar in einer Zeit entstanden ist, als die keltischen Ureinwohner Britanniens in der Furcht vor einer auswärtigen feindlichen Invasion schwebten. Es kann sich daher wohl nur um die Zeit handeln, wo entweder die Römer oder die Germanen (Angeln, Sachsen, Dänen), Britannien mit einer Invasion bedrohten. Die beiden, im Kampfe miteinander liegenden Drachen oder Flügelschlangen sind die Symbole der beiden feindlichen Nationen und gewissermaßen deren Lokalgenien im größten Maßstabe, ebenso wie die Genien der einzelnen Häuser ebenfalls durch heilige, gütige, wohltätige Schlangen oder Drachen dargestellt wurden.* Die innigen Beziehungen solcher Lokalgenien erster Ordnung zum ganzen Lande können kaum drastischer dargestellt werden als durch die Verlegung ihres Wohnsitzes in den mathematisch gewonnenen Mittelpunkt des Gebietes, dessen Wohl ihnen am Herzen liegt.
+
+*) Vgl. J. Grimm, Deutsche Mythol. 3 S. 648 ff. Wissowa, Relig. u. Kultus d. Römer 2 S. 176 f. Preller-Jordan, Rom. Myth. 3 1, 87, 116. Wuttke, D. deutsche Volksaberglaube 2 § 57, 153. Über d. Fütterung von Hausschlangen in Littauen vgl. Globus 75 (1899) S. 160 ff. Rochholz, Deutscher Glaube u. Brauch 1, 146 f.
+
+S. 197 f. a. a. O. bespricht Loth sodann ausführlich das schon von mir (Neue Omphalosstudien S. 25 f.) angeführte Zeugnis des Giraldus Cambrensis von dem im Zentrum Irlands aufgerichteten Steine (lapis), welcher 'umbilicus Hiberniae' genannt wurde (quasi in medio et meditullio terrae positus) und fügt noch weitere wichtige Belege für dieselbe Vorstellung hinzu, vor allem den ebenfalls 'umbilicus' genannten Stein zu Birr in Kings County (nicht weit von Ushnagh oder Kyllari), weiter eine interessante Notiz aus Colgan, Triadis Thaumaturgae acta (Quinta vita s. Columbae) p. 392 col. 2 no. 20: 'Sub idem tempus s. Finnianus leniter soporatus vidit in Hibernico horizonte duos soles cooriri, unum, ut prae se ferebat, argenteum, aureum alterum, magna utrumque sed impari luce coruscum. Qui argenteus erat, austro propior loco, qui Cluain micnois dicitur, recta imminebat; eoque potissimum directis radiis Hiberniae umbilicum mire irradiatum prope incendebat.'
+
+Die hervorragende Bedeutung des großen Steinblockes bei Ushnagh, den man den Umbilicus Hiberniae nannte, bezeugt auch eine Legende vom hl. Patrick, des Nationalheiligen von Irland (Loth a. a. O. S. 200), der 'die Steine von Ushnagh' als einen Gegenstand heidnischen Aberglaubens verflucht haben soll. Auch wurde hier ebenso wie im Lande der Carnutes alljährlich am 1. Mai (s. oben S. 92 Anm. 141) eine große Festversammlung abgehalten, die, wie schon d'Arbois de Jubainville (Les Assemblées publiques d'Irlande. Paris 1880 p. 11 f.) erkannt hat, der von Caesar erwähnten Druidenversammlung im Zentrum Galliens analoge Momente aufweist.
+
+[Fig. 9: Irischer 'Omphalos' von Castlestrange (nach Loth a. a. O. Pl. 1 Fig. 3).]()
+
+Eine Abbildung des Steins von Ushnagh (Fig. 8) und einer Reihe von anderen Steinen, in denen Loth altkeltische Omphaloi erkennen möchte, die ich aber einstweilen lieber zu den problematischen Nabelsteinen rechne, siehe unten auf Seite 96 und die dazu gehörigen Erläuterungen auf S. 97.
+
+[Fig. 10: Irischer 'Omphalos': Pierre de Turoe (nach Loth a. a. O. S. 204).]()
+
+[Fig. 11: Keltischer 'Omphalos' von Mullaghmast (nach Loth a. a. O. S. 205).]()
+
+[Fig. 12a: Keltischer 'Omphalos': Bétyle de Kermaria près Pont l'Abbé (nach Loth a. a. O. Pl. 2 Fig. 6).]()
+
+[Fig. 12b: Desgl. (nach Loth a. a. O. Pl. 2 Fig. 9).]()
+
+Ich gebe hier nach Loth (L'omphalos chez les Celtes = Revue des études anciennes 17 (1915) S. 193 ff.) mehrere interessante altkeltische Kultsteine wieder, denen Loth mit mehr oder weniger Wahrscheinlichkeit den Charakter von Nabelsteinen ([GREEK]) ebenso wie dem berühmten die Mitte von Irland und der Welt bezeichnenden Stein von Ushnagh (vgl. auch Lappenberg im Artikel Irland S. 49 b der Encyklopädie von Ersch und Gruber) zuschreiben möchte. Loth (S. 203) sagt darüber:
+
+'Il n'est pas douteux que de l'ancienne _regio media_, le Midi de l'Irlande, de la colline d'Uisnech le culte de VOmphalos ne se soit repandu dans le pays, bien que nous n'en ayons pas de preuves certaines. Ce culte a été certainement un des premiers abolis par le christianisme: St. Patrice n'avait pas manqué de maudire les pierres d'Uisnech. Il est fort possible qu'un certain nombre des piliers ou _menhirs_ épars à travers l'Irlande aient été des représentations de l'_Omphalos_... D'ailleurs, d'une façon générale, jusque à l'époque chrétienne, lea idoles de l'Irlande étaient des pierres brutes: de véritables _menhirs_. --- Elles étaient parfois rehaussées d'or et d'argent. Un annotateur au martyrologue d'Óengus, composé au 9e siècle... nous donne de curieux détails sur l'idole suprème du Nord: c'était une pierre adorée par les paiens, d'où un démon du nom de Cermond Cestach faisait entendre sa voix. 'C'est la pierre courte,' ajoute-t-il, 'qui est à droite en entrant dans le temple de Clochar; la place de morceaux d'or et d'argent y reste encore, "ut vidimus ipsi..." A côté de ces idoles de pierre brute, il y eut, dès l'époque de la Tène, en Irlande, des pierres sculptées, dont la destination n'est pas connue. Les plus remarquables sont les pierres de Turoe, paroisse de Kiltallogh, baronnie d'Athenry, en Galway, de Castlestrange, comté de Roscommon... et de Mullaghmast, comté de Kildare. Elles ont été l'objet d'une publication avec gravures de Coffey, dans les _Proceeding of the R. I. A._ 24, 6 (1904) p. 257-268 (planche 18-22). La plus complète et la plus importante est celle de Turoe, c'est un bloc erratique de 1m 20 de haut. ...M. C. Jullian a signalé la parenté de ces pierres avec le bétyle de Kermaria, près Pont-l'Abbé... et a conclu, sans doute avec raison, que ces monuments doivent répondre à la même pensée magique ou religieuse et correspondre à la même civilisation. Par leur forme, les pierres de Turoe et de Mullaghmast, surtout celle de Turoe, se recommandent comme des _omphaloi_...
+
+Ich halte es bis auf weiteres für richtig, alle hier angeführten Steine mit einziger Ausnahme des 'umbilicus' von Ushnach zu den 'problematischen' Omphaloi zu rechnen (vgl. N. Omphalosstudien S. 62 ff.).
+
+# 9\. Der Erdnabel der Luiseño-Indianer.
+
+Der ausgezeichnete Religionsforscher und Ethnologe Prof. M. Nilsson in Lund teilte mir am 23. Mai 1916 brieflich folgendes mit:
+
+'Währenddem ich ethnographische Literatur durchblättere, um Material für die primitive Zeitrechnung zu suchen, finde ich Folgendes für Ihre Omphalosstudien. Ein Teil der Einweihungszeremonien bei den Luiseño-Indianern (Kalifornien) war mit einer Malerei auf dem Boden verbunden, die kreisrund war und die Welt darstellte mit ihren sieben Teilen (1. Händen, 2. Bergen, 3. Spinne, 4. Raben, 5. Bär, 6. Schlange). Der siebente Teil ist ein Loch in der Mitte des Kreises, wohl anderthalb Zoll im Diameter, der Nabel genannt. Vgl. Dubois, The Religion of the L. in University of California Publications in American Archaeology and Ethnology 8 (1908) S. 177 f.'
+
+Dieser Nachweis bildet eine willkommene Parallele zu dem Omphalos der Peruaner (Omph. S. 35) und Mexikaner (N. Omphalosstud. S. 75).
+
+[Mittelalterlicher typischer Orbis terrarum mit dem Zentrum Jerusalem (nach 'Omphalos' Taf. 9, 4).]()
+
+# Nachträge und Berichtigungen.
+
+## 1\. Zu Omphalos.
+
+S. 12 Anm. 20 füge jetzt als willkommenen weiteren Beleg für die Ansicht, daß Zwerchfell und Nabel Sitze der Seele seien, hinzu Bakchyl. 16, 21 f.: [GREEK].
+
+Zu S. 13 f.: Bei den Bakairi Brasiliens hört mit dem Abfall der Nabelschnur des Kindes die Verpflichtung des Vaters zur Couvade auf. Bis dahin hat er das Kind zu besorgen, das mit dem Abfalle des letzten Restes der Nabelschnur zur selbständigen Persönlichkeit wird (nach K. v. d. Steinen): Zeitschr. f. Volkskunde 4 (1894) S. 104. --- Ebendort S. 135 teilt Sajaktzis in seinem Artikel über Gräcowalachische Sitten u. Gebräuche Folgendes mit: 'Nach strenger Forderung des weiblichen Aberglaubens hebt man ein Stückchen des Nabelstranges..., welcher vertrocknet abfällt und auch [GREEK] = [GREEK] heißt, sorgfältig auf, um es nach einigen Jahren dem Kinde zu zeigen, 'damit ihm alles geschickt von der Hand gehe.' Deswegen sagen die Frauen mitunter von einem Vielgeschäftigen: 'Der hat seinen [GREEK] gesehen.' Nachdem dieser seine wohltätige Aufgabe erfüllt hat, wird er in die Tiefen eines Koffers oder eines ähnlichen Behältnisses zur Ruhe gelegt, damit er besonders vor Nässe geschützt wird, weil sonst das Kind an Leibweh zu leiden hätte... Bei uns kommen folgende Phrasen vor: "Das kehrt mir den Nabel um," oder: "Darüber verliert man den Nabel" ([GREEK]) bei Dingen, die Ekel oder Furcht erregen. Auch sagt man: "Das geht mir nicht vom Nabel" ([GREEK]) statt dessen häufiger: "Das kommt mir vom Herzen, das geht mir zu Herzen" usw.' lauter Belege für die Tatsache, daß auch heute noch in Hellas der Nabel als Sitz der Seele, des Gemüts aufgefaßt wird.
+
+Aus Wlislockis Aufsatz 'Zigeunertaufe in Südungarn' (Am Urquell 2 [1891] S. 21) stammt folgende Mitteilung; "Die Nabelschnur besitzt nach dem Glauben der Zigeuner die Kraft, böse Geister vom Kinde fern zu halten, deshalb wird auch das Kind, sobald es krank ist, mit einem Stück von der aufbewahrten Nabelschnur geräuchert. Die Nabelschnur nennen die nordungarischen Zigeuner 'Gottes Kette' oder 'Gottes Seil.'" --- Weitere abergläubische die Nabelschnur betreffende Gebräuche s. Am Urquell 3 (1892) S. 282 (Hamburg), S. 278 f. (Serbien), S. 94 (Zigeuner).
+
+Die 'Omfalomanzia' in Rumänien und Sizilien behandelt Meringer in der Zeitschrift 'Wörter und Sachen,' Kulturhistor. Ztschr. f. Sprach- und Sachforschung 5 (1913) S. 48. --- Ebendort S. 46 f. u. 49 finden sich wertvolle Bemerkungen über allerlei Beziehungen des Nabels zum Verstande.
+
+Zu S 19 Anm. 34: Wie bei den Indern nabh-i-s nicht bloß Nabel sondern auch Verwandtschaft bedeutet, so ist auch bei den Arabern der Nabel Symbol und Ausdruck für Verwandtschaft (Rhodokanakis, 'Wörter u. Sachen' S. 201 Anm. 8 ff.).
+
+Zu S. 31 trage ich nach aus Apulej. Asclep. 24: Terra nostra (Aegyptus) mundi totius est templum... sedes religionum... terra sanctissima, ..., Ausdrücke, die wohl am besten auf Ägypten als Zentrum der Erde bezogen werden.
+
+S. 39 Anm. 74 füge hinzu: Auch Jacoby im Artikel Hekataios bei Pauly-Wissowa schließt aus den von mir a. a. O. zitierten Stellen, daß auf der altmilesischen Weltkarte nicht Delphi, sondern ein Punkt Ioniens das Zentrum darstellte.
+
+S. 41 Anm. 79 verweise ich jetzt auch auf Hippolyt. ref. 4, 49 p. 122, 5 ff.: [GREEK]. Vgl. dazu Eisler, Weltenmantel _etc._ S. 324, 2 u. 583.
+
+S. 42 Mitte. Nach Schoemann-Lipsius, Griech. Alt. 4 2 S. 328 saß die Pythia 'auf einer radförmigen Scheibe' (?). Die Bildwerke zeigen sie dagegen meist auf dem Dreifuß sitzend.
+
+Zu S. 45. Leider habe ich bei der Anführung der auf die antiken Windrosen (orbes ventorum) bezüglichen Stelle des Plinius (18, 326 ff.) übersehen, daß auch Vitruvius 1, 6, 6 u. 12 davon handelt. Vgl. dazu jetzt Rehm, Griech. Windrosen S. 12 f. (Münch. Akad. 1916) und meine Anzeige dieser Schrift in der Wochenschr. f. klass. Philol. 1917 Sp. 849, wo ich die Ansicht ausgesprochen habe, daß es sich bei dem von Plinius angegebenen Verfahren nicht, wie Rehm meint, um eine 'Vergröberung,' sondern vielmehr um eine ältere (primitivere) Vorstufe des gleiche Zwecke verfolgenden, im Laufe der Zeit weiter vervollkommneten Verfahrens handelt. S. auch Lelewels (Géogr. du moyen âge 1 p. 80 [Proll.] u. 2 p. 134) Bemerkungen über die ältesten Seekarten, die auf der Windrose beruhten.
+
+S. 64 füge jetzt zu der Ableitung von [GREEK] hinzu Ps.-Luc., Nero 10: [GREEK].
+
+Zu S. 90 Abschn. 10. Nach Wolters (Sitzungsber. d. Münch. Akad., Philos.-hist. Kl. 1915 3 S. 21 Anm. 1) ist nur ein einziger Omphalos im Apollotempel von Pompeji gefunden worden.
+
+S. 94 Nr. 22 handelt es sich nach Bethe, Theban. Heldenlieder S. 14 um eine Befragung des pythischen Apoll von Seiten des Laios (nicht des Oedipus).
+
+S. 96 Anm. 175. Ein weiteres Zeugnis für dieselbe Tatsache bietet uns Aristot. Met. 2, 5, 13: [GREEK]. Nach Jeremias, Handb. d. altorient. Geisteskultur. Leipz. 1913 S. 31, bedeutet das babylonische Zeichen ☉ = kiš = All = orbis terrarum.
+
+S. 113 f. möchte ich jetzt zur Deutung des Omphalos des Asklepios die Frage aufwerfen, ob er nicht vielleicht sein omphalosförmiges Grab bezeichnen könnte. Vgl. sein Grab zu Kynosura und zu Epidauros; s. Rohde, Psyche 2 1, 142, 2, der sich auf Clem. Al. protr. p. 18 D. Cic. de nat. deor. 57. Clement. Homil. 5, 21. Recognit. 10, 24 beruft.
+
+S. 115 Ende Anm. 206. An Miss Harrison haben sich neuerdings angeschlossen Karo im Art. Omphalos des Dict. des antiq., Bulard, Monum. et Mém. Piot 14 (1907) p. 62 f., Küster, D. Schlange in d. griech. Kunst u. Relig. = Rel.-gesch. Vers. u. Vorarb. 13, 2 (1913) S. 70, 3. Farnell, Cults of the gr. states 4 (1907) S. 303. Heisenberg, Grabeskirche 1, 216. S. auch Harrison, Proll. to the study of Greek relig. Cambridge 1908 S. 588 ff.
+
+S. 118 ff. Zu den omphalosförmigen Gräbern gehört wohl auch unzweifelhaft die interessante Darstellung einer von Brückner, Jahrb. d. arch. Inst. 6 (1891) Taf. 4 veröffentlichten, von Maass, Österr. Jahreshefte 11 (1908) S. 15 f. falsch erklärten Lekythos. Hier sieht man zwei einen 'weißen Omphalos,' d. i. ein Grab, hütende mächtige Schlangen, die einen davoneilenden Jüngling, offenbar einen Grabschänder, verfolgen. Maass bemerkt dazu: 'Die Schlangen sind die Omphalosschlangen (?), wie wir sie --- nur im ruhenden Zustand --- um den pythischen und delphischen Omphalos... erblicken. Also gehört der umfriedete Omphalos auf der altattischen Lekythos der Ge, einem der zahlreichen Heiligtümer der attischen Erdmutter. Nachts durchbricht ein Tempelräuber (?) die Hecke um den Omphalos; da fallen ihn die heiligen Schlangen an mit furchtbarem Biß.' S. 10 behauptet M.: 'Die Heiligtümer der Erdmutter pflegen Kuppelform zu haben und [GREEK] 'Nabel' zu heißen. Nur Klügelei (?) machte den delphischen Nabel zum 'Erdnabel,' zur Erdmitte, falsch schon darum, weil es viele solche 'Nabel' nachweislich im griechischen Kult gegeben hat. Sie standen nachweislich vielfach im Kreuzungspunkt der Hauptstraßen (E. Curtius, Abh. 1, 116).' Ich glaube kaum, daß M. jetzt noch, wenn er meine Abhandlungen über den Omphalosbegriff gelesen hat, seine Ansicht aufrechterhalten dürfte.
+
+Zu S. 120 oben. Hierher gehört wohl auch der 'conic navel 2m in height and diameter, surrounded by a serpent in four circles, with an enormous head. This navel which may be compared with several plates in Roschers treatises, is placed upon a gigantic quadrangular stone block which serves as its pedestal. Under the rock that supports this monument is a large room with niches for the reception of the dead.' Wensinck, The navel of the earth S. 60. Dalman, Petra 1 p. 218 ff.
+
+Zu S. 123 oben. Auch die babylonischen Grenzsteine ([GREEK] = kudurru) haben konische, omphalosförmige Gestalt; s. Jeremias, Handb. d. altor. Geisteskultur S. 108 Abb. 82.
+
+## 2\. Zu Neue Omphalosstudien.
+
+S. 11. In der Sage von der Argo (Roscher, Die Zahl 50 S. 111 Anm. 189) ist der Sitz des orakelnden Dämons, der sich als die Seele des Schiffs auffassen läßt, in das Zentrum des Schiffskieles, also gewissermaßen den [GREEK] verlegt.
+
+S. 36 füge man noch folgende auf das delphische [GREEK] bezügliche Zeugnisse hinzu: Jamblich, de myst. 3, 11 p. 123, 13 Parthey: [GREEK] (man beachte den Plural!) [GREEK]. --- ib. p. 126, 5: [GREEK]. --- ib. p. 126, 11: [GREEK]. Origen. c. Cels. 8, 3: Die Pythia weissagt [GREEK] [= [GREEK]?] [GREEK]. Vgl. dazu W. Nestle in Wochenschrift f. klass. Philol. 1916 Sp. 147. Fehrle, Kultische Keuschheit, Gießen 1910 S. 7.
+
+Zu S. 46 ist jetzt hinsichtlich des Verständnisses von Varro de l. l. 7, 17 zu verweisen auf meinen 'Omphalosgedanken' S. 61 Anm. 105.
+
+S. 62 ff. Zu den "problematischen Omphaloi" gehört wohl auch der neben einer hellenistischen männlichen Gewandfigur (die im Theater gefunden wurde) stehende Nabelstein, abgebildet bei Kothe-Watzinger, Magnesia am Maeander 1904 S. 208. Watzinger meint, daß ein Dichter dargestellt sei; der Omphalos deute darauf. Ich verdanke diese Notiz einem Briefe O. Kerns vom 12./10. 1918.
+
+## 3\. Zum Omphalosgedanken.
+
+Zu S. 12 Anm. 17 kommt jetzt noch hinzu das Zeugnis des Ambrosius ed. Migne P. L. 15 1961 ff.: In medio autem Iudaeae civitas Hierosolyma quasi umbilicus regionis totius, ut prudentibus placuit, nuncupatur.
+
+S. 29 f. Anm. 38 läßt sich die Reihe der Zeugnisse noch weiter ergänzen durch folgende: S. Cyrilli Hierosolym. archiep. [† 386] catechesis 13 (De Christo crucifixo et sepulto) = Migne P. Gr. 33 p. 805: [GREEK]. --- Hilarii episcop. [† 367] Comment. in Matth. cap. 33 = Migne P. L. 9, 1073: Locus deinde crucis talis est, ut positus in medio terrae, et tamquam in vertice huius univeraitatis [Höhenlage!] insistens, ad capessendam Dei cognitionem universis gentibus esset aequalis. --- Didymi Alexandr. [† 394] de trinitate l. 1 = Migne P. Gr. 39 p. 324: [GREEK] [versio lat.: de aeterno] [GREEK]. --- Vgl. ferner Klameth a. a. O. 107, der als weitere Zeugen anführt: Chrysost. Homil. 85 = Migne P. Gr. 459. Theophylact. Enarr. in Evang. Matth. 27, 33-37 = Migne P. Gr. 123, 468.
+
+S. 57 möchte ich jetzt hinzufügen, daß auch Bethlehem bisweilen als Zentrum der Erde, als Geburtsort Christi und als der Ort hingestellt wird, wo Adam erschaffen wurde. So z. B. in einer lateinischen Handschrift der Schlettstädter Sammlung Nr. 1093. S. M. Förster im Arch. f. Rel.-Wiss. 11 (1908) S. 518: Incipit de plasmationem Adam. Ubi (= ibi) Deus Adam plasmavit, ubi Christus natus est hoc <est> in Bethleem civitatem, ubi et medius mundus est.
+
+S. 63 hätte wohl auch die von Svoronos (Journ. Internat. d'Archéol. Numismatique 14 (1912), S. 22) aufgestellte Hypothese Erwähnung verdient, daß durch die genau in der geometrischen Mitte der Grundfläche der athenischen Akropolis in den Felsboden eingemeißelte Inschrift [GREEK] die Stelle bezeichnet worden sei, wo sich nicht bloß ein [GREEK] (Paus. 1, 24, 3), sondern auch ein dieser Göttin geweihter Omphalos befunden habe, der in den Skizzen des westlichen Parthenongebiets von Carrey und Nointel unter den Vorderfüßen des vordersten sich bäumenden Rosses vom Gespann der Athene noch deutlich sichtbar sei (vgl. Omphalosstudien S. 22 f.). Es wäre ganz erfreulich, wenn diese Vermutung durch weitere Forschung oder Entdeckung bestätigt würde, was bis jetzt noch nicht der Fall ist.
+
 ...
