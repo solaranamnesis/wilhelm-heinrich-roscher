@@ -10,19 +10,57 @@
 
 # [Vorwort.](#vorwort-1)
 
-# [1\. Der Gedanke eines Zentrums ('Nabels') der Erde bei verschiedenen Völkern des Ostens.]()
+# [1\. Der Gedanke eines Zentrums ('Nabels') der Erde bei verschiedenen Völkern des Ostens.](#1-der-gedanke-eines-zentrums-nabels-der-erde-bei-verschiedenen-völkern-des-ostens-1)
 
-## [1\. Die Chinesen.]()
+## [1\. Die Chinesen.](#1-die-chinesen-1)
 
-## [2\. Die Turkstämme Südsibiriens.]()
+## [2\. Die Turkstämme Südsibiriens.](#2-die-turkstämme-südsibiriens-1)
 
-## [3\. Die Inder.]()
+## [3\. Die Inder.](#3-die-inder-1)
 
-## [4\. Die Assyrer und Babylonier (vgl. Omphalos S. 23 f.).]()
+## [4\. Die Assyrer und Babylonier (vgl. Omphalos S. 23 f.).](#4-die-assyrer-und-babylonier-vgl-omphalos-s-23-f-1)
 
-# [2\. Der Omphalosgedanke bei den Juden.]()
+# [2\. Der Omphalosgedanke bei den Juden.](#2-der-omphalosgedanke-bei-den-juden-1)
 
-## [A\. Jerusalem als Nabel der Erde.]()
+## [A\. Jerusalem als Nabel der Erde.](#a-jerusalem-als-nabel-der-erde-1)
+
+## [B\. Der Omphalos in der Adamlegende (vgl. Omphalos S. 26).]()
+
+### [1. Die Adamlegende von Golgotha (vgl. Omphalos S. 26).]()
+
+### [2. Die Adamlegende von Zion und Morija.]()
+
+### [3. Adam und Eva in Hebron bestattet.]()
+
+### [4. Die Adamlegenden von Babylon, Damaskus, Indien und Mekka.]()
+
+# [3. Weitere ὀμφαλοὶ γῆς in Palästina.]()
+
+## [a\. Sichem und Garizim (samaritanische Überlieferung).]()
+
+## [b. Bethel.]()
+
+# [4. Mekka als Nabel der Erde.]()
+
+# [5. Der Omphalos von Athen und Eleusis.]()
+
+# [6. Die Ägypter (vgl. Omphalos S. 31 f.).]()
+
+# [7. Die Etrusker, Italiker und Deutschen.]()
+
+# [8. Der Omphalosgedanke bei den Kelten.]()
+
+# [9. Der Erdnabel der Luiseño-Indianer.]()
+
+# [Nachträge und Berichtigungen.]()
+
+## [1. Zu Omphalos.]()
+
+## [2. Zu Neue Omphalosstudien.]()
+
+## [3. Zum Omphalosgedanken.]()
+
+# [Systematische Inhaltsübersicht.]()
 
 ---
 
@@ -409,7 +447,7 @@ Von dem in einer geradezu paradiesischen Umgebung gelegenen und von jeher den 'M
 
 Die Adamsage von Zeylon ist oben S. 5 ff. behandelt worden, die von Mekka s. unten Kap. 4.
 
-# 3\. Weitere [GREEK] in Palästina.
+# 3\. Weitere ὀμφαλοὶ γῆς in Palästina.
 
 Wir haben soeben gesehen, dass es im Raume Jerusalems verschiedene Punkte gegeben hat, die sämtlich den Anspruch erhoben, der 'Nabel der Erde' zu sein, nämlich Golgotha, Zion, Moria, und dass überhaupt das ganze heilige Land,* wie es scheint, von jeher, d. h. schon in der kanaanitischen Urzeit, und vielleicht noch vor der Blüte Jerusalems und der Errichtung des Salomonischen Tempels,* dieselbe Ehre beansprucht hat. Diese letztere Vermutung lässt sich jetzt zu größter Wahrscheinlichkeit erheben durch den Hinweis auf die Tatsache, dass innerhalb Palästinas noch mehrere uralte (ursprünglich kanaanitische) Städte in dieser Beziehung als Konkurrenten Jerusalems aufgetreten sind, nämlich Sichem mit dem Berge Garizim, Bethel und wahrscheinlich auch das schon oben S. 40 ff. besprochene als Grabstätte Adams und Evas später mehrfach genannte Hebron.
 
