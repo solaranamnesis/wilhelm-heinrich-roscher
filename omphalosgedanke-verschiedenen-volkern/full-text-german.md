@@ -8,6 +8,22 @@
 
 ---
 
+# [Vorwort.](#vorwort-1)
+
+# [1\. Der Gedanke eines Zentrums ('Nabels') der Erde bei verschiedenen Völkern des Ostens.]()
+
+## [1\. Die Chinesen.]()
+
+## [2\. Die Turkstämme Südsibiriens.]()
+
+## [3\. Die Inder.]()
+
+## [4\. Die Assyrer und Babylonier (vgl. Omphalos S. 23 f.).]()
+
+# [2\. Der Omphalosgedanke bei den Juden.]()
+
+## [A\. Jerusalem als Nabel der Erde.]()
+
 ---
 
 # Vorwort.
