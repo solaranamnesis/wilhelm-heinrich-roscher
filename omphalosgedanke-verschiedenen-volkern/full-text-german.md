@@ -24,43 +24,43 @@
 
 ## [A\. Jerusalem als Nabel der Erde.](#a-jerusalem-als-nabel-der-erde-1)
 
-## [B\. Der Omphalos in der Adamlegende (vgl. Omphalos S. 26).]()
+## [B\. Der Omphalos in der Adamlegende (vgl. Omphalos S. 26).](#b-der-omphalos-in-der-adamlegende-vgl-omphalos-s-26-1)
 
-### [1. Die Adamlegende von Golgotha (vgl. Omphalos S. 26).]()
+### [1. Die Adamlegende von Golgotha (vgl. Omphalos S. 26).](#1-die-adamlegende-von-golgotha-vgl-omphalos-s-26-1)
 
-### [2. Die Adamlegende von Zion und Morija.]()
+### [2. Die Adamlegende von Zion und Morija.](#2-die-adamlegende-von-zion-und-morija-1)
 
-### [3. Adam und Eva in Hebron bestattet.]()
+### [3. Adam und Eva in Hebron bestattet.](#3-adam-und-eva-in-hebron-bestattet-1)
 
-### [4. Die Adamlegenden von Babylon, Damaskus, Indien und Mekka.]()
+### [4. Die Adamlegenden von Babylon, Damaskus, Indien und Mekka.](#4-die-adamlegenden-von-babylon-damaskus-indien-und-mekka-1)
 
-# [3. Weitere ὀμφαλοὶ γῆς in Palästina.]()
+# [3. Weitere ὀμφαλοὶ γῆς in Palästina.](#3-weitere-ὀμφαλοὶ-γῆς-in-palästina-1)
 
-## [a\. Sichem und Garizim (samaritanische Überlieferung).]()
+## [a\. Sichem und Garizim (samaritanische Überlieferung).](#a-sichem-und-garizim-samaritanische-überlieferung-1)
 
-## [b. Bethel.]()
+## [b. Bethel.](#b-bethel-1)
 
-# [4. Mekka als Nabel der Erde.]()
+# [4. Mekka als Nabel der Erde.](#4-mekka-als-nabel-der-erde-1)
 
-# [5. Der Omphalos von Athen und Eleusis.]()
+# [5. Der Omphalos von Athen und Eleusis.](#5-der-omphalos-von-athen-und-eleusis-1)
 
-# [6. Die Ägypter (vgl. Omphalos S. 31 f.).]()
+# [6. Die Ägypter (vgl. Omphalos S. 31 f.).](#6-die-ägypter-vgl-omphalos-s-31-f-1)
 
-# [7. Die Etrusker, Italiker und Deutschen.]()
+# [7. Die Etrusker, Italiker und Deutschen.](#7-die-etrusker-italiker-und-deutschen-1)
 
-# [8. Der Omphalosgedanke bei den Kelten.]()
+# [8. Der Omphalosgedanke bei den Kelten.](#8-der-omphalosgedanke-bei-den-kelten-1)
 
-# [9. Der Erdnabel der Luiseño-Indianer.]()
+# [9. Der Erdnabel der Luiseño-Indianer.](#9-der-erdnabel-der-luiseño-indianer-1)
 
-# [Nachträge und Berichtigungen.]()
+# [Nachträge und Berichtigungen.](#nachträge-und-berichtigungen-1)
 
-## [1. Zu Omphalos.]()
+## [1. Zu Omphalos.](#1-zu-omphalos-1)
 
-## [2. Zu Neue Omphalosstudien.]()
+## [2. Zu Neue Omphalosstudien.](#2-zu-neue-omphalosstudien-1)
 
-## [3. Zum Omphalosgedanken.]()
+## [3. Zum Omphalosgedanken.](#3-zum-omphalosgedanken-1)
 
-# [Systematische Inhaltsübersicht.]()
+# [Systematische Inhaltsübersicht.](#systematische-inhaltsübersicht-1)
 
 ---
 
