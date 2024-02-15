@@ -6,6 +6,8 @@
 
 ### Bei B. G. Teubner.
 
+[Mittelalterlicher typischer Orbis terrarum mit dem Zentrum Jerusalem (nach 'Omphalos' Taf. 9, 4).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/cover.png)
+
 ---
 
 # [Vorwort.](#vorwort-1)
