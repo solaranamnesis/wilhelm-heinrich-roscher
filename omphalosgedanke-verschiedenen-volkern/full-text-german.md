@@ -92,7 +92,7 @@ Auch diesmal wieder beginnen wir unsere Wanderung im fernen Osten, um sie im äu
 
 Dresden-A., Febr. 1918.
 
-[Der jetzige in der griechischen Kathedrale befindliche Omphalos von Jerusalem (nach 'Omphalos' Taf. 9, Fig. 3).]()
+[Der jetzige in der griechischen Kathedrale befindliche Omphalos von Jerusalem (nach 'Omphalos' Taf. 9, Fig. 3).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/forward.png)
 
 # 1\. Der Gedanke eines Zentrums ('Nabels') der Erde bei verschiedenen Völkern des Ostens.
 
@@ -547,7 +547,7 @@ Aber so deutlich auch an den beiden soeben angeführten Stellen die zentrale Lag
 
 *) Vgl. Ed. Schmidt im Text zu den Denkmälern griech. u. röm. Skulptur von Brunn-Bruckmann zu Taf. 660, Anm. 42.
 
-[Fig. 1: Pinax der Ninnion (nach Harrison, Prolegomena to the Study of Greek Religion, Cambridge 1903, S. 559. Fig. 160).]()
+[Fig. 1: Pinax der Ninnion (nach Harrison, Prolegomena to the Study of Greek Religion, Cambridge 1903, S. 559. Fig. 160).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-01.png)
 
 Von allergrößtem Interesse für unser Problem ist der im J. 1895 im Telesterion von Eleusis ausgegrabene sogenannte Ninnion-Pinax (s. Fig. 1), offenbar die Votivgabe 'an die beiden Göttinnen' [ΝΙΝΝΙΟΝ ΤΟΙΝ ΘΕΟΙΝ Ανέθηκεν] einer Kernophoros-Tänzerin zur Erinnerung und zum Dank für ihre Einweihung in die eleusinischen Mysterien, zum ersten Male veröffentlicht und ausführlich besprochen von Skias in der Ἐφημερὶς Ἀρχαιολ. 1901 S. 1 ff. (vgl. πίναξ 1), sodann von Svoronos in seiner Revue Internat. d'Archéologie et Numismatique 1901 pl. 1, S. 170 ff. u. 233 ff.* und bald darauf, in der Hauptsache Svoronos zustimmend, von Miss J. Harrison in ihren Prolegomena to the Study of Greek Religion. Cambridge 1903, S. 558 ff. --- Miss H.'s Erklärung lautet:
 
@@ -579,7 +579,7 @@ Wir müssen daher ohne Frage Miss Harrison beistimmen, wenn sie den fraglichen G
 
 Ehe ich aber zu dieser übergehe, seien hier noch kurz die vier anderen Bildwerke besprochen, die ebenfalls den vermeintlichen "delphischen" Omphalos im Kreise eleusinischer Gottheiten zeigen.
 
-[Fig. 2: Vase von Sta Maria di Capua (nach Harrison a. a. O. S. 557, Fig. 159).]()
+[Fig. 2: Vase von Sta Maria di Capua (nach Harrison a. a. O. S. 557, Fig. 159).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-02.png)
 
 Hier kommt vor allem eine schöne polychrome Vase in Betracht (Fig. 2), die im Jahre 1883 zu Sta Maria di Capua gefunden und zuerst von Fröhner in seiner Collection Tyszkiewicz Planche 9 u. 10 abgebildet, sowie in dem dazu gehörigen Texte besprochen worden ist.* Fröhner sagt darüber:
 
@@ -597,7 +597,7 @@ Nur zögernd und mit gebührender Reserve wage ich hier an dritter Stelle noch e
 
 *) Nach Wide hat auch J. Harrison a. a. O. S. 274 f. das Vasenbild kurz besprochen und unter Nr. 67 abbilden lassen. Auch sie wagt nicht zu entscheiden, ob die dargestellte Göttin Demeter oder Kore ist.
 
-[Fig. 3: Boiotischer Teller des Nat.-Mus. in Athen (nach Harrison a. a. O. S. 275, Fig. 67).]()
+[Fig. 3: Boiotischer Teller des Nat.-Mus. in Athen (nach Harrison a. a. O. S. 275, Fig. 67).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-03.png)
 
 'Kultbild aus der Mitte des 5. Jahrh., darstellend Demeter oder Persephone... Die Attribute, Fackel, Mohn* und Ähren, werden auf den Denkmälern wie in der Literatur beiden Göttinnen häufig beigegeben. Es ist eine chthonische Göttin... Über dem Chiton trägt die Göttin einen Peplos, den Peplos eines Kultbilds, der von Zeit zu Zeit neu angelegt wurde. Über die Achseln ist ein eigentümliches Gewand (Schleiertuch) geworfen. Vor der Göttin steht ein oblonger, rundlicher Gegenstand, der schwer zu bestimmen ist. Man schwankt zunächst, ob dieser Gegenstand ein Pithos oder ein Altar ist. Für die Annahme eines Pithos würde sich eine Erklärung darbieten mit Rücksicht auf Miss Harrisons Auseinandersetzungen über die Anthesterien (Journ. of Hell. Stud. 1900 S. 99 ff.). Indessen bin ich schließlich zu der Überzeugung gelangt, dass es doch ein Altar ist. Eigentümlich ist dabei die Form, die einem Tymbos am meisten ähnelt. Es sieht so aus, als wäre der Altar aus Erde, ein γῆς χῶμα wie nach Paus. 8, 38, 7 der Altar des Zeus Lykaios war, oder eine ara graminea, caespiticia, wie die Römer sie nannten. Durch die Untersuchungen von Reisch und Thiersch (R. bei Pauly-Wissowa 1, 1665 ff. Th., Tyrrhen. Amphoren 131, Taf. 1) wissen wir, dass es in Griechenland Altäre gab, die einem Grabhügel --- τύμβος --- ähnlich waren... Wenn auf unserem boiotischen Vasenbilde βωμός und τύμβος identisch sind, so ist das nicht weiter auffällig; denn hier ist ja die Totengöttin dargestellt und für diese passt eine Altarform, die an ein Grab erinnert, und passt auch die auf dem Altar liegende Granate[?], die den chthonischen Gottheiten heilige Frucht.' Den hinter der Göttin schwebenden Vogel, dessen Gattung sich nicht sicher bestimmen lässt, deutet Wide als 'Seelenvogel,' als einen 'Boten der unterirdischen Göttin' (S. 155 f.).
 
@@ -611,7 +611,7 @@ Gar keinem Zweifel kann dagegen der Omphalos auf einem schönen, in Kreta gefund
 
 *) Unter dem Titel: Τὸ μυστήριον τῆς 12. Ἀνθεστηριῶνος· Ἀφροδίτη ἡ ἄπτερος Νίκη.
 
-[Fig. 4: Attisches Vasenbild aus Kreta im Zentralmuseum zu Athen (nach Journal Internat. d'Archéologie Numismatique 1901, Tafel ιστʹ).]()
+[Fig. 4: Attisches Vasenbild aus Kreta im Zentralmuseum zu Athen (nach Journal Internat. d'Archéologie Numismatique 1901, Tafel ιστʹ).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-04.png)
 
 Dass es sich auch hier um die eleusinischen Mysterien handelt, geht schon aus dem von Svoronos mit Recht hervorgehobenen Umstande hervor, dass hier nicht weniger als 5 von den auf dem Gefäße von Capua dargestellten Personen wiederkehren, nämlich Demeter, Kore, Dionysos, 'Musaios' (?) und 'Pnyx' (?). Außerdem nimmt Svoronos noch 'Aphrodite' (Nr. 6 = Νίκη ἄπτερος) und 'Phaidra' (Nr. 7) als anwesend an.
 
@@ -621,7 +621,7 @@ An letzter Stelle gedenke ich noch in diesem Zusammenhange des schönen, leider 
 
 Ἡ παράστασις τοῦ δευτέρου... πίνακος εἶνε πολὺ μᾶλλον τοῦ πρώτου εὐδιαγνωστοτέρα ὡς ἀνήκουσα τῷ ἐλευσινιακῷ κύκλῳ, διότι παραστάσεις Δήμητρος καθημένης καὶ Κόρης ἱσταμένης καὶ κρατούσης δᾷδας εἶναι συχναί, ἐπίσης δ᾽ εὐδιάγνωστος καίπερ τὸ πλεῖστον ἐλλιπὴς εἶνε ἡ μορφὴ τοῦ Τριπτολέμου κατὰ τὸ πρὸς δεξιὰν ἄκρον τοῦ πίνακος. Τοιούτου πίνακος εὐαρμόστατον κόσμημα εἶνε ὁ πολύκαρπος θαλλὸς μύρτου ἐν τῇ ὑποκάτω ταινίᾳ. Τὸ κέντρον τῆς παραστάσεως ἀποτελοῦσι τρεῖς μορφαί, ἡ ἐν τῷ μέσῳ καθημένη Δημήτηρ, ἡ δεξιόθεν αὐτῆς ἱσταμένη Κόρη κρατοῦσα δύο δᾷδας. ὧν μόνον τὰ κάτω ἄκρα διεσώθησαν, καὶ ἡ ἀριστερόθεν τῆς Δήμητρος ἀνδρικὴ μορφή, ἧς διεσώθησαν μόνον οἱ πόδες ὑψηλὰ ὑποδήματα (ἐνδρομίδας) φέροντες, ἐξ ὧν εὐκόλως ἀναγνωρίζεται ἡ μορφὴ τοῦ Ἰάκχου, περὶ ἧς διὰ μακρῶν διελάβομεν ἐν τοῖς περὶ τοῦ πρώτου πίνακος. Αἱ τρεῖς αὖται μορφαὶ κατὰ τὸν αὐτὸν περίπου τρόπον παρίστανται ἐν τεμαχίῳ ἀναγλύφου ἐκδεδομένῳ ὑπὸ Kern ἐν Mitteil. Athen. 17 σελ. 127 fig. 2,  περὶ οὗ ἐγένετο λόγος καὶ ἀνωτέρω (σελ. 32 ὑποσημ. 2). Ὁ ὀμφαλὸς δηλοῖ τὴν ἐν Ἐλευσῖνι ἔδραν τοῦ παναρχαίου χθονίου θεοῦ, ὃν ὑποκατέστησεν ὁ Ἴακχος κατὰ τὰ ἀνωτέρω εἰρημένα (σελ. 28 ἐξ.), ἀλλ᾽ ἐν τῷ ἡμετέρῳ πίνακι αἱ μεγάλαι θεαὶ κατέχουσιν ἐγγυτεραν θέσιν πρὸς τὸν ὀμφαλὸν ἢ ὁ Ἴακχος, διότι αὐταῖς κατ᾽ ἐξοχὴν ἀνήκει ἡ Ἐλευσίς. Ich möchte auch hier annahmen, dass (wie auch Rubensohn und Svoronos a. a. O. S. 175 u. 237 f. glauben) der Omphalos im Grunde nur zur Bezeichnung des Lokals, wo die ganze Szene sich abspielt, diene. Dieses Lokal aber muss, wie der in ihm errichtete Omphalos beweist, als Mittelpunkt der bewohnten Erde angesehen worden sein. Eine andere Auffassung scheint kaum möglich oder wahrscheinlich.
 
-[Fig. 5: Votivpinax aus dem eleusin. Telesterion (nach Skias, Ἐφημ. Ἀρχ. 1901, Taf. 2).]()
+[Fig. 5: Votivpinax aus dem eleusin. Telesterion (nach Skias, Ἐφημ. Ἀρχ. 1901, Taf. 2).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-05.png)
 
 *) Hier behauptet Skias, dass der eleusinische Omphalos ursprünglich von allen eleusinischen Gottheiten allein dem Iakchos (= Dionysos) zukomme, 'als dem im Lebes des delphischen Dreifußes gekochten und von Apollon auf dem Parnass bestatteten Gotte,' eine Ansicht, die Svoronos a. a. O. S. 175 und 238 gewiss mit Recht bestreitet. Dagegen kann ich diesem Gelehrten nicht beistimmen, wenn er seiner Neigung, die einstige Existenz eines Omphalos im Kulte von Eleusis zu leugnen und an dessen Stelle die ἀγέλαστος πέτρα zu setzen, allzu sehr nachgebend, in dem "Omphalos" dieses zweiten Pinax einen βωμὸς ἐκ πέτρας παναρχαῖος erkennen will, weil dessen ἄνω μέρος (ἃν δὲν ἀπατᾷ ἡμᾶς ἡ ὡραία εἰκὼν τῆς Ἀρχαιολ. Ἐφημ.) ἐπίπεδον καὶ βωμοειδές, ἤ τοι σχῆμα ἀνήκουστον δι᾽ ὀμφαλόν. Ich glaube, dass nicht leicht jemand, der die übrigen hier besprochenen Bildwerke in Betracht zieht, in diesem Falle Svoronos beipflichten wird, und verweise außerdem auf die unzweifelhaften, ebenfalls oben abgeplatteten Omphaloi, deren Abbildungen ich Omphalos Taf. 6, Fig. 1 u. 4 (vgl. Neue Omphalosstud. Taf. 1, Fig. 2) gegeben habe.
 
@@ -651,7 +651,7 @@ Meine früher (s. Omphalos S. 31) ausgesprochene Hoffnung, dass künftige Funde 
 
 *) Hinsichtlich dieses Orakels verweise ich auf Perrot-Chipiez, Gesch. d. Ku. i. Altert. 1, bearb. von Pietschmann (1884) S. 334, 338, 661 f. Erman, D. ägypt. Religion. Berlin 1905, S. 199 f.
 
-[Fig. 6: 'Omphalos' aus Napata in Nubien (nach Journal of Egyptian Archaeology 3 [1916] Seite 255).]()
+[Fig. 6: 'Omphalos' aus Napata in Nubien (nach Journal of Egyptian Archaeology 3 [1916] Seite 255).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-06.png)
 
 Volume 3. Part 4. The Journal of Egyptian Archaeology. October 1916. S. 255.
 
@@ -715,7 +715,7 @@ Weiter führt D. [p. 67] ein merkwürdiges 'tableau' zu Médinet-Habou an, auf d
 
 S. 69 schließt D. seine Darlegungen mit den Worten: 'Ces documents... suffisent pour nous prouver que cette forme divine appartenan tà Min créateur, confondu avec Harsiési, ce Panthée que les statuettes et les bas-reliefs nous présentent sous tant d'aspects différents. Le trait caractéristique est ce sac dans lequel le dieu est enfermé, sa tête émergeant seule...' Zuletzt vergleicht D. noch die sackähnliche Gestalt des Amon von Theben mit dem 'umbilicus' des Curtius Rufus in der Oase von Siwa und meint nicht ohne innere Berechtigung: 'L'ombilic dont parle l'auteur ne peut être mieux représenté que par la protubérance du sac où Amon est caché.'
 
-[Fig. 7: Amonidole aus dem ägyptischen Theben (nach Annales du Service des Antiquités T. 9 [1908], Pl. 1, p. 64 ff. zu dem Artikel von Daressy, 'Une nouvelle Forme d'Amon').]()
+[Fig. 7: Amonidole aus dem ägyptischen Theben (nach Annales du Service des Antiquités T. 9 [1908], Pl. 1, p. 64 ff. zu dem Artikel von Daressy, 'Une nouvelle Forme d'Amon').](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-07.png)
 
 # 7\. Die Etrusker, Italiker und Deutschen.
 
@@ -752,7 +752,7 @@ Bereits in den Neuen Omphalosstudien 1, S. 24 f. habe ich kurz auf einen hochint
 
 *) Man glaubt jetzt den locus consecratus in finibus Carnutum in dem 'petit vallon marécageux de la Vouzée qui aboutit au Loir, à deux kilometres environ en amont de Vendôme' entdeckt zu haben (Comptes Rendus de l'Acad. d. Inscript. et B.-L. 1915 Juillet-Août p. 282). --- Noch jetzt spielt übrigens der Omphalosgedanke in Frankreich eine gewisse Rolle, wie die Pyramide von Bruère lehrt. Diese wurde unter Napoleon 3. errichtet, als es den französischen Geographen und Mathematikern gelungen war, den geographischen Mittelpunkt Frankreichs genau festzustellen. Dieses Zentrum befand sich damals in dem kleinen Flecken Bruère bei Fontainebleau, und zur Erinnerung an jenes Ereignis wurde auf dem Marktplatz von Bruère eine mächtige Pyramide errichtet, die aber nach der Annexion von Elsass-Lothringen ihre ursprüngliche Bedeutung verlor. Mehr darüber s. in der Kreuzzeituug 1916 Nr. 491 (26./9.), Morgenausgabe Sp. 4.
 
-[Fig. 8: Der jetzt zersprengte umbilicus Hiberniae des Giraldus Cambrensis (nach Loth a. a. O. S. 200).]()
+[Fig. 8: Der jetzt zersprengte umbilicus Hiberniae des Giraldus Cambrensis (nach Loth a. a. O. S. 200).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-08.png)
 
 L. sucht in seiner Abhandlung über den Nabel der Erde bei den Kelten die Ergebnisse meines 'Omphalos' vom keltologischen Standpunkt aus zu ergänzen (p. 193). Er geht aus von dem Zeugnis Caesars (de bell. Gall. 6, 13) von der zentralen Lage des Carnutenlandes (regio totius Galliae media) und der alljährlich daselbst veranstalteten Zusammenkunft der Druiden au einem geweihten Platze (in loco consecrato) und bezieht auf Orte gleicher Bedeutung den so häufig im altkeltischen Gebiete begegnenden Namen _Medio-lanon_, den er ebenso wie _Medio-nemeto-n_ als 'sanctuaire, lieu consacré central, vraisemblement dans un forêt' deutet (p. 194).
 
@@ -776,17 +776,17 @@ S. 197 f. a. a. O. bespricht Loth sodann ausführlich das schon von mir (Neue Om
 
 Die hervorragende Bedeutung des großen Steinblockes bei Ushnagh, den man den Umbilicus Hiberniae nannte, bezeugt auch eine Legende vom hl. Patrick, des Nationalheiligen von Irland (Loth a. a. O. S. 200), der 'die Steine von Ushnagh' als einen Gegenstand heidnischen Aberglaubens verflucht haben soll. Auch wurde hier ebenso wie im Lande der Carnutes alljährlich am 1. Mai (s. oben S. 92 Anm. 141) eine große Festversammlung abgehalten, die, wie schon d'Arbois de Jubainville (Les Assemblées publiques d'Irlande. Paris 1880 p. 11 f.) erkannt hat, der von Caesar erwähnten Druidenversammlung im Zentrum Galliens analoge Momente aufweist.
 
-[Fig. 9: Irischer 'Omphalos' von Castlestrange (nach Loth a. a. O. Pl. 1 Fig. 3).]()
+[Fig. 9: Irischer 'Omphalos' von Castlestrange (nach Loth a. a. O. Pl. 1 Fig. 3).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-09.png)
 
 Eine Abbildung des Steins von Ushnagh (Fig. 8) und einer Reihe von anderen Steinen, in denen Loth altkeltische Omphaloi erkennen möchte, die ich aber einstweilen lieber zu den problematischen Nabelsteinen rechne, siehe unten auf Seite 96 und die dazu gehörigen Erläuterungen auf S. 97.
 
-[Fig. 10: Irischer 'Omphalos': Pierre de Turoe (nach Loth a. a. O. S. 204).]()
+[Fig. 10: Irischer 'Omphalos': Pierre de Turoe (nach Loth a. a. O. S. 204).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-10.png)
 
-[Fig. 11: Keltischer 'Omphalos' von Mullaghmast (nach Loth a. a. O. S. 205).]()
+[Fig. 11: Keltischer 'Omphalos' von Mullaghmast (nach Loth a. a. O. S. 205).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-11.png)
 
-[Fig. 12a: Keltischer 'Omphalos': Bétyle de Kermaria près Pont l'Abbé (nach Loth a. a. O. Pl. 2 Fig. 6).]()
+[Fig. 12a: Keltischer 'Omphalos': Bétyle de Kermaria près Pont l'Abbé (nach Loth a. a. O. Pl. 2 Fig. 6).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-12a.png)
 
-[Fig. 12b: Desgl. (nach Loth a. a. O. Pl. 2 Fig. 9).]()
+[Fig. 12b: Desgl. (nach Loth a. a. O. Pl. 2 Fig. 9).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/fig-12b.png)
 
 Ich gebe hier nach Loth (L'omphalos chez les Celtes = Revue des études anciennes 17 (1915) S. 193 ff.) mehrere interessante altkeltische Kultsteine wieder, denen Loth mit mehr oder weniger Wahrscheinlichkeit den Charakter von Nabelsteinen (ὀμφαλοί) ebenso wie dem berühmten die Mitte von Irland und der Welt bezeichnenden Stein von Ushnagh (vgl. auch Lappenberg im Artikel Irland S. 49 b der Encyklopädie von Ersch und Gruber) zuschreiben möchte. Loth (S. 203) sagt darüber:
 
@@ -802,7 +802,7 @@ Der ausgezeichnete Religionsforscher und Ethnologe Prof. M. Nilsson in Lund teil
 
 Dieser Nachweis bildet eine willkommene Parallele zu dem Omphalos der Peruaner (Omph. S. 35) und Mexikaner (N. Omphalosstud. S. 75).
 
-[Mittelalterlicher typischer Orbis terrarum mit dem Zentrum Jerusalem (nach 'Omphalos' Taf. 9, 4).]()
+[Mittelalterlicher typischer Orbis terrarum mit dem Zentrum Jerusalem (nach 'Omphalos' Taf. 9, 4).](http://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/cover.png)
 
 # Nachträge und Berichtigungen.
 
