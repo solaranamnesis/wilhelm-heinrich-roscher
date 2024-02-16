@@ -475,7 +475,7 @@ Natürlich wurde der Konkurrenzstreit zwischen Jerusalem und Sichem noch gesteig
 
 *) Vgl. auch Guthe im Artikel 'Palästina' in Herzog-Plitt-Haucks Realenc. 3 14 S. 561, 45 ff., der darauf hinweist, dass Palästina tatsächlich zwischen Babylonien und Ägypten, also den wichtigsten Kulturländern der ältesten Zeit, genau in der Mitte lag. Er hält es sogar für möglich, dass diese Vorstellung schon bei den Kanaanitern vorhanden war, aber in Israel erhöhte Bedeutung damit gewann, dass sich das Volk wegen seiner höheren Gottesverehrung zum Lehrer aller anderen Völker berufen fühlte. (Jes. 45, 14, 21 f. 51, 4 f. 2, 1-4).
 
-*) Roscher, Üb. Alter, Ursprang u. Bedeutung der hippokrat. Schrift von d. Siebenzahl. Leipzig 1911, S. 10 ff. u. 13 ff. --- Derselbe, D. neu entdeckte Schrift e. altmiles. Naturphilosophen usw. 1912, S. 6 ff. u. 25 ff. --- Derselbe, D. hippokrat. Schr. v. d. Siebenzahl in ihrer vierfachen Überlieferung, zum erstenmal herausg. u. erläutert. Paderborn 1913, S. I57 ff.
+*) Roscher, Üb. Alter, Ursprang u. Bedeutung der hippokrat. Schrift von d. Siebenzahl. Leipzig 1911, S. 10 ff. u. 13 ff. --- Derselbe, D. neu entdeckte Schrift e. altmiles. Naturphilosophen usw. 1912, S. 6 ff. u. 25 ff. --- Derselbe, D. hippokrat. Schr. v. d. Siebenzahl in ihrer vierfachen Überlieferung, zum erstenmal herausg. u. erläutert. Paderborn 1913, S. 157 ff.
 
 *) Omphalos S. 9, A. 14. S. 39, A. 74. S. 129. 132. N. Omphalosstud. S. 27. 51 ff. 89, A. 104.
 
