@@ -729,8 +729,7 @@ Ob der Omphalosgedanke auch bei den Etruskern eine Rolle gespielt hat, ist nicht
 
 Die Gründe, die mich veranlassen, in dem Mundus eine besondere Form des Erdnabels (ὀμφαλὸς γῆς) zu erblicken, sind kurz folgende.
 
-Vor allem deutet darauf hin die Tatsache, dass der Mundus in der Mitte jeder Stadt angelegt war, also an einer Stelle, wo sonst mehrfach ὀμφαλοί (umbilici) als Symbole der Mitte und als Zentralmeilensteine der von ihnen ausgehenden Straßennetze errichtet waren*: man denke an den umbilicus urbis Romae, an das Milliarium aureum daselbst, an den athenischen Zwölfgötteraltar, den Pindar als ὀμφαλὸς ἄστεος θυόεις
- bezeichnet, an den Omphalos von Antiochia ad Orontem usw. (Omphalos S. 34 f.).
+Vor allem deutet darauf hin die Tatsache, dass der Mundus in der Mitte jeder Stadt angelegt war, also an einer Stelle, wo sonst mehrfach ὀμφαλοί (umbilici) als Symbole der Mitte und als Zentralmeilensteine der von ihnen ausgehenden Straßennetze errichtet waren*: man denke an den umbilicus urbis Romae, an das Milliarium aureum daselbst, an den athenischen Zwölfgötteraltar, den Pindar als ὀμφαλὸς ἄστεος θυόεις bezeichnet, an den Omphalos von Antiochia ad Orontem usw. (Omphalos S. 34 f.).
 
 *) Ich nehme also an, dass ursprünglich jede mit einem 'mundus' versehene Stadt glaubte in der Mitte des orbis terrarum zu liegen. Dies erinnert an die Omphalos S. 22 besprochene Vorstellung des Inders, bei der Gründung seines Hauses sich im Nabel der Erde zu befinden.
 
