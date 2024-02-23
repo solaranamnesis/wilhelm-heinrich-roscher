@@ -329,4 +329,34 @@ Trotz dieser, wie ich jetzt rückhaltlos zugebe, bisher durchaus negativen Ergeb
 
 *) Außerdem kommt hier noch der Umstand in Betracht, daß der altionische Verfasser der Hebdomadenlehre in 'Hippocr.' [GREEK]. sich die Erde nicht mehr als flache Rundscheibe sondern bereits als Kugel (wie Pythagoras) vorstellt, weshalb bei ihm genau genommen kaum noch von einem 'Nabel' sondern nur von einer 'Achse' ([GREEK]; s. unt. S. 41 ff.) der Erdkugel die Rede sein kann.
 
+2\. Ein zweites kaum minder bedeutsames Zeugnis für dieselbe Sache läßt sich aus dem, was Jamblichos de myster. 3, 11 p. 127 Parthey über das Orakel von Branchidai bemerkt, gewinnen. Es heißt dort (im unmittelbaren Anschluß an die Schilderung der vielfach übereinstimmenden Orakelsitte zu Kolophon und Delphi)*:
+
+*) S. einstweilen oben S. 5.
+
+[GREEK].*
+
+*) Natürlich ist hier ein Lorberstab gemeint, wie ihn Apollon selbst und die in seinem Dienst stehenden Propheten, Dichter und Rhapsoden trugen. Vgl. Вoetticher, D. Baumkultus d. Hellenen S. 350 ff.; Boeckh, Explan. Pind. Isthm. 3, 56 p. 506 und zahlreiche Bildwerke.
+
+*) Wir werden später zeigen, daß die rechts vom Omphalos in einer Grotte (Adyton) dem Apollon Kitharodos gegenüberstehende, eine Trinkschale zum Munde oder zur Nase führende Priesterin der lauter ionische (nicht delphische!) Vorstellungen enthaltenden 'Apotheose Homers' des Archelaos von Priene nicht die Pythia sein kann, sondern wahrscheinlich die Priesterin von Branchidai oder einer anderen kleinasiatischen Kultstätte Apollons darstellt.
+
+Was bedeutet nun in dieser hochinteressanten Schilderung der Orakelsitte zu Branchidai der merkwürdige Ausdruck [GREEK]? Ich habe unter Berücksichtigung der oben unter 1. angeführten Gründe und der Tatsache, daß [GREEK] (= [GREEK], axis) bei Aristoteles und Plutarch die Erd- und Himmelsachse bezeichnet,* schon in meiner Abhandlung über 'Die neuentdeckte Schrift eines altmilesischen Naturphilosophen' etc. S. 28 Anm. 4 die Ansicht ausgesprochen, daß hier unter [GREEK] die Erdachse, deren Endpunkt gewissermaßen der [GREEK] war, zu verstehen sei.* Dabei verwies ich vor allem auf Nikanders Alexiph. 7, wo das im Mittelpunkt des Himmels (Zenith) befindliche Bärengestirn [GREEK] genannt wird. Vgl. dazu auch Hesych. s. v. [GREEK] und den Schol. a. a. О. [GREEK].
+
+*) Ps.-Aristot. de mu. 2: [GREEK]. --- Aristarch. Sam. b. Plut. de fac. in o. lun. 6: [GREEK]. --- Plut. Q. conv. 9, 14, 6, 6: [GREEK]. --- Plat. Tim. 40 B: [GREEK] = Cic. Tim. 10, 32: Iam vero terram, altricem nostram, quae traiecto axe continetur, diei noctisque effectricem. --- Cic. Ac. рг. 2, 39 123: Hicetas Syracusius, ut ait Theophrastus, caelum, solem, lunam, stellas, supera denique omnia stare censet, neque praeter terram rem ullam in mundo moveri, quae eum circum axem se summa celeritate convertat et torqueat, eadem effici omnia, quasi stante terra caelum moveretur. --- De nat. deor. 1, 20, 52: nullo puncto temporis iutermisso versari circum axem caeli admirabili celeritate.
+
+*) Vgl. auch (oben Anm. 19) bei Varro de l. l. 7, 17 die Worte: itaque pingitur quae vocatur [GREEK], ut media caeli ac terrae linea ducatur...
+
+Diese meine Deutung steht nun freilich in ziemlich schroffem Gegensatz zu der bisherigen von anderen gegebenen. So sagt Вӧtticher, Der Baumkultus d. Hellenen S. 350: "Bei den Branchiden war ein Weib die leitende Wahrsagerin, welche mit göttlichem Licht erfüllt ward, indem sie einen Stab hielt, den ihr ein Gott übergeben hatte, oder auf einem Axon (**Dreifuß**) sitzend die Zukunft offenbarte." Und auf einen ganz ähnlichen Sinn scheint eine in dem griechisch-deutschen Wörterbuch von Jacobitz u. Seiler unter [GREEK] gegebene Erklärung hinauszulaufen, wo unter Verweisung auf 'Nonnos' behauptet wird, unter [GREEK] "sei das drehbare Schallgefäß am Dreifuß" zu verstehen.*
+
+*) Wie ich später gefunden habe, stammt diese falsche Deutung von keinem Geringeren als Otfr. Müller in seiner Abhandlg. 'Über die Tripoden' in Amalthea, herausg. v. Böttiger 1 (1820) S. 121: 'Dazu kam ein Schallgefäß, von Nonnos [GREEK], von den Römern cortina genannt, von dünnem Erzblech gebildet und schön verziert, wie wir es auf dem Dresdner Kandelaberfuße zwischen dem Räuber Herakles und... Apollon liegen sehen.' --- Jetzt wird bekanntlich der Gegenstand allgemein als Omphalos gedeutet. Übrigens bemerkt schon Böttiger selbst a. a. О. S. 29 Anm., daß [GREEK] nie der eigentliche Name der cortina gewesen sein könne. Diesen könne sie nur als eine Art von Drehmaschine zuweilen gehabt haben.' Aus der Amalthea ist dann der О. Müllersche Irrtum zunächst in das Wörterbuch von Passow und daraus wieder in das von Jacobitz-Seiler übergegangen. Vgl. auch Bouché-Leclercq, Hist. de la divination dans l'ant. 3 p. 90 f. Anm., der ebenfalls [GREEK] und cortina identifiziert.
+
+Um nun zu erfahren, was es mit der Berufung auf Nonnos für eine Bewandtnis hat, habe ich mich unter Darlegung meiner eigenen Interpretation der betreffenden Stelle des Iamblichos an den besten lebenden Kenner des Nonnos, A. Ludwich in Königsberg, gewendet und von diesem mit freundlichster Bereitwilligkeit folgende für mich hocherfreuliche Antwort erhalten: "Mir ist es nicht zweifelhaft, daß Ihre Erklàrung das Richtige trifft. Nonnos sah die Weltachse ([GREEK]) als das Ganze und Delphi als den Mittelpunkt ([GREEK]) zwischen den beiden Polen an (vgl 32, 205 von der Hüfte des menschlichen Leibes [GREEK]): daher die Verbindung [GREEK] Dion. 2, 697. 4, 290 (das für Delphi geprägte Adjektivum kommt bekanntlich schon bei Aeschylus und andern vor).* Diesen [GREEK] nannte er [GREEK] (7, 72) oder [GREEK] (27, 252),* indem er annahm, daß die göttliche Orakelstimme aus dem Innern der Erde (4, 350)* durch eine kreisrunde Felsöffnung kam, über welcher der Dreifuß (13, 132), der Sitz der Pythia, stand.* Daß Nonnos irgendwo mit [GREEK] 'das drehbare Schallgefäß am Dreifuß' bezeichnet habe, halte ich für mehr als unwahrscheinlich; ich wenigstens kenne keinen Beleg dafür, auch kein Lexikon, das dafür eintritt. Vermutlich beruht jene irrige Annahme allein auf 4, 290 ff., einer Stelle, die allerdings unverständlich überliefert, aber von Lehrs, Qu. ep. 282 sicher gebessert ist." Wir ersehen also aus diesen dankenswerten Darlegungen A. Ludwichs, daß der [GREEK] von Branchidai genau dieselbe Bedeutung hat wie der mit dem [GREEK] identische von Delphi, daß folglich amblichos eine Überlieferung kannte, nach der Branchidai sich ebenso wie Delphi und viele andere Orte rühmte, der Mittelpunkt der Erde und des Weltalls zu sein.
+
+*) Nonn. Dion. 2, 697: [GREEK]. --- ib. 4, 289 ff.: [GREEK]... Vgl. dazu Bouché-Leclercq, Hist. de la divin. 3 p. 90 Anm. u. p. 92 Anm. 3.
+
+*) ib. 7, 71 f.: [GREEK]. --- 27, 252: [GREEK]. Ebenso nennt Claudianus 16, 16 den delphischen 'Nabel' nicht umbilicus sondern axis.
+
+*) 4, 349 f.: [GREEK].
+
+*) 13, 131 f.: [GREEK].
+
 ...
