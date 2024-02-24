@@ -359,4 +359,335 @@ Um nun zu erfahren, was es mit der Berufung auf Nonnos für eine Bewandtnis hat,
 
 *) 13, 131 f.: [GREEK].
 
+3\. Weiter erwäge man Folgendes. Herodot (1, 157) berichtet: [GREEK]. So fragen die Kymaier in Aiolis wiederholt zur Zeit des Kyros und Kroisos in Branchidai an, was mit dem Lyder Paktyes geschehen solle (Her. a. a. O), ebenso die Karer zur Zeit des Darius, ob sie die Milesier zu Bundesgenossen wühlen sollten (Zenob. 5, 80); so sendet Kroisos, um die Glaubwürdigkeit verschiedener Orakel zu prüfen, seine Boten nicht bloß nach Delphi, Abai, Dodona, sowie zu den Orakeln des Amphiaraos und Trophonios, sondern auch nach Branchidai (Her. 1, 46), dessen Tempel er, wie Her. 1, 92 hervorhebt, genau ebenso reich mit Weihgeschenken bedenkt wie den delphischen. Überhaupt muß das Orakel zu Branchidai im 7. und 6. Jahrhundert in Osthellas, Kleinasien und Ägypten ebenso angesehen gewesen sein wie das delphische: das beweist vor allem die kostbare Kriegsrüstung, welche um 600 der ägyptische König Necho 2. nach seinem Siege über die Syrer ins Didymaion weihte (Her. 2, 159), höchst wahrscheinlich um seiner Dankbarkeit für eine günstige Antwort Ausdruck zu geben. Darum erscheint es auch nicht wunderbar, wenn Herodot (5, 36) berichtet, unmittelbar vor dem Aufstand der Ionier seien die im Didymaion aufgehäuften Schätze so groß gewesen, daß Hekataios seinen Landsleuten raten konnte, sie zum Bau einer gewaltigen Kriegsflotte zu verwenden. Aus anderen zum Teil sehr alten Zeugnissen, die ich in meiner Monographie 'Die neuentdeckte Schrift е. altmiles. Naturphilosophen etc.' S. 26 f. gesammelt und besprochen habe, erhellt deutlich, daß im 6., 7. und 8. Jahrhundert eine starke Rivalität und Eifersucht zwischen Delphi und Branchidai geherrscht hat, die erst mit der Zerstörung und Plünderung von Milet und Didyma im Jahr 494 aufhörte, seit welchem Zeitpunkt natürlich Delphis Autorität dauernd die von Branchidai überwog.* Aus allen diesen Zeugnissen aber habe ich schon a. a. О. den naheliegenden Schluß gezogen, daß die ältesten in Milet heimischen Geographen, insbesondere Anaximandros und Hekataios, die bei den Entwürfen ihrer Erdkarten notwendigerweise von einem festen und möglichst allgemein anerkannten Mittelpunkte ([GREEK]) ausgehen mußten (s. H. Berger, Gesch. d. wiss. Erdkunde d. Griechen 2 S. 110 f.), als solchen schwerlich den gefährlichsten und erfolgreichsten Konkurrenten oder Rivalen ihres eigenen ebenfalls hochberühmten Orakels, sondern vielmehr das ihnen zu solchem Zwecke sehr viel bequemer gelegene und nach Herodot sonst regelmäßig von ihren Landsleuten und Mitbürgern als Orakel benutzte Didyma (d. h. Milet) erwählt haben werden. Den allerdeutlichsten Beweis für die Richtigkeit aller dieser Annahmen liefert uns aber wiederum die Weltkarte des Kosmologen in 'Hippocr.' [GREEK]., die als 'Zwerchfell,' d. h. als Zentrum der Oikumene, eben nicht Phokis und Delphi sondern vielmehr Ionien betrachtet wissen will.*
+
+*) S. die Belege a. a. О. S. 26 f., wo noch nachzutragen ist das für die Eifersucht Delphis gegenüber Milet und Branchidai höchst bezeichnende Orakel, das die Pythia gegen Ende des 6. Jahrh. den Argivern erteilte. Vgl. Herod. 6, 19: [GREEK].
+
+*) In dieser Hinsicht stimmt mir kein Geringerer bei als Sal. Reinach in seiner Anzeige meiner Abhandlung in der Revue Archéol. 1911 2 p. 390.
+
+Wie man übrigens in jener alten Zeit bei der Bestimmung des Mittelpunktes einer Land- und Erdkarte zu Werke ging, können wir mit Leichtigkeit der Schilderung des beim Entwerfen von Windrosen (orbes ventorum: Varro r. r. 3, 5 a. E.) üblichen einfachen Verfahrens, das uns Plinius (18, 326 ff.) aufbewahrt hat, entnehmen. Es heißt dort nach Mayhoff:
+
+"Ventorum [ratio] paulo scrupulosior. Observato solis ortu, quocunque die libeat, stantibus hora diei sexta [= meridie] sic, ut ortum eum a sinistro humero habeant, contra mediam faciem meridies et a vertice septentrio erit. Qui ita limes per agrum curret, cardo [= [GREEK], axis, [GREEK] b. Dikaiarch*] appellabitur. Circumagi deinde melius est, ut umbram suam quisque cernat; alioquin post hominem erit. Ergo permutatis lateribus, ut ortus illius diei a dextro humero fiat, occasus a sinistro, tunc erit hora sexta, cum minima umbra contra medium fiet hominem. Per huius mediam longitudinem duci sarculo sulcum vel <vom?>ere lineam, verbi gratia, pedum viginti conveniat, mediamque mensuram, hoc est in decimo pede circumscribi circulo parvo, qui vocetur umbilicus. Quae pars fuerit a vertice umbrae, haec erit ventus septentrionis... 331: Diximus ut in media linea designaretur umbilicus. Per hunc medium transversa currat alia. Haec erit ab exortu aequinoctiali ad occasum aequinoctialem, et limes, qui ita secabit agrum, decumanus vocabitur. Ducantur deinde aliae duae lineae in decussis obliquae, ita ut a septentrionis dextra laevaque ad Austri dextram laevamque descendant. Omnes per eundem currant umbilicum, omnes inter se pares sint, omnium intervalla paria. Quae ratio semel in quoque agro ineunda erit, vel si saepius libeat uti, e ligno facienda, regulis paribus in tympanum exiguum sed circinatum adactis."
+
+*) Vgl. Roscher, Die hippokrat. Schrift von d. Siebenzahl, in ihrer 4fachen Überlieferg. zum ersten Mal herausg. v. W. Н. R. S. 118 A. 173.
+
+Nehmen wir also an, daß nach dieser überaus einfachen und sicher hochaltertümlichen Methode die ältesten Kartographen der Milesier verfuhren, so erkennt man sofort, wie infolge der geographischen Lage Milets, das ganz genau in der Mitte zwischen den äußersten Nord- und Südpunkten (Maiotis --- Naukratis) der den Ioniern bekannten Welt gelegen war, dieses zum 'Omphalos' oder 'umbilicus' der ältesten griechischen Erdkarte werden mußte. Nun nennt aber Dikaiarchos, der Schüler des Aristoteles, welcher um 320 eine Erdkarte entwarf, deren 'umbilicus' Rhodos war, die beiden Linien, die sich im umbilicus Rhodos schnitten, [GREEK] aber bedeutet bei den Ärzten ganz gewöhnlich 'Zwerchfell' (= [GREEK]), insofern es die innere Scheidewand oder Grenze des menschlichen Körpers zwischen den oberen und unteren Eingeweiden bezeichnet.* Es liegt demnach die Vermutung nahe, daß Dikaiarch jenen Ausdruck direkt oder indirekt älteren Vorgängern, also den älteren ionischen Geo- und Kartographen, entlehnt hat.* Auf diese Weise gelangen wir wiederum auf einem neuen Wege zu dem Verständnis jenes bedeutungsvollen Satzes der alten in der hippokratischen Schrift von der Siebenzahl glücklich erhaltenen Kosmologie, daß Ionien das 'Zwerchfell' der als lebendiger Makrokosmos gedachten Welt darstelle.*
+
+*) S. Kiepert, Lehrb. d. alt. Geogr. S. 5 A. 2 u. oben Anm. 87 b.
+
+*) Anders Berger, Gesch. d. wiss. Erdkunde 2 S. 418, der glaubt, 'daß der Name [GREEK]. (Scheidewand) zuerst vom Taurus, diesem großen Scheidegebirge, auf die ganze natürliche Grenze, dann auf die mit derselben in engster Verbindung bleibende Längenlinie und endlich auf deren Teile übertragen worden sei.' Gegen diese Erklärung spricht vor allem die Tatsache, daß der Taurus nur ein verschwindend kleiner Teil der von den Säulen des Herkules durch Sardinien, Sizilien, die Peloponnes, Karien, Taurus und Imaus bis zum östlichen Ozean gezogenen Linie darstellt. --- Vgl. auch meine ob. Anm. 87b angeführte Schrift S. 118 Anm. 173.
+
+*) Ein weiteres sehr schätzbares Argument für meine These, daß auch Didyma sich rühmte, das Zentrum der Erdscheibe zu sein, würde sich aus der Tatsache ergeben, daß an einem milesischen Apollonfeste von einer Sängergilde vor den Türen des Didymaions ein mit Binden geschmückter, [GREEK] genannter Stein gesetzt und mit ungemischtem Wein begossen wurde (Nilsson, Gr. Feste S. 168), falls sich erweisen ließe, daß diesem Steine die Bedeutung eines Omphalos zukam. Wir werden später sehen, daß auch vor dem delphischen Tempel ein steinerner Omphalos stand und daß außer diesem noch weitere kleinere Omphaloi in Delphi ausgegraben worden sind, ebenso wie in Milet. Inbetreff der Bedeutung von [GREEK] vgl. Hesych. s. v. [GREEK]. --- Die letzte Glosse deutet auf viereckige Form des Steines, die Gleichsetzung mit einem [GREEK] oder [GREEK] auf rundliche Gestalt. Vgl. dazu [GREEK] rundes Gefäß, Kübel, [GREEK] rundes Kauffahrzeug und Curtius, Grundz. d. gr. Etym. 5 174 f.
+
+4\. Eine sehr willkommene Bestätigung aber für unsere Annahme, daß das Apollonorakel von Didyma, ebenso wie das von Delphi, für den Mittelpunkt der bewohnten Erde galt und deshalb auch einen "Omphalos" enthielt, scheint eine schöne Bronzemünze von Milet aus der Zeit des Commodus zu liefern, die Overbeck in seiner Kunstmythologie des Apollon auf Münztafel 4 unter nr. 47 abgebildet und S. 304 u. 308 besprochen hat (uns. Taf. 1, 2). Sie gehörte einst der Sammlung Imhoof-Blumer an und ist Overbeck von diesem trefflichen Forscher und Sammler in einem ausgezeichneten Abdruck zur Verfügung gestellt worden. Der Obvers zeigt den jugendlichen Kopf des Commodus mit dem Paludamentum rechtshin und trägt die Inschrift [SVG], der Revers stellt den Apoll von Didyma attributlos und nackt in bequemer Lage linkshin auf einem Felsen sitzend und rechtshin (in die Ferne?) blickend dar; den rechten Arm legt er anmutig auf seinen Kopf, mit dem linken stützt er sich auf einen unmittelbar neben seinem Felsensitze stehenden bienenkorbartigen,* auf niedriger Basis stehenden, ganz oben sich plötzlich stark verjüngenden, schlangenumwundenen, ziemlich hohen Omphalos, der den Felsensitz noch etwas überragt. Dabei die Inschrift: [SVG]. Overbeck bemerkt dazu (S. 304), jedenfalls auf Grund von Mitteilungen Imhoofs: "Falsch beschrieben bei Mionnet Suppl. 6 277. 1273 (les légendes retouchées). Ähnlich Rev. Numism. 1884, p. 18. 12." Nach Overbeck (а. а. О. S. 299) gehört dieser Apollontypus zu denjenigen Münzbildern, 'in denen entweder sicher oder doch wahrscheinlich Darstellungen anderer Kunstgattungen, namentlich statuarische Compositionen auf die Münzen übertragen worden sind.' Es scheint also in Milet ein schönes statuarisches Bildwerk oder Relief aus bester Zeit gegeben zu haben, welches der betreffende Münzstempelschneider bei seiner Darstellung des Gottes vor Augen gehabt hat. Vielleicht kann dieser unzweifelhaft apollinische schlangenumwundene Omphalos auch zum Verständnis des unten anzuführenden großen Schlangenomphalos dienen, den die neuesten deutschen Ausgrabungen in der Nekropole von Milet zutage gefördert haben, doch ist freilich, wie wir später sehen werden, in diesem Falle auch noch eine andere Erklärung möglich. S. Taf. 6 Fig. 5.
+
+*) Vgl. den antiken Bienenkorb bei Baumeister, Denkm. 1, S. 317, Fig. 333.
+
+5\. Hierher gehört wahrscheinlich auch der bienenkorbförmige, ziemlich niedrige, basislose Omphalos des bekannten, die 'Apotheose' Homers darstellenden Reliefs von der Hand des ionischen Künstlers Archelaos von Priene, dem Milet benachbarten Städtchen.* Daß es sich in diesem sicher in der Zeit zwischen Alexander d. Gr. und Tiberius entstandenen Bildwerk (Brunn, Künstlergesch. 1, 590) tatsächlich um ionische, nicht um delphische Vorstellungen und Riten handelt, scheint mir hervorzugehen nicht bloß aus der ionischen Herkunft des Archelaos, sondern namentlich auch aus dem Inhalt der betreffenden Darstellungen, die sich offenbar auf einen ionischen Kult Homers als des größten ionischen Dichters beziehen.* Hierzu kommt noch, daß der dem Dichterheros geopferte Stier deutlich als Buckelochse (Zebu) gebildet ist, eine Rinderspezies, die sich nicht im eigentlichen Hellas, wohl aber in Kleinasien (Ionien, Karien, Phrygien, Syrien) nachweisen läßt (vgl. Aristot. h. an. 8, 28, 3; Plin. h. n. 8, 179; Opp. Cyn. 2, 91 f.* Demnach muß sich die im untersten Streifen des Reliefs dargestellte Apotheose Homers auf einen ionischen Heroenkult des groBen Ioniers und ebenso die in dem folgenden Streifen abgebildete Grotte (Adyton) mit dem (untersatzlosen Omphalos in der Mitte, dem Apollon Kitharodos zur Linken und der eine Trinkschale voll heiligen Quellwassers zum Munde führenden kleiner gebildeten Prophetin (s. ob. S. 41)* zur Rechten auf einen ionischen Apollokult, wahrscheinlich auf den des unweit von Priene gelegenen Branchidai, beziehen. Die früheren Erklärungen, welche die Grotte als die korykische Höhle,* den Apollon als den pythischen Gott und die Priesterin als Pythia auffassen (Friederichs, Berl. ant. Bildw. 1, S. 449), Julius in Baumeisters Denkmälern 1, 111; Overbeck, Apollo, S. 270 nr. 25), müssen also als irrig bezeichnet werden. Auch fehlt ja der vom pythischen Gotte fast untrennbare Dreifuß auf dem Relief des Prieners. Der dargestellte Berg aber, auf dessen Spitze Zeus ([GREEK]?) tront, kann kaum ein anderer sein, als entweder der durch Zeus- Musen- und Apollonkult ausgezeichnete thessalische Olymp oder dessen kleinasiatischer Namensvetter in Mysien, der ebenso durch Zeuskult hervorragt (Head, Hist. nu. 2 517 unten) S. Taf. 7, 3.
+
+*) Ich verdanke den Hinweis auf dieses für meine Zwecke wichtige Monument der Güte G. Treus.
+
+*) Solche Kulte Homers bestanden bekanntlich in Ios (Monat [GREEK]), Smyrna (Strab. 646), Alexandria (Ael. v. h. 13, 22), Argos (Cert. Hes. et. Hom. 325 Göttl.; Ael. v. h. 9, 15). Vgl. Anth. 12, 168. Anth. Plan. 301 ([GREEK]), Catal. gr. coins Brit. Mus. Ionia S. 41 ff. (Kolophon), 238 ff. (Smyrna), 346 (Chios), Head, Hist. nu. 2 486 (Ios), 554 (Куme).
+
+*) Vgl. auch Lenz, Zool. d. Griech. u. Römer 245; Magerstedt, Bilder aus d. römischen Landwirtschaft 2 S. 15 und als Gegensatz dazu das apollinische (pythische) Stieropfer zu Delphi im Monat Bukatios, dargestellt auf dem schönen Wandgemälde aus dem Hause der Vettier zu Pompeji.
+
+*) DaB die Prophetin die Schale voll heiligen Wassers selbst trinken oder ihren Duft einatmen will (vgl. die [GREEK] der Adytonquelle b. Plut. def. or. 50 und das [GREEK] des Simonides, sowie die [GREEK] b. Plut. Pyth. or. 17), geht einfach aus der Haltung des Apollon hervor, der mit der L. die große Kithara, mit der gesenkten R. das Plektron hält und zugleich den Kopf von der Priesterin abwendet (vgl. Overbeck, Apollon 270).
+
+*) Gegen diese spricht schon der Umstand, daß sie, soviel wir wissen, nicht dem Apollon, sondern dem Pan und den Nymphen geheiligt war: Preller-Robert, Gr. Myth. 1 4, 722, 8. Bursian, Geogr. v. Gr. 1, 179, 3. Baedeker, Griechenl. 4 155.
+
+Haben wir sonach mit allen Mitteln philologischer und archäologischer Kritik die einstige Existenz eines "Omphalos" im Tempel von Didyma und dessen Bedeutung als Symbol der zentralen Lage von Milet auf der ältesten Weltkarte der Griechen festgestellt, so müssen wir nunmehr weiter zusehen, welches Licht von dieser Erkenntnis aus auf die von Didyma und Milet ausgegangenen Apollonkulte in den z. T. sehr alten Kolonialstädten der Milesier fällt. In dieser Beziehung kommt für uns vor allem der bedeutende Apollonkult von Kyzikos in Betracht. Bereits Marquardt in seiner immer noch lesenswerten Monographie über 'Cyzicus u. sein Gebiet' (S. 129) hat erkannt, daß der Apoll von Kyzikos, der daselbst als [GREEK] verehrt wurde (Aristid. or. 1 p. 383 D.),* kein anderer als der didymäische Gott von Milet ist, dessen Orakel bei allen Kolonialgründungen der Milesier (vgl. Herod. 1, 157) ebenso befragt wurde, wie es ja nach der Gründungssage der Mutterstadt schon bei der Gründung dieser selbst der Fall gewesen war (Tz. z. Lyk. 1385). Ein wie starkes Bewußtsein zu jeder Zeit, auch noch später, von der milesischen Herkunft seines Apollonkultes in Kyzikos vorhanden war, beweisen vor allem die von Marquardt a. a. О. S. 129 angeführten milesischen Inschriften (C. I. Gr. 2, 2855 l. 21 u. 2858), in denen verschiedene von den Kyzikenern ins Didymaion von Milet gestiftete Weihgeschenke erwähnt werden. Nun gibt es aber eine dem 5. Jahrhundert angehörende, also ziemlich alte Elektronmünze von Kyzikos, die im Catalogue of the Greek coins of Mysia (in the Brit. Mus.) S. 32 also beschrieben wird (uns. Taf. 1, 1):
+
+*) Vgl. auch Apollon Rh. 1, 958: [GREEK].
+
+Obv.: Netted Omphalos of Delphi [??], on which two eagles with closed wings facing one another: beneath, tunny r. --- Rev.: Incuse square of mill-sail pattern. [Pl. 8, 7; vergrößert auch abgebildet bei Studniczka im Hermes 37 (1902) S. 266]. Wenn hier unbedenklich der Omphalos als der von Delphi bezeichnet wird, so hege ich in dieser Beziehung doch sehr starke Zweifel. Diese gründen sich erstens auf die unleugbare Tatsache, daß die Adler des Omphalos von Kyzikos wesentlich anders aufgefaßt und dargestellt sind als die des delphischen Nabelsteins, wie er auf dem interessanten von Wolters (Mitteil. d. d. arch. Inst. Athen 1887 Tf. 12, S. 378 ff., vgl. auch Studniczka a. а. О. S. 267) herausgegebenen und erläuterten Marmorrelief zu Sparta sowie auf einigen athenischen, auf den Kult des attischen Apollon Pythios bezüglichen Bildwerken der zweiten Halfte des 5. Jahrhunderts (s. unt. Kap. 4 B) erscheint. Ob auf dem Kyzikenischen Stater "die Vögel um den Preis des Verschwindens ihrer Füße hinauf- und herangerückt sind," weil dies, wie Studniczka а. а. О. meint, "der enge Rahmen" erfordere, ist mir deshalb einigermaßen zweifelhaft, weil ja der Münzstempelschneider, um den für die genauere Wiedergabe des Motivs nötigen Raum zu gewinnen, nur nötig hatte, den Omphalos und die Adler in etwas kleinerem Maßstab darzustellen. Noch viel bedeutsamer aber erscheint mir der weitere Unterschied, daß auf der Münze von Kyzikos die beiden Vögel ihre Köpfe und Schnäbel einander zukehren, während sie auf dem spartanischen Relief diese voneinander abwenden, sowie daß der Omphalos von Delphi eine deutliche, etwas breitere Basis (Stufe) hat, auf deren Enden die Adler sitzen.* Diese Unterschiede zwischen beiden Darstellungen scheinen mir in der Tat groß genug, um die Annahme zu rechtfertigen, daß der auf dem Kyzikener Stater dargestellte Omphalos (basislos!) nicht der delphische sondern vielmehr ein anderer, und zwar wahrscheinlich der alte milesische im Jahre 494 bei der Zerstörung und Plünderung Milets durch die Perser zugrunde gegangene ist oder wenigstens sein kann.
+
+*) Auf den weiteren Unterschied, daß der Omphalos von Kyzikos mit einem Bindennetze bedeckt, dagegen der delphische des spartanischen Reliefs kahl ist, lege ich kein Gewicht, zumal da ja das Bindennetz des Reliefs ursprünglich aufgemalt sein konnte.
+
+Aus der Zeit zwischen 330 und 280 vor Chr. stammt ferner die kyzikenische Silbermünze, welche im Catalogue des Brit. Mus. Mysia Taf. 9 13 abgebildet und daselbst S. 36 so beschrieben wird:
+
+Obv.: [SVG] Head of Kore Soteira l.; wearing earring, necklace, stephane, corn-wreath, and veil wound round head; beneath tunny l. Rev: [SVG] Apollo wearing himation over lower limbs, seated l. on omphalos, in extended r., patera; l. elbow is supported by lyre. --- in front, cock l.; behind [SVG]. --- Ganz ähnlich die Abbildung bei Overbeck a. a. O. Münztafel 3 nr. 21; vgl. S. 300 nr. 8 u. S. 307. Vgl. auch unsere Taf. 1 nr. 12.
+
+Eine Bronzemünze von Kyzikos aus der Zeit des Commodus zeigt nach dem Catalogue von Mysia S. 51 auf ihrem Revers: [SVG] Apollo, naked, standing r.; l. foot rests on omphalos; in r. hand, branch; l. hand rests on knee; before him (raven?). Dazu die Note: 'A similar specimen is published by Overbeck, Griech. Kunstmythologie, Münztaf. 5, 9: p. 304, no. 101; p. 314, who describes the Apollo as holding the gorgoneion as well as the branch, but the supposed gorgoneion is probably only an abrasion of the surface. With the attitude of the figure, cp. no. 24, p. 12, supra (Apollonia ad Rhyndacum), and note, ib. --- Auch dieser O. ist basislos!
+
+Mehrfach erscheint auch auf dem Revers der Kaisermünzen von Kyzikos ein 8-säuliger Tempel (octastyle temple), den ich für das Heiligtum des Apollon [GREEK] halte, weil in dessen Giebelfeld ein Omphalos von genau derselben Form [☉] angebracht ist, wie auf gewissen Münzen von Delphi.* Man vergleiche vor allem a. a. O. Taf. 12, 14 (Münze des Antoninus Pius) und Taf. 13, 10 (Commodus). Auf letzterer Münze ist freilich der Punkt in dem umgebenden Kreise undeutlich geworden. --- Hier an den delphischen Tempel zu denken, dürfte namentlich auch deshalb unstatthaft sein, weil dieser auf delphischen Münzen stets 6-säulig (Hexastylos) dargestellt ist. Vgl. Catal of the gr. c. in the Brit. Mus. Central Greece pl. 4, 22, р. 29 f. Imhoof-Blumer u. Percy Gardner, Num. Comment. on Pausanias Taf. 10, nr. 24 u. 25 (hier statt ☉ nur •!).
+
+*) Andere, z. B. Svoronos und Head (hist. nu. 2), freilich halten jetzt das Zeichen ☉ nicht für den Omphalos inmitten des 'orbis' terrarum, sondern für eine [GREEK], die aber auch recht wohl als Symbol der runden Erdscheibe mit dem Nabel in der Mitte gelten kann (s. unt. S. 75 Anm. 136).
+
+Infolge der eigentümlichen Lage der Stadt genau in der Mitte zwischen dem äußersten Osten und Westen des hellenischen Kolonialgebietes waren in Kyzikos alle diejenigen Sagen lokalisiert, in welchen Züge nach Osten vorkamen (Argonauten- und Orestessage). Daher wußte die Legende nicht bloß von den Argonauten in Kyzikos zu berichten, sondern ebenso auch von Orestes, der auf der Rückkehr von Taurike hier am Omphalos des Apollontempels gereinigt und gesühnt sein sollte. Zwar schweigt darüber die literarische Überlieferung, aber eine schon längst auf Orestes bezogene ältere Elektronmünze des 5. Jahrhunderts scheint deutlich die Lokalisierung jener Sage in Kyzikos zu bezeugen.* Die betreffende Beschreibung im Catalogue des Brit. Mus. Mysia, S. 28 (vgl. Taf. 7 1 und 2) lautet:
+
+*) Die Reinigung und Entsühnung des Orestes war bekanntlich keineswegs auf Delphi beschränkt, sondern sollte noch an zahlreichen anderen Orten vollzogen worden sein, z. В. zu Gythion, wo man ebenfalls einen Stein (Omphalos?) zeigte, auf dem sitzend Orestes vom Wahnsinn geheilt sein sollte (Paus. 3, 22, 1); zu [GREEK] in Arkadien (Paus. 8, 34, 2); zu Troizen, wo ebenfalls ein 'Orestesstein' gezeigt wurde (Paus. 2, 31, 4. 8); zu Keryneia in Achaja (Paus. 7, 25, 7. Schol. Soph. Oed. Col. 42). Mehr bei Höfer im Artikel Orestes des Mythol. Lexikons 3, Sp. 985 ff. und Sp. 998 ff., wo auch verschiedene Orte Kleinasiens, Kappadokiens usw., ja Siziliens und Italiens angegeben sind, an denen die Sage von der Entsühnung des Orestes und der Weihe des taurischen Artemisbildes lokalisiert war.
+
+Obv: Bearded male figure (Orestes), wearing chlamys, kneeling l. beside Delphic [?] omphalos, on which his l. hand rests; in r., drawn sword: beneath, tunny l. --- Rev: Incuse square of millsail pattern. Vgl. auch Num. Chron. 1889, р. 257, по. 24, pl. 12, 11. Der O. ist auch hier wieder basislos! S. Taf. 1, 3.
+
+So halte ich es denn im Hinblick auf alle für die einstige Existenz eines Omphalos im Apollotempel von Kyzikos angeführten Tatsachen nicht für zu kühn, auch folgende Worte des Aristides in seiner Lobrede auf Kyzikos auf ihn zu beziehen: [GREEK]. Aristides hätte aber mit demselben Rechte auch behaupten können, daß Kyzikos ungefähr in der Mitte zwischen Libyen und Taurike oder Tanais gelegen sei. Es braucht kaum hervorgehoben zu werden, daß auf dieser wahrhaft zentralen Lage der Stadt ihre außerordentliche Blüte, namentlich in kommerzieller Beziehung, während des 5., 4. und 3. Jahrhunderts beruht.
+
+So bleibt denn, um die Betrachtung der unzweifelhaft von Didyma abhängigen Apollokulte abzuschließen, nur noch die Untersuchung der 'Omphalosmünzen' von Sinope zu erwähnen übrig. Vgl. Head hist. num. 1 S. 435 (s. uns. Taf. 1, 11):
+
+'Obv: Head of Sinope, г. turreted (Num. Chron. 1885, Pl. 2 18). --- Rev. [SVG] Apollo naked, seated on omphalos [ohne Basis], holding lyre and plectrum. AR. Spread tetradrachm. The type of this tetradrachm is copied, with some modifications, from the tetradrachms of Antiochus 3. cf. Syria. Circ. B. C. 189-183.' Ob Head mit seiner Behauptung, diese Münze sei die Kopie einer solchen des Antiochos 3, Recht hat, ist mir doch sehr zweifelhaft geworden, als ich die von Overbeck a. a. 0. auf Münztafel 3 nebeneinander abgebildeten Münzen (mit dem Bilde des auf dem Omphalos sitzenden Apollon) von Chersonasos auf Kreta (nr. 36), von Sinope (nr. 37) und von Antiochos (nr. 41 u. 42)* miteinander verglich. Dieser Vergleich zeigt sofort, daß die Münze von Sinope sehr viel mehr Ähnlichkeit mit der von Chersonasos als mit denen des Antiochos besitzt, welche letzteren wiederum mit dem Typus der Münze des Nikokles von Paphos (Overbeck a. a. О. nr. 41; vgl. Catal. of gr. coins in the Brit. Mus. Cyprus p. 80 u. pl. 22 nr. 10 u. 11) völlig übereinstimmen, wie auch meiner Erinnerung nach schon andere bemerkt haben.
+
+*) Vgl. auch die treffliche Vergrößerung der Antiochosmünze b. Studniczka im Hermes 1902 (37), S. 258.
+
+Ob freilich allein aus diesem Münzbild von Sinope mit voller Sicherheit auf einen Omphalos im dortigen gewiß ursprünglich vom Didymaion stark beeinflußten Apollokult zu schließen ist, bezweifle ich. Vielleicht geben weitere Funde noch einmal sicherere Entscheidung.*
+
+*) Ein charakteristisches Beispiel dafür, wie treu die Sinopenser an ihren milesischen Traditionen auch noch in späterer Zeit festhielten, führt Тhraemer (Pergamos S. 101, А 1) an. Th. weist nach, daß die Sinopenser den Ostwind immer noch [GREEK] nannten, obwohl sie weit östlich von [GREEK] wohnten. 'Der Name hat nur Sinn, wo Phrygien östlich liegt, ist also aus der Heimat Milet nach Sinope mitgewandert' (vgl. Grotefend b. Pauly s. v. Berecyntes). Dieses treue Festhalten an alten Überlieferungen zeigt sich aber auf keinem Gebiete deutlicher als auf dem der Religion und des Kultus.
+
+Аm Schlusse dieser Untersuchung möchte ich auch für Didyma betonen, daß für den dortigen 'Omphalos' höchstwahrscheinlich dasselbe gilt, was wir für Delphi annehmen zu dürfen glauben, daß nämlich auch zu Milet als der eigentliche Nabel nicht der sogenannte Omphalosstein, sondern vielmehr ursprünglich das [GREEK], aus der das von der Prophetin getrunkene, mit prophetischer Kraft begabte Quellwasser strömte, anzusehen ist. Der daneben angebrachte konische Stein hatte nur den Zweck, allen Tempelbesuchern von weitem sichtbar den heiligen Punkt zu bezeichnen, der als Zentrum der Erde angesehen wurde.
+
+# 4\. Delphi und sein Orakel als Mittelpunkt ([GREEK]) der Welt und sein Nabelstein.
+
+## A\. Die literarischen Zeugnisse.
+
+Um möglichst gründlich und übersichtlich zu verfahren, legen wir zunächst die sämtlichen literarischen Zeugnisse in historischer Folge vor und begleiten die einzelnen, soweit es nötig scheint, mit erklärenden und kritischen Bemerkungen.
+
+1\. Epimenides. Das älteste Zeugnis überliefert uns Plutarch, der delphische [GREEK], am Anfang der Schrift De defectu orac. 1: [GREEK].*
+
+[GREEK].*
+
+[GREEK] (vgl. Kinkel, Epicor. gr. frgm. 1 p. 234, 6).*
+
+*) Anders Strabo 9, p. 419: [GREEK] [vgl. Pindari frgm. 27 Boeckh], [GREEK]. Da die erhaltenen Monumente (s. unten) unzweifelhaft 2 Adler, nicht aber Schwäne oder Raben darstellen, und, wie wir sehen werden, die (goldenen) Adler im heil. Kriege (354 v. Chr.) von Onomarchos und Philomelos geraubt waren, so folgt aus Strabon und Plutarch a. a. O., daß man später, als die Adler verschwunden waren, mehrfach an diesen Anstoß nahm, weil sie Vögel des Zeus, nicht des Apollon sind, und an ihrer Stelle vielmehr apollinische Vögel (Raben oder Schwäne) am Omphalos angenommen hat. Diese Annahme lag um so näher, wenn in anderen Apollotempeln die daselbst befindlichen Nabelsteine mit Raben oder Schwänen geschmückt waren, wie wir aus gewissen Münzen (s. unten) schließen dürfen.
+
+*) Zum Verständnis des [GREEK] und [GREEK] verweise ich auf Aristot. Rhet. 3 17 p. 1418 a 21: [GREEK].
+
+*) Worin die vom Gotte an Epimenides vollzogene Strafe für seine Ungläubigkeit bestand, ist m. W. bis jetzt unbekannt. War es vielleicht der langdauernde todesschlafähnliche Zustand, in den er verfallen sein sollte?
+
+Wir ersehen daraus, daß die Sage vom delphischen Omphalos und seiner Entstehung durch die von den entgegengesetzten Enden der Erde ausgesandten Adler des Zeus nach der dem Plutarch vorliegenden Tradition bereits dem alten, spätestens um 500 v. Chr.* lebenden Sühnpriester und Mantis Epimenides bekannt, aber von diesem in Zweifel gezogen worden war, weil er auf eine von ihm der Pythia vorgelegte darauf bezügliche Frage eine unklare Antwort erhalten hatte. Ob dies freilich der einzige Grund seines Zweifels war, darf billig bezweifelt werden. Wahrscheinlich war für Epimenides mindestens ebenso maßgebend der Umstand, daß außer Delphi noch mehrere andere ihm wohlbekannte Orte Anspruch darauf erhoben, Mittelpunkte ([GREEK]) der Erde zu sein, insbesondere Branchidai bei Milet (s. das vorige Kapitel) und Paphos (s. ob. S. 29 f.).
+
+*) Vgl. Plat. leg. 642 D, wo aber vielleicht statt [GREEK] [= [GREEK]] [GREEK] [= [GREEK]] zu lesen ist. Diese Lesung würde den Widerspruch mit den übrigen Zeugnissen für die Lebenszeit des Epimenides beseitigen.
+
+Unklar bleibt auch bis auf weiteres, wie sich Epimenides oder die von ihm getadelten Vertreter der Anschauung vom [GREEK] und [GREEK] das Verhältnis dieser beiden [GREEK] zueinander vorgestellt haben, und welche Insel ursprünglich unter dem [GREEK] zu verstehen ist (vgl. oben Anm. 14 u. 74).
+
+2\. Pindar.
+
+a\. Pyth. 6, 1 ff. Boeckh:
+
+[GREEK]...
+
+Schol. [GREEK]. Gedichtet ist die Ode nach Вoeckh Ol. 71, 3 = 494 v. Chr., als Pindar 28 Jahre alt war.
+
+b\. Pyth. 4, 6 ff. B.:
+
+[GREEK]...
+
+Schol. [GREEK]. Der in dieser Ode gefeierte Sieg des Arkesilaos vor Kyrene fällt in das Jahr Ol. 78, 3 = 466 v. Chr.
+
+с\. ebenda 4, 73 ff. (130 ff.):
+
+[GREEK]...
+
+Schol. [GREEK].
+
+d\. Nem. 7, 33 (49) ff.:
+
+[GREEK] (d. i. Neoptolemos und seine Gefährten)...*
+
+*) Es fragt sich, ob nicht hier unter dem [GREEK] eigentlich der Parnass zu verstehen ist, der, wie wir später sehen werden, bisweilen als der gewaltige, weithin sichtbare Mittelpunkt Griechenlands und der Erde aufgefaßt wird.
+
+Schol. [GREEK]... Das Gedicht ist entstanden um Ol. 79, 4 = 461 v. Chr.
+
+e\. Pyth. 8, 62 (85):
+
+[GREEK].
+
+Schol. [GREEK]. --- Gedichtet Ol. 80, 3 = 458 v. Chr.
+
+f\. Pyth. 11, 9 (15) f.:
+
+[GREEK]...
+
+Schol. [GREEK]. --- Gedichtet Ol. 80, 3 = 458 v. Chr.
+
+g\. Pind. fr. 27 Boeckh (aus dem Paian auf den Delphischen Apollon, auf den Воeckh wohl mit Recht die Worte des Strabon [s. ob. Anm. 103] bezieht): [GREEK]. Vgl auch Pausanias 10, 16, 3: [GREEK]. Vgl. Вoeckh 2 p. 570: 'Igitur haec praeter Epinicia in alio carmine prodita uberius arbitror, in quo me illud confirmat, quod Pausanias non universe ad Pindarum passim haec tangentem, sed ad certam quandam odam provocat, in qua Pindarus consentientia Delphis pronunciaverit: illi vero Paeani, in quo de Delphicis templis poeta dixerat' illa optime vindicari quis negaverit?'
+
+3\. Auch der Zeitgenosse und schwüchere Rivale Pindars, Bakchylides, gedenkt des Erdnabels Delphi in der vierten, zu Ehren eines pythischen Wagensiegs des Hieron von Syrakus gegedichteten Ode, Vers 4:
+
+[GREEK].*
+
+*) Hier ist unter [GREEK] entweder der Parnass oder der delphische Apollontempel mit dem Nabelstein zu verstehen.
+
+Der Wagensieg Hierons fällt in das Jahr Ol. 77, 3 = 470 v. Chr. (vgl. Blass, Praef. p. 50).
+
+4\. Aischylos.
+
+a\. In den Septem ante Thebas v. 745 ff. (aufgeführt im J. 467 v. Chr.) sagt der Chor:
+
+[GREEK]...
+
+b\. Choeph. 1034 ff. sagt Orestes zum Chor:
+
+[GREEK]...
+
+Mit [GREEK] scheint die Hestia des Tempels gemeint zu sein, auf der auch nach den Darstellungen mehrerer Vasenbilder Orestes sitzt.
+
+c\. Eumenid. 39 ff. sagt die durch die Eumeniden erschreckte Pythias:
+
+[GREEK]...*
+
+*) Unter dem [GREEK] kann kaum etwas anderes zu verstehen sein als das Adyton des Tempels.
+
+Da Vasenbilder den Orestes öfters am Omphalos sitzend darstellen, so ist hier [GREEK]. wohl am besten als Nabelstein zu fassen. Die Pythia muß also, um zum Dreifuß im Adyton zu gelangen, am Nabelstein vorübergehen, was für die Beurteilung von dessen Lage im Tempel nicht unwichtig ist.
+
+d\. ebenda v. 166 Kirchh. singt der Eumenidenchor:
+
+[GREEK].
+
+Schol. [GREEK] (so Weil für das [GREEK] der Hss.; vgl. ob. Anm. 62) [GREEK].
+
+Aufgeführt sind die beiden zu der gleichen Trilogie gehörigen Stücke bekanntlich 458 v. Chr.
+
+5\. Sophokles.
+
+a\. Oed. Rex 476 ff. (Chorgesang):
+
+[GREEK]...
+
+Schol. [GREEK].
+
+b\. Oedip. Rex 897 ff. (Chorgesang):
+
+[GREEK].
+
+Schol. [GREEK].*
+
+*) Die Beziehung von [GREEK] auf den Tempel zu Delphi ist auch sonst die gewöhnliche (vgl. z. B. Suid. s. v. [GREEK]), jedoch fragt es sich sehr, ob dieser [GREEK] genannt werden kann, da er doch allgemein zugänglich war. Ich glaube daher, daß Bötticher in seinem Berliner Winckelmannsprogramm über den Omphalos (1859) S. 9 Recht hat, wenn er hier unter [GREEK]. den heiligen Nabelstein im Tempel zu Delphi versteht, der mit Binden verdeckt und dadurch vor allen profanen Berührungen geschützt war.
+
+6\. Euripides.
+
+a\. Ion 5:
+
+[GREEK].
+
+Man kann zweifelhaft sein, ob hier unter [GREEK], wie Wieseler (Gött. Gel. Anz. 1860 S. 167) meint, der delphische Tempel oder der eigentliche Nabelstein daselbst, auf dem der Gott oft sitzend dargestellt wird (s. unten) zu verstehen ist. Mir scheint die letztere Bedeutung annehmbarer.
+
+b\. Ion 222:
+
+[GREEK].
+
+Dieser schwierigen Stelle hat neuerdings Studniczka eine lehrreiche Studie gewidmet (Hermes 37 (1902) S. 258 ff.), dem ich hinsichtlich der Beanstandung des verderbten Ausdrucks [GREEK] vollkommen beistimme. Mit Recht macht St. (S. 262) vor allem gegen die Anbringung von Gorgonenbildern am Omphalos den Umstand geltend, daß sonst 'von solch äußerst bedeutsamer Umgebung des Erdnabels kein Sterbenswörtchen verlaute'* und daß von Pindar (s. ob) und anderen Zeugen vielmehr zwei goldene Adler zur Rechten und Linken des Nabelsteins bezeugt würden. Auch die Annahme G. Hermanns und Verrals, daß die 'Gorgonen' des Euripides mit den [GREEK] Pindars (fr. 30 Bergk 2) oder gar mit den beiden Moirenstatuen am Poseidonaltar des Tempels identisch seien, weist Studniczka mit überzeugenden Gründen zurück. Wenn er aber S. 269 zusammen mit C. Robert v. 224 zu verbessern sucht:
+
+[GREEK],
+
+so gestehe ich offen, daß mir diese Emendation schon wegen ihrer zu großen Kühnheit nicht recht einleuchtet. Zwar nehme auch ich an, daß noch zur Zeit des Euripides die beiden goldenen Zeusadler am Omphalos zu sehen waren (s. oben S. 56 ff.), ob sie aber mit Notwendigkeit hier erwähnt gedacht werden müssen, bezweifle ich im Hinblick auf die meisten bis jetzt angeführten Zeugnisse durchaus. Ich nehme vielmehr eine viel leichtere Verderbnis an, indem ich statt [GREEK] lese:
+
+[GREEK]
+
+und diesen leichtverständlichen Ausdruck* auf den Priester ([GREEK]) und die fünf delphischen [GREEK] beziehe, die regelmäßig der auf dem Dreifuß sitzenden Pythia assistierten, um deren oft undeutliche und unverständliche Worte zu interpretieren, d. h. verständlich zu machen. Zur weiteren Begründung dieser meiner Emendation berufe ich mich auf folgende Zeugnisse:
+
+Ion 414 ff:
+
+[GREEK].
+
+*) An kleine am [GREEK] wie an der damit identischen [?] [GREEK] angebrachte Gorgonenmasken denken Miß J. Harrison (Bull. de Corr. Hell. 24 [1900] p. 261 f.) und G. Karo in seinem Artikel Omphalos im Dict. des ant. 4 1 p. 199 b.
+
+*) Zum Verständnis von [GREEK] vgl. auch folgende Stellen: Aesch. Agam. 1130 [GREEK] (dies bezieht sich auf die unmittelbar vorausgehenden Prophezeiungen der Kassandra). --- Eurip. Phoen. 1757 f. [GREEK]. --- Hippol. 346: [GREEK]. --- Hesych. [GREEK] (= fr. 931 N. 1). --- S. auch Thukyd. 1, 138, 3. Lys. [GREEK] 25. Xen. Mem. 1, 4, 5. Solon fr. 16 B. 2 ([GREEK]). Et. M. s. v. --- Übrigens nehmen auch Karo (b. Daremberg-Saglio, Dict. d. ant. s. v. Omphalos p. 199 Anm. 11) und Svoronos, Journ. Internat. d. archéol. numism. 1911 [13] p. 313 Anstoß an der überkühnen Emendation Roberts. Svoronos will lesen [GREEK], was die Adler bezeichnen soll. Ich vermisse für diese Möglichkeit die nötigen Belege.
+
+Plut. Q. Gr. 9: [GREEK]. --- Plut. de def. or. 51: [GREEK].
+
+Habe ich also mit meiner Vermutung Recht, so würde sich Euripides hier den ursprünglichen Omphalos nicht in der von Pomtow angenommenen 'aedicula des Omphalos' unweit der Hestia in der Cella des späteren Tempels (vgl. Pomtow im Philologus 1912 S. 59 ff.), sondern vielmehr im Adyton unmittelbar am [GREEK] und in der Nähe des Dreifußes denken, eine Annahme, die im Hinblick darauf, daß es sich hier nicht um die historischen Verhaltnisse des 4. Jahrhunderts, sondern um die der älteren Zeit handelt, wohl gerechtfertigt erscheinen dürfte.*
+
+*) Daß Euripides von der Einrichtung des delphischen Tempels keine ganz klare Vorstellung hatte, geht auch aus der folgenden Stelle (Ion 461 f.) hervor, wonach die delphische [GREEK] neben ([GREEK]) dem Orakeldreifuß gestanden und Orakel gespendet haben soll. Vgl. auch die Unklarheit des Pausanias hinsichtlich des eigentlichen Omphalos (10, 16, 3) und darüber Pomtow a. a. О. S. 59 f.
+
+c\. Ion 461 f.
+
+[GREEK].*
+
+*) Wieseler (Gött. Gel. Anz. 1860 S. 167) will hier [GREEK] lesen und den Ausdruck [GREEK] von dem ganzen Tempel verstehen, nicht von dem Herde im Adyton, 'auf welchem sich der Omphalos befand' [??].
+
+Diese Verse sind deshalb von ziemlicher Wichtigkeit für die Omphalosfrage, weil hauptsächlich aus ihnen sowie aus einem hocharchaischen den Kampf um Troilos darstellenden Vasengemälde in München (O. Jahn nr. 124, wo ein apollinischer Altar von 'Omphalos'-form ausdrücklich als [GREEK] bezeichnet ist; s. unt. Kap. 4 B), endlich aus dem Umstande, daß der Omphalos von Delphi öfters als auf einer Basis stehend dargestellt wird, Wieseler den Schluß gezogen hat, daß in Delphi Omphalos und Hestia identisch seien, also der Omphalos als ein Symbol der Hestia betrachtet werden müsse.* Gewiß mit Recht hat dagegen Preuner in seinem Buche Hestia-Vesta (vgl. auch dessen Artikel 'Hestia' im Lexikon d. Mythol. 1 Sp. 2640) außer anderen Gründen vor allem die absolute Unmöglichkeit geltend gemacht, einen mit (brennbaren) Wollenbinden bekleideten Omphalos mit dem auf der delphischen Hestia brennenden ewigen Feuer in unmittelbaren Zusammenhang zu bringen. Folglich ist nach Preuner (im Lexikon d. Mythol. a. а. O.) unter der [GREEK] auf keinen Fall der Nabelstein, sondern vielmehr die im Tempel von Delphi stehende [GREEK] zu verstehen, 'deren ewiges Feuer zugleich zu Ehren Apollons brannte' (Preuner a. a. О. Sp. 2639, 39 ff.; vgl. auch Pomtow а. а. O. S. 58 f. u. Anm. 19, sowie den homer. Hymn. auf Hestia 1 ff.). [GREEK] wird diese [GREEK] natürlich nur deshalb genannt, weil sie in einem geheiligten Raume stand, der nach delphischer Lehre den Mittelpunkt der bewohnten Erde bildete.*
+
+*) Vgl. Wieseler, Annali d. I. 29 (1857) p. 160 ff. Derselbe in Jahns Jahrbb. 75 (1857) S. 678 ff. und in den Gött. Gel. Anz. 1860 S. 161 ff. --- An Wieseler hat sich trotz Preuners Darlegungen neuerdings angeschlossen Baumeister, Denkmäler 1, 601.
+
+*) Daneben kann freilich auch [GREEK] in übertragener Bedeutung von [GREEK] in Betracht kommen. Vgl. unten Orest. 327 ff. [GREEK]. Iph. T. 1251 ff. [GREEK].
+
+Die Aufführung des Ion fällt wahrscheinlich in die Zeit zwischen 421 und 413 (A. Dieterich).
+
+d\. Medea 667:
+
+[GREEK].
+
+Aufgeführt wurde die Medea Ol. 87, 1 = 431 v. Chr.
+
+e\. Orestes 327 ff.:
+
+[GREEK].
+
+Schol. [GREEK].* Vgl. zu der Ableitung von [GREEK] unten (Anm. 126) Cornutus de nat. deor. 196 Os.
+
+*) Vgl. oben S. 55 ff. Anm. 103 und die in vieler Hinsicht ganz ähnliche Sage von den [GREEK] b. Sall. Iug. 79. Val. Max. 5, 6, Ext. 4. Strab. 3, 171.
+
+f\. Orestes 591:
+
+[GREEK].
+
+Die Aufführung des Orestes fällt ins Jahr 408.
+
+g\. Iphig. Taur. 1251 ff.:
+
+[GREEK].
+
+h\. Phoeniss. 232 ff.:
+
+[GREEK].
+
+Aufgeführt zwischen 411 und 408 (Schol Arist. ran. 53).
+
+7\. Platon.
+
+De republ. 4, 5 р. 427 e: [GREEK]. Vgl. zum Verständnis dieser Worte die unten angeführten Bilder und Münzen.
+
+8\. "In einer Bauinschrift des 4. Jahrhunderts ist von einer [GREEK] und von [GREEK] die Rede, beides sicher im Tempel, aber nicht genau lokalisiert: Acad. d. inscr. Comptes rendus 23 (1895) S. 335 mit Note" (Studniczka im Hermes 37 (1902) S. 263 Anm. 5). S. jetzt darüber Pomtow a. а. О. S. 61, der annimmt, daß in dem Tempel des 4. Jahrh. der Omphalos in einer aedicula auf der einen Seite der Cella (s. S. 69), gegenüber der [GREEK], gestanden habe (vgl. Varro l. l. 7, 17 in aede ad latus).
+
+Ob Pomtow а. а. О. S. 61 auch die leider etwas zusammenhangslosen Worte aus dem Paian des Philodamos (4. Jahrh.) [GREEK] mit Recht auf den Omphalos und seine beiden goldenen Adler (die von den Phokiern eingeschmolzen waren, jetzt aber erneuert worden sein sollen) bezieht, ist mir schon wegen des [GREEK] (was von weißen, nicht von goldenen Gegenständen gilt) etwas zweifelhaft.
+
+9\. Römischer Tragiker des 3. oder 2. vorchr. Jahrhunderts (Frgm. tr. inc. inc. 19 f. R.).
+
+Cicero (de divin. 2, 56, 115) und Varro de l. l. 7, 17 (p. 97 Götz-Schöll) zitieren folgende Verse:
+
+O sancte Apollo, qui umbilicum certum terrarum obtines,  
+Unde superstitiose primum saeva evasit vox fera.
+
+Das Beiwort certus bezieht man wohl am besten auf die Tatsache, daß auch andere Orte (z. B. Branchidai, Paphos usw.) die Ehre beanspruchten, Mittelpunkt der Erde zu sein, denen gegenüber Delphi hier als der in Wahrheit einzig berechtigte Erdnabel hingestellt werden soll.
+
+10\. Der zweiten Hälfte des dritten vorchristlichen Jahrhunderts gehört der kürzlich in Delphi aufgefundene Hestiahymnus des Aristonoos an, dessen Anfang in der von Pomtow (Delphica 3 S. 248 ff.) mitgeteilten Fassung so lautet:
+
+[GREEK].*
+
+*) Hier ergänzt ein Ungenannter: [GREEK], Br. Keil [GREEK]. Mir scheint ein Epitheton zu [GREEK] zu fehlen. [GREEK] fasse ich als Substantiv (= Mittelpunkt, Zentrum); vgl. Batrach. 129; [GREEK] Poll. 2, 169; [GREEK] etc. --- Zum [GREEK] verweist P. Maas auf Philolaos b. Diels, Vorsokrat. 32 A 16 S. 237: [GREEK].
+
+11\. Varro l. l. 7, 17 (р. 97 ed. Götz-Schöll):
+
+'O sancte Apollo, qui umbilicum certum terrarum obtines.' Umbilicum dictum aiunt ab umbilico nostro, quod is medius locus sit terrarum, ut umbilicus in nobis; quod utrumque est falsum: neque hic locus est terrarum medius neque noster umbilicus est hominis medius. Itaque pingitur quae vocatur [GREEK] [vgl. Philolaus 247, 17 D.; Cic. Tusc. 1, 68 f.] ut media caeli ac terrae linea* ducatur infra umbilicum per id quo discernitur, homo mas an femina sit, ubi ortus humanus, similis ut in mundo: ibi enim omnia nascuntur in medio, quod terra mundi media. Praeterea si quod medium id est umbilicus, * ut pila terrae, non Delphi medium. Et terrae medium * non hoc sed quod vocant Delphis, in aede ad latus* est quiddam ut thesauri* specie, quod Graeci vocant [GREEK], quem Pythonos [-is?]* aiunt esse tumulum [-os Hss.]; ab eo nostri interpretes [GREEK] umbilicum dixerunt.
+
+*) = [GREEK]: s. ob. S. 41 f. Anm. 79 ff.
+
+*) Lobeck, der die schwierige Stelle Aglaoph. p. 1002 ff. behandelt und darauf hinweist, daß statt '_ad latus_' auch gelesen wird '[_foramen_] _adlatum, allatum_, (_ablatum_' [= _lanatum_?], vermutet a. а. О. p. 1004 _arquatum_ (od. _arcuatum_) _quiddam_' d. h. ein Ding von gewölbter Gestalt, was allerdings die Form, die der Nabelstein, nach den maßgebendsten Monumenten hatte, außerordentlich treffend bezeichnen würde.
+
+*) Gewöhnlich faßt man hier 'thesaurus' im Sinne von 'Kuppelbau' oder 'Grabgewölbe,' doch macht G. Karo im Artikel Omphalos des Dict. des antiq. 4, 1 р. 198a sehr wahrscheinlich, daß Varro darunter die "tirelires ovoïdes d'argile" = 'Sparbüchsen') verstanden hat, die in Italien einst (ebenso wie noch heute) gebräuchlich waren (vgl. Graeven, Arch. Jahrb. 1901 S. 160).
+
+*) Pomtow, Philolog. 1912 S. 60 А. 21.
+
+Der Sinn der leider stark verderbten Sätze scheint folgender zu sein. Vor allem bekämpft der skeptische Varro (wohl nach dem Vorgang griechischer Philosophen; vgl. oben das über Epimenides' Zweifel an der [GREEK] Delphis Gesagte!) die delphische Lehre vom [GREEK] im Apollontempel als dem anerkannten (certus) Mittelpunkt der Erde, wie sie namentlich auch der von ihm (und Cicero) zitierte römische Tragiker vertreten hatte. Zur Begründung seiner Ansicht nun scheint sich Varro auf Dreierlei zu berufen: erstens auf die vor allen von Pythagoras und später von den Stoikern (Posidonius) ausgesprochene Lehre von der Kugelgestalt der Erde (pila terrae), die deshalb wohl eine Achse, nicht aber auf ihrer Oberfliche einen Mittelpunkt haben könne; zweitens auf die auch sonst in der späteren Zeit mehrfach verbreitete Theorie, daß der sogenannte delphische, wie ein 'thesaurus' (d. h. entweder Grabgewölbe, Grabkuppel oder Sparbüchse: s. ob. Anm. 121) gestaltete Omphalos nicht den Mittelpunkt der Erde, sondern vielmehr das Grab des Python darstelle.* Drittens endlich auf die Tatsache, daß der Nabel nicht genau die Mitte des menschlichen Leibes bezeichnet.
+
+*) Vgl. Hesych. s. v. [GREEK]. Vgl. dazu Meineke, Callim. hymn. et epigr. p. 154 f. --- Tatian c. Gr. 8, 251 identifiziert den [GREEK] sogar mit dem nach Philochoros (fr. 22 f.) unmittelbar neben der goldenen Apollonstatue des Tempels befindlichen Grabe des Dionysos, indem er behauptet: [GREEK]. Vgl. Preller-Robert, Gr. Myth. 1, 686 f. Lobeck, Agl. 572 ff. etc. Rohde, Psyche 2 1, 132, 2.
+
+Wenn neuerdings ein so ausgezeichneter Forscher wie E. Rohde in seiner Psyche 2 1, 132 f. (ebenso Stengel, Gr. Kultusaltertümer 2 S. 65) die Behauptung ausgesprochen hat, daß die Ansicht, der delphische Nabelstein von der Form eines 'tumulus' oder 'thesaurus' habe in der Tat ursprünglich das Grab des Python dargestellt, und 'zum "Nabel" d. h. Mittelpunkt der Erde hätten ihn erst Mißverständnis und daraus hervorgesponnene Fabeln gemacht,' das Richtige treffe, so kann ich schon im Hinblick auf die angeführten Zeugnisse des Epimenides, Pindar usw. diese Deutung nur als höchst unwahrscheinlich bezeichnen.* Damit soll freilich nicht geleugnet werden, daß vielleicht in allerältester Zeit der möglicherweise als Baityl aufgefaßte delphische Omphalos* eine andere Bedeutung hatte, als ihm von Pindar usw. zugeschrieben wird; welches aber diese seine ursprünglichste Bedeutung gewesen ist, kann mit unsern jetzigen Mitteln absolut nicht ausgemacht werden; das was allein sich feststellen läßt, ist die Tatsache, daß spätestens von Beginn des 5. vorchristlichen Jahrhunderts an Delphi von den Westgriechen für den Mittelpunkt der (scheibenförmigen) Erde und der dortige Nabelstein als äußeres Wahrzeichen dieser Anschauung erklärt wurde. Die Anschauung vom Omphalos als dem Grabe des Python ist wahrscheinlich erst dann entstanden, als man sich allgemein die Erde nicht mehr als runde Scheibe sondern mit Parmenides, Pythagoras und dem von mir neuentdeckten altionischen Kosmologen bei Ps.-Hippokr. [GREEK]. bereits als Kugel vorstellte, die als solche wohl eine Achse, aber auf ihrer Oberfläche keinen Mittelpunkt oder 'Nabel' haben konnte.*
+
+*) Hierzu kommt jetzt noch der von Pomtow (Philologus 1912 S. 60 A. 21) gelieferte Nachweis, daß in römischer Zeit die Pythonsage willkürlich ausgeschmückt wurde. --- Hat vielleicht zu der Deutung des О. als 'Pythonis tumulus' der Umstand beigetragen, daß er mehrfach von einer Schlange (= Python?) umringelt und hohl dargestellt wurde (s. unt.)?
+
+*) S. jedoch unten Paus. 10, 16, 3.
+
+*) Ähnlich wie Varro bestreitet auch der Stoiker Cornutus, De nat. deor. р. 196 Os. die zentrale Lage Delphis mit den Worten: [GREEK]. Ja er versteigt sich dabei sogar zu einer neuen völlig unhaltbaren Deutung und Etymologie des Wortes [GREEK]. S. auch den Schol. zu Euripid. Or. 327 ff. (ob. S. 64). Diese unhaltbare Etymologie ist neuerdings wieder angenommen worden von der gelehrten und scharfsinnigen Miss J. Harrison (Bull. de Corr. Hell. 24 (1900) S. 258 f.: [GREEK]. = 'le pierre qui parle'), vgl. G. Karo a. a. О.
+
+12\. Strabo 9, p. 419: [GREEK].*
+
+*) Vgl. Liv. 35, 18: Aetolos, qui umbilicum Graeciae incolerent (bezieht sich wohl auch auf Delphi, das die Ätoler im 3. Jahrh. eine Zeit lang okkupiert hatten); s. auch ib. 41, 23 (unten S. 70). Mit Strabo stimmt völlig überein Aristeides in seinem Panathenaikos b. Phot. bibl. p. 404, 2 Bekk.: [GREEK].
+
+*) Svoronos in seinem interessanten Aufsatze im Journ. Internat. d'archéol. numism. 13 (1911) S. 310 u. 316 will dieses [GREEK] nicht im Sinne von [GREEK] sondern vielmehr von [GREEK] fassen, indem er annimmt, daß die beiden Adler ursprünglich nicht (wie auf dem unten zu besprechenden spartanischen und attischen Marmorrelief des 5. Jahrh.) neben, sondern wie auf dem Kyzikener Stater auf dem Omphalos gesessen hätten und so auch wieder in der Zeit kurz vor Strabon ergänzt worden seien. Ich kann dieser Auffassung nicht beistimmen aus folgenden Gründen: 1. Für Delphi sind nicht die Auffassungen der von Branchidai abhängigen Kyzikener, sondern die der Spartaner und Athener maßgebend; 2. das gleich anzuführende Zeugnis des Scholiasten zu Lucian beweist, daß die massiv-goldenen Adler später nicht durch gleichartige Bildwerke sondern durch Mosaiken ersetzt waren.
+
+Wir lernen aus dieser Notiz hauptsächlich zweierlei: erstens daß der Vorstellung vom delphischen Erdnabel eine ältere voranging, nach der Delphi --- was ja auch ganz richtig ist --- wegen seiner geographischen Lage zunächst nur als Mittelpunkt von Hellas aufgefaßt wurde, und zweitens, daß zu Strabons Zeit die alten im phokischen Krieg (s. ob. S. 56) geraubten goldenen Adler durch ein neues Bildwerk ersetzt waren. Welcher Art dieses gewesen ist, läßt sich mit großer Wahrscheinlichkeit aus den Scholien zu Lukian de salt. 38 (= 4 p. 144 ed. Jacobitz) schließen,* wo es heißt: [GREEK]. Die alten goldenen Adler waren demnach später durch entsprechende Mosaikbilder im Fußboden ([GREEK]) ersetzt worden (vgl. Studniczka im Hermes 37 (1902) S. 264 A. 5). Übrigens ist Strabo außer Euripides (s. ob. S. 60 f.) der einzige antike Schriftsteller, welcher die Bekleidung des Omphalos mit Binden ([GREEK]) ausdrücklich bezeugt.
+
+*) Luc. de saltat. 38: [GREEK].
+
+*) Damit ist also ein Mosaikbild gemeint, das an die Stelle der archaischen im phokischen Krieg (4. Jahrh.) geraubten goldenen Zeusadler getreten war. Vielleicht bezieht sich auf dieses Mosaik die delphische Bauinschrift des 4. Jahrhunderts, in der von einer [GREEK] und von [GREEK] (im Tempel!) die Rede ist. Vgl. oben nr. 8 S. 65. Eine andere Möglichkeit der Erklärung ergibt sich, wenn man an die von Pomtow a. a. О. S. 59 ff. nachgewiesene (spätere) 'aedicula des Omphalos' denkt.
+
 ...
