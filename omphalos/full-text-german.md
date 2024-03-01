@@ -1319,4 +1319,181 @@ Neugriechische, aus ältester Zeit stammende abergläubische Riten beim Abschnei
 
 # Bilder im Texte.
 
-...
+1\. S. 30: Münze von Kypros mit dem in einem Tempel stehenden, mit einer meta oder einem Omphalos (umbilicus) verglichenen Idol der Aphrodite von Paphos, nach Roschers Lexikon d. Mythol. 1, Sp. 747.
+
+2\. S. 32: Zwei Himmelsgöttinnen und Erdgott der Ägypter. Nach Brugsch, Religion u. Mythologie d. alt. Ägypter S. 211. Vgl. auch Roscher, Die neuentdeckte Schrift eines altmilesischen Naturphilosophen etc., Bildertafel Fig. 1 u. 2 u. daselbst S. 6. Derselbe, Über Alter, Ursprung u. Bedeutung d. hippokrat. Schr. v. d. Siebenzahl S. 12 Anm. 15. Boll, Die Lebensalter S. 50 f. Roscher, Die hippokrat. Schrift von der Siebenzahl, in ihrer vierfachen Überlieferung zum erstenmal herausgegeben und erläutert von W. H. R. Paderborn 1913. S. 12 u. 156.
+
+3\. S. 93: Wandbild aus Pompeji, nach P. Нerrmann, Denkmäler der Malerei des Altertums 3 20: Apollon feiert seinen Sieg über Python, der sterbend oder tot den auf einer viereckigen niedrigen Basis stehenden, halbkugelförmigen, netzbedeckten Omphalos umringelt. S. ob. S. 93 f.
+
+# Verzeichnis der Abbildungen nebst Erläuterungen.
+
+## Erklärungen zu Tafel 1 (Münztafel).
+
+1\. Elektronmünze (vergrößert) des 5. Jahrh. von Kyzikos, der Pflanzstadt Milets, nach Studniczka im Hermes 37 (1902) S. 266: netzbedeckter, bienenkorbförmiger, basisloser Omphalos (von Milet oder Branchidai?), darauf zwei große die Köpfe einander zukehrende Adler, darunter der Thunfisch, das Wahrzeichen von Kyzikos (s. ob. S. 50).
+
+2\. Bronzemünze von Milet aus der Zeit des Commodus, nach Оverbeck, Kunstmythol. Apollon Münztafel 4 nr. 47 (vgl. daselbst S. 304 u. 308): ziemlich hoher, auf niedriger Basis stehender, ganz oben sich plötzlich stark verjüngender, schlangenumwundener Omphalos, auf den der attributlos und nackt in bequemer Lage auf einem Felsen sitzende und rechtshin (in die Ferne?) blickende Apollon von Didyma sich mit dem l. Arme stützt (s. ob. S. 47).
+
+3\. Elektronmünze des 5. Jahrh. von Kyzikos, nach Catal. of the gr. coins in the Brit. Mus. Mysia Taf. 7, 1 (vgl. daselbst S. 28): Orestes mit gezogenem Schwert in der R., knieend am Omphalos (von Branchidai oder Kyzikos oder Delphi?), der, wie es scheint (s. a. a. O. Fig. 2!), mit einem Netze bedeckt und basislos ist. Darunter Thunfisch. S. ob. S. 52 f.
+
+4\. Bronzemünze aus der Kaiserzeit von Tarsos, nach Overbeck a. a. О. Münztaf. 1 nr. 30 (vgl. das. S. 25 u. 29): Apollon (Lykeios?) in jeder Hand einen Wolf an den Vorderbeinen haltend, steht auf dem bienenkorbförmigen basislosen Omphalos (s. ob. S. 89 Anm. 163).
+
+5\. Bronzemünze aus der Zeit Hadrians von Kreta, nach Overbeck а. a. О. Münztaf. 1 nr. 27 (s. das. S. 25): Apollon nackt, in der Haltung und mit den Attributen des Didymäischen A. auf dem niedrigen Omphalos (von Branchidai?) stehend. S. ob. S. 89 Anm. 163.
+
+6\. Silbermünze des 5. vorchristl. Jahrh. von Delphi, nach Catal. of the gr. coins in the Brit. Mus. Central Greece Taf. 4, 4 (s. das. S. 24): Obverse: Tripod. --- Rev.: Incuse square, within which a cirele with a point in the centre (= Omphalos). S. ob. S. 96 f.
+
+7\. Silbermünze der Amphiktionen von Delphi aus dem 4. Jahrh. nach Overbeck а. а. О. Münztaf. 3 nr. 35 (s. das. S. 307 f.): Der pythische Apollon (Kitharodos) sitzt auf dem annähernd halbkugelförmigen, netzbedeckten, basislosen Omphalos von Delphi: s. ob. S. 95 f.
+
+8\. Bronzemünze aus hadrianischer Zeit von Delphi nach Catal. a. a. О. Taf. 4, 20 (s. das, S. 29): Rev. [SVG] Rock, upon which Delphian omphalos [ohne Basis, ziemlich hoch, fast bienenkorbförmig, aber oben etwas spitz auslaufend], around which serpent twines itself. S. ob. S. 96.
+
+9\. Münze des Septimius Severus von Megara, nach Svonoros in der [GREEK]. 3 (1912) 3/4 [GREEK]. 22: Septimius Sev. als Adorant vor dem langgewandeten Apollon Kitharodos (= Pythios?) stehend; in der Mitte zwischen ihnen der basislose, netzbedeckte, fast halbkugelförmige Omphalos (von Delphi), auf dessen Spitze 2 Adler sitzen, die ihre Köpfe voneinander abwenden. Die Münze hat, wie Svoronos erkannt hat, die größte Ähnlichkeit mit dem kürzlich aufgefundenen Relief von Aigina; s. ebenda sowie unsere Tafel 8 Fig. 3 und oben S. 126 f.
+
+10\. Tetradrachme von Kalchedon, nach Overbeck а. а. О. Münztaf. 3 nr. 38 (s. das. S. 300 u. 308): nackter Apollon rechtshin auf dem basislosen, bienenkorbförmigen Omphalos sitzend, in der vorgestreckten r. Hand einen Pfeil haltend: s. ob. S. 98.
+
+11\. Tetradrachme von Sinope, der Kolonie Milets, nach Overbeck a. а. О. Münztaf. 3 nr. 37 (s. das. S. 300): Apollon Kitharodos sitzt auf dem basislosen, bienenkorbförmigen, netzbedeckten Omphalos (von Didyma?); s. ob. S. 53.
+
+12\. Tetradrachme von Kyzikos, der Kolonie Milets, nach Overbeck a. а. О. Münztaf. 3, 39 (s. das. S. 300): Apollon Kitharodos auf dem netzbedeckten, basislosen, fast halbkugelförmigen Omphalos sitzend. Vgl. ob. S. 51.
+
+13\. Tetradrachme des Antiochos 1. von Syrien, nach Overbeck a. а. O. Münztaf. 3, 31 (vgl. das. S. 307 f. und Catal. Brit. Mus. Syria Taf. 3, 4): s. oben S. 30 Anm. 58: Apollon nackt auf dem basislosen, netzbedeckten, fast bienenkorbförmigen Omphalos sitzend und in der R. einen Pfeil haltend (vgl. nr. 46).
+
+14\. Erzmünze von Rhegion, nach Overbeck a. a. О. Münztaf. 3, 43 (s. das. S. 308): Apollon sitzt nackt auf dem basislosen, netzbedeckten, bienenkorbförmigen Omphalos und hält in der R. einen Pfeil: s. ob. S. 97.
+
+15\. Didrachme von Chersonasos auf Kreta, nach Оverbeck a. a. О. Münztaf. 3, 36 (s. das. S. 307): Apollon Kitharodos rechtshin auf dem basislosen, fast bienenkorbförmigen, wie es scheint, netzbedeckten Omphalos sitzend, s. ob. S. 79.
+
+16\. Tetradrachme des Antiochos 3. von Syrien, nach Overbeck a. a. О. Münztaf. 3 nr. 42 (s. das. S. 308): Apollon sitzt, nur den Unterkörper mit dem Himation umhüllend, auf dem netzbedeckten, basislosen, bienenkorbförmigen Omphalos (vgl. nr. 13 u. ob. S. 30 Anm. 58).
+
+17\. Erzmünze des Gordianus 3 von Patara in Lykien, nach Overbeck a. a. O. Münztaf. 5 nr. б (s. das. S. 304 u. S. 310 oben): Apollon mit langem Chiton bekleidet, stehend und in der R. einen Lorbeerzweig haltend; vor ihm ein kleiner, bienenkorbförmiger, basisloser Omphalos, auf dem ein ziemlich großer, eben seine Flügel entfaltender Adler (oder Rabe? Overbeck) sitzt. S. ob. S. 107 f.
+
+18\. Münze des Elagabal von Emisa, nach Baumeister, Denkmäler S. 603 nr. 649: Der bienenkorbförmige, omphalosartige Steinfetisch von Emisa in einem sechssäuligen Tempel stehend, im Giebelfeld des Tempels ein Halbmond. S. ob. S. 124.
+
+19\. Münze von Perge, nach Baumeister, Denkmäler S. 603 nr. 645: Das bienenkorbförmige, oben mit einer Art Knauf versehene Idol der Artemis Pergaia in einem zweisäuligen Tempel stehend; oben im Giebelfeld ein Adler(?), rechts und links oben vom Idol je ein Stern, unten je ein 'Trabant.' S. ob. S. 124.
+
+20\. Desgl. nach Baumeister a. а. О. S. 603 nr. 646: ähnliche Darstellung des Artemisidols von Perge, nur ist es hier wesentlich breiter oder dicker gebildet.
+
+21\. Tetradrachme des Königs Nikokles von Paphos, nach Overbeck a. a. О. Münztaf. 3 nr. 40 (s. das. S. 300 u. 308): Apollon (nackt) sitzt linkshin auf dem basislosen, netzbedeckten, bienenkorbförmigen Omphalos und hilt in der R. den Bogen. S. ob. S. 30.
+
+22\. Münze von Seleukeia (Pieria) mit dem Idol des Zeus Kasios (in dessen Tempel) nach Roscher, Lexikon der Mythologie 1 Sp. 747. Vgl. Head, Hist. nu. 1 S. 661 unt.
+
+23\. Silberstater von Ambrakia (Akarn.) aus dem 4. Jahrh., nach Overbeck a. a. О. Münztaf. 1, 1: Behelmter Pallaskopf, links daneben die Spitzsäule des Apollon Agyieus mit Wollbinden (Stemmata) geschmückt. S. ob. S. 129 u. 132 a. E. u. vgl. Overbeck a. а. О. S. 4 Anm. a.
+
+24\. Silberdrachme von Ambrakia aus dem 3. Jahrh. nach Оverbeck a. а. O. Münztaf. 1, 2: Spitzsäule des Agyieus mit Stemmata auf zweistufiger Basis (daneben Palmzweig), von einem Lorbeerkranz umgeben; vgl. Head, Hist. nu. 1 270. S. ob S. 129 u. 132 u. vgl. Overbeck a. а. О. S. 4 Anm. a, sowie unt. Taf. 6 Fig. 8.
+
+25\. Desgl. nach Overbeck а. а. О. Fig. 3 (ohne Palmzweig). S. ob. S. 129 u. 132 a. E.
+
+26\. Drachme von Apollonia Illyr. nach Overbeck а. а. О. Fig. 4; Kopf des Apollon linkshin, rechts daneben Spitzsäule des Agyieus. S. ob. S. 129 u. 132 u. vgl. Head, Hist. nu. 1 S. 265, sowie unt. Taf. 6 Fig. 8.
+
+27\. Münze von Apollonia Illyr., nach Оverbeck a. а. О. Fig. 5. Desgl.
+
+28\. Vierteldrachme derselben Stadt, nach Overbeck a. а. O. Fig. б а b.
+
+29\. Desgl. nach Overbeck a. a. О. Fig. 7.
+
+30\. Kupfermünze derselben Stadt, nach Overbeck a. a. О. Fig. 8.
+
+## Erklärungen zu Tafel 2.
+
+(Vasengemälde mit dem delphischen Omphalos).
+
+1\. Rotfigurige Vase in Neapel, nach Baumeister, Denkm. 2 S. 1110 Fig. 1307: Apollon mit Leier und Lorbeerzweig sitzt auf dem halbkugelförmigen, basislosen, mit Tänien und Lorbeerzweigen geschmückten Omphalos von Delphi; vor ihm Orestes, hinter diesem Elektra. Hinter Apollon Pylades und die Pythia, auf dem Dreifuß thronend. S. ob. S. 101.
+
+2\. Desgl. in Petersburg, nach Baumeister a. а. O. 1 S. 104 Fig. 110: Bündnis zwischen Dionysos und dem in Delphi einziehenden Apollon. Vorn unten in der Mitte der basislose, netzbedeckte, halbkugelförmige Omphalos von Delphi; darüber eine Palme, rechts von dieser Dionysos, links Apollon, einander die rechte Hand zum Bündnis reichend. Rings umher Satyrn und Bakchantinnen, links oben der delphische Dreifuß. S. ob. S. 101.
+
+3\. Desgl. in Ruvo, Sammlung Jatta, nach Roschers Lexikon der Mythol. 3 Sp. 175: Orestas verbirgt sich hinter dem hohen eiförmigen, netzbedeckten Omphalos, der aus einem blumenkelchförmigen auf einer 3-4stufigen Basis stehenden Gebilde gewissermaßen hervorwächst; links vom Omphalos Neoptolemos mit dem r. Knie auf einen Altar sich stützend und sein Schwert schwingend, links von ihm ein lanzenschwingender Krieger. In der Mitte oben der Tempel von Delphi, rechts von ihm Apollon mit dem Bogen sitzend, neben ihm eine Palme. Links vom Tempel der Dreifuß und Artemis. S. ob. S. 103.
+
+## Erklärungen zu Tafel 3.
+
+(Vasengemälde mit dem delphischen Omphalos).
+
+1\. Rotfigurige Vase der Sammlung Hope nach Baumeister a. a. О. 2 S. 1118 Fig. 1315: Orestes' Sühnung in Delphi. Unten in der Mitte kniet Orestes vor dem hohen, eiförmigen, basislosen, netzbedeckten Omphalos, hinter dem der Dreifuß steht. Rechts davon Athene, links Apollon. Hinter diesem eine Erinys, ebenso eine desgl. hinter dem Dreifuß. Links oben das Brustbild des Pylades, rechts oben das einer verschleierten Frau (Klytaimnestra?). S. ob. S. 104.
+
+2\. Vasenbild nach O. Jahn, Vasenbilder Taf. 1 = Bötticher, Der Omphalos des Zeus zu Delphi = 19. Winckelmannsprogramm Berl. 1859 Tafel: Orestes umklammert den hohen, kegelförmigen, netzbedeckten, basislosen, wie es scheint, im Tempel befindlichen Omphalos. Anwesend rechts Artemis, links Apollon und die entsetzt fliehende Pythia; links oben eine Erinys. S. ob. S. 104.
+
+3\. Vase im Louvre zu Paris, nach Roschers Lexikon der Mythol. 3 Sp. 983/4: Orestes' Sühnung. In der Mitte Orestes, auf der Basis des hohen, kegelförmigen, netzbedeckten Omphalos sitzend. Anwesend Apollon, Artemis, 3 Erinyen und der Schatten Klytaimnestras. S. ob. S. 102 f.
+
+## Erklärungen zu Tafel 4.
+
+(Vasengemälde mit Omphalos oder omphalosartigen Grabmälern).
+
+1\. Omphalosförmiges, an den 'Bomos' (= Omphalos?) des Tempels von Thymbra (s. das folgende Bild!) erinnerndes Grab des Achilleus, über dem Polyxene geschlachtet wird, anwesend Nestor, Diomedes, Neoptolemos, Amphilochos, Antiphates, Aias Oiliades, Phoinix, hocharchaisches Vasenbild nach Journ. of Hellen. Stud. 18 (1898) Taf. 15; s. ob. S. 116.
+
+2\. Der 'Bomos' (= Omphalos?) im Apollontempel von Thymbra, neben dem der gemordete Troilos liegt. Anwesend Hermes, Athena, Achilleus, Hektor, Aineas, Deithynos (= Deiphobos)  Hochaltertümliches Vasenbild in München nach Baumeister, Denkm, S. 1902 Fig. 2001. S. ob. S. 106 f. u. 116 Anm. 209 f.
+
+3\. Omphalosförmiges Grab, auf dem zwei Raben (Augurienvögel) sitzen, rechts und links je ein sitzender gerüsteter Krieger, das Augurium beobachtend, schwarzfiguriges Vasenbild im Brit. Museum nach Studniczka im Hermes 37 (1902) S. 265 nr. 4. S. ob. S. 117 f. u. vgl. unt. Taf. 5 Fig. 4.
+
+4\. Die Tötung des Python, der sich hinter dem Omphalos (in der delphischen Felsengrotte) zu verbergen sucht, durch den noch auf dem Arme der Leto getragenen kindlichen Apollon; anwesend Artemis. Schwarzfigurige (archaische??) Lekythos in Paris nach Roschers Lexikon d. Mythol. 3 Sp. 3408 Fig. 4. S. ob. S. 104 f.
+
+5\. Omphalosförmiger, gegitterter (s. ob. Fig. 1 u. 2) Gegenstand (Grabstele??) als Dekoration eines Gefüßes in Straßburg nach Jahrb. für d. klass. Alt. 15 (1912) Taf. 2 Fig. 8.
+
+6\. Omphalosförmiges Grabmal, an dem oder in dem kleine Flügelwesen (Keren, Seelen?) umhersehwirren und eine Schlange sichtbar ist, daneben zwei Trauernde, attische Lekythos nach О. Crusius in Roschers Lexikon d. Mythol. 2 Sp. 1147 Fig. 5. S. ob. S. 119.
+
+## Erklärungen zu Tafel 5.
+
+(Vasengemälde mit omphalosförmigen Grabmälern).
+
+1\. Weißes, omphalosartiges Grabmal mit Schlange daran (oder darin?), überragt von einem 'Baityl' (?), rechts und links davon je ein gerüsteter Krieger, schwarzfiguriges Vasenbild nach Journ. of Hellen. Stud. 19 (1899) S. 228. S. ob S. 117.
+
+2\. Eiförmiges Grabmal auf Basis, links davon eine (opfernde?) Frau, Vasenbild nach Journ. of Hellen. Stud. 19 S. 169 Fig. 1. S. ob. S. 116 Anm. 208.
+
+3\. Eiförmiges, auf Stufenbasis sich erhebendes Grabmal mit Stele, rechts davon eine Opfergaben darbringende Frau, links ein Jüngling mit Lanze, Vasenbild nach Kell, Journ. of Hellen. Stud. 19 Taf. 2. S. ob. S. 116.
+
+4\. Zwei omphalosförmige Gräber (s. ob. Taf. 4, 3), auf denen je ein Augurienvogel sitzt, rechts und links von jedem je ein gerüsteter Krieger, sitzend das Wahrzeichen beobachtend, sehwarzfigurige Vase in Neapel nach Journ. of Hellen. Stud. 19 (1899) S. 227. S. ob. S. 117.
+
+## Erklärungen zu Tafel 6.
+
+(plastische Omphaloi und omphalosähnliche Grabmäler).
+
+1\. Netzbedeckter, bienenkorbförmiger Omphalos von weißem Marmor, gefunden auf dem Platze vor dem Apollontempel in Delphi, Federzeichnung von Alice Roscher nach einer Photographie Pomtows. S. ob. S. 81 f. Die beste und deutlichste Abbildung dieses Omphalos s. jetzt in 'Über Land und Meer' 1913 nr. 3 S. 1083.
+
+2\. Zuckerhutförmiger, innen hohler Omphalos[?] von glattem Kalkstein, gefunden in Delphi beim Thesauros von Syrakus, Federzeichnung von Alice Roscher nach einer Photographie Pomtows. S. ob. S. 83.
+
+3\. Marmoromphalos mit Netzwerk aus dem Heiligtum des Apollon Erethimios zu Kamiros auf Rhodos nach Corp. Inscr. Insul. 1, 733; s. ob. S. 109 f.
+
+4\. Großer, konischer Marmoromphalos mit Netzwerk, oben abgeplattet, um eine Apollonstatue zu tragen, gefunden im Dionysostheater Athens, nach Studniczka im Hermes 37 (1902) S. 261 Fig. 3. S. ob. S. 88 f.
+
+5\. Großer, konischer, von einer Schlange umwundener Marmoromphalos aus der Nekropole Milets, nach einer Photographie Br. Schröders. S. ob. S. 38 u. 48 oben. Es ist natürlich zweifelhaft, ob es sich in diesem Falle um einen richtigen Omphalos oder um ein Grabmal handelt.
+
+6\. Großer, konischer, mit Netzwerk versehener Omphalos von Marmor, gefunden in Vathia bei Eretria unweit des Heiligtums der Artemis Amarysia, nach [GREEK]. 1900 S. 19. S. ob. S. 89.
+
+7\. Grabomphalos, gefunden zu Athen, Federzeichnung von Alice Roscher nach einer Photographie Br. Schroeders. S. ob. S. 119 f.
+
+8\. Omphalosähnliche, konische, ziemlich schlanke, an die Säule des Apollon Agyieus erinnernde Säule, die von einer Schlange umwunden ist, gefunden in Delos(?), nach 'Griech. Ausgrabungen... Auktion in München in der Gallerie Helbing.' München 1910 S. 30. S. ob. S. 128 u. 132.
+
+## Erläuterungen zu Tafel 7.
+
+(Reliefs mit dem Omphalos von Delphi und Didyma).
+
+1\. Votivrelief im Louvre: Apollon Kitharodos, dem Nike eine Schale darreicht, zwischen ihnen der basislose, fast halbkugelförmige, mit Tänien geschmückte Omphalos, nach Overbeck, Kunstmythol. Atlas Taf. 21 nr. 11. S. ob. S. 92.
+
+2\. Relief der Dresdener Dreifußbasis: Apollon und Herakles, den Dreifuß raubend; zwischen ihnen der Omphalos, ganz ähnlich gebildet wie in Fig. 1, nach Overbeck a. а. О. Taf. 24 nr. 14. S. ob. S. 92 f.
+
+3\. Relief des Archelaos von Priene: Apotheose Homers. Im zweiten Streifen von unten die Grotte von Branchidai: darin der fast halbkugelförmige, basislose Omphalos von Branchidai, links von ihm Apollon Kitharodos, rechts die Priesterin, eine Trinkschale zum Munde(?) führend. S. ob. S. 48 f.
+
+4\. Votivrelief des 5. Jahrh. aus Sparta, darstellend Apollon Kitharodos, dem Artemis einen Trunk kredenzt, zwischen ihnen der delphische Omphalos auf viereckiger Basis, annähernd halbkugelförmig, flankiert von zwei Аdlern, die die Köpfe nach rückwärts wenden. Nach Wolters in den Athen. Mitteilungen 1887 (12) Taf. 12. S. ob. S. 84 u. vgl. Taf. 8 Fig. 2.
+
+5\. Votivrelief aus dem Pythion von Ikaria (Attika), nach Americ. Journal of Archaeol. 5 (1889) Taf. 11 nr. 3. S. ob. S. 89 f.
+
+
+## Erläuterungen zu Tafel 8.
+
+(Reliefs mit Eschara und delphischem Omphalos).
+
+1\. Theseus mit Eschara vor ihm, adoriert von Sosippos, Sohn des Nauarchides, Votivrelief aus Athen, nach Roschers Lex. d. Mythol. 1 Sp. 2499. S. ob. S. 117.
+
+2\. Linke Hälfte eines schönen figurenreichen Votivreliefs aus Phaleron, nach [GREEK]. 1909 Taf. 8: s. ob. S. 86 f. Hier ist der Omphalos ganz ähnlich gebildet wie in Taf. 7 Fig. 4.
+
+3\. Votivrelief aus Aigina: oben auf dem netzbedeckten, fast halbkugelförmigen Omphalos sitzen die zwei Adler, die Köpfe voneinander abwendend, nach Svoronos in der [GREEK]. 1912 [GREEK]. 22. S. ob. S. 126 u. vgl. ob. Taf. 1 Fig. 9 (Münze von Megara).
+
+## Erläuterungen zu Tafel 9.
+
+(Verschiedenes).
+
+1\. Apollon als Pythonbesieger, den Siegespaian anstimmend. Vor ihm der halbkugelförmige, basislose Omphalos, vom toten Python umwunden. Wandgemälde aus Pompeji, nach Photographie P. Herrmanns. S. ob. S. 93 u. 94 Anm. 169.
+
+2\. Asklepiosstatue in Neapel, von der römischen Tiberinsel stammend. Neben Asklepios ein fast halbkugelförmiger netzbedeckter, basisloser Omphalos. Nach Roschers Lex. d. Mythol. 1 Sp. 634. S. ob. S. 111.
+
+3\. Der Omphalos von Jerusalem. Er befindet sich in der griechischen Kathedrale und zwar in "einer Art Becher, mit einer umflochtenen gedrückten Kugel, der nach sehr alter Fabel die Mitte der Welt bezeichnete" (Baedeker, Palästina 7, 39). Vgl. A. Jeremias, Handbuch d. altoriental. Geisteskultur S. 34 Anm. 4. Nach einer mir von Jeremias gütigst überlassenen Photographie gezeichnet von Аlice Roscher. S. ob. S. 26 u. 130.
+
+4\. Mittelalterlicher Orbis terrarum mit dem Zentrum Jerusalem. Nach A. Jeremias, D. A. Testament im Lichte d. alt. Or. 2 S. 584. S. ob. S. 26 Anm. 48.
+
+5\. Votivrelief aus Athen nach Svoronos im Journ. Internat. d'archéol. num. 13 (1911) S. 302: Apollon Pythios, Leto und Artemis; zwischen ihnen der fast halbkugelförmige, auf einer Basis stehende, von zwei Adlern (die zurückblicken) flankierte Omphalos von Delphi. S. ob. S. 84 f.
+
+6\. Bienenkorbförmiger, netzbedeckter, von einer lebendigen Schlange umringelter Omphalos (= Terminus) Rechts und links von ihm je ein Lar Compitalis. Wandgemälde in Pompeji nach Herculanum u. Pompeji... von H. Roux ainé u. L. Barré, deutsch von Kaiser, Hamburg 1841 2 Taf. 57. S. ob. S. 114.
