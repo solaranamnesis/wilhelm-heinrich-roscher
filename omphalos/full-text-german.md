@@ -462,31 +462,36 @@ Um möglichst gründlich und übersichtlich zu verfahren, legen wir zunächst di
 
 Ἐκεῖνον μὲν οὖν εἰκότως ὁ θεὸς ἠμύνατο, μύθου παλαιοῦ καθάπερ ζωγραφήματος ἁφῇ ἀποπειρώμενον (vgl. Kinkel, Epicor. gr. frgm. 1 p. 234, 6).*
 
-*) Anders Strabo 9, p. 419: [GREEK] [vgl. Pindari frgm. 27 Boeckh], [GREEK]. Da die erhaltenen Monumente (s. unten) unzweifelhaft 2 Adler, nicht aber Schwäne oder Raben darstellen, und, wie wir sehen werden, die (goldenen) Adler im heil. Kriege (354 v. Chr.) von Onomarchos und Philomelos geraubt waren, so folgt aus Strabon und Plutarch a. a. O., dass man später, als die Adler verschwunden waren, mehrfach an diesen Anstoß nahm, weil sie Vögel des Zeus, nicht des Apollon sind, und an ihrer Stelle vielmehr apollinische Vögel (Raben oder Schwäne) am Omphalos angenommen hat. Diese Annahme lag umso näher, wenn in anderen Apollotempeln die daselbst befindlichen Nabelsteine mit Raben oder Schwänen geschmückt waren, wie wir aus gewissen Münzen (s. unten) schließen dürfen.
+*) Anders Strabo 9, p. 419: Τῆς Ἑλλάδος [ὁ τόπος τ. Δελφῶν] ἐν μέσῳ πώς ἐστι τῆς συμπάσης... ἐνομίσθη δὲ καὶ τῆς οἰκουμένης, καὶ ἐκάλεσαν τῆς γῆς ὀμφαλὸν, προσπλάσαντες καὶ μῦθον ὅν φησι Πίνδαρος [vgl. Pindari frgm. 27 Boeckh], ὅτι συμπέσοιεν ἐνταῦθα οἱ ἀετοὶ οἱ ἀφεθέντες ὑπὸ τοῦ Διός, ὁ μὲν ἀπὸ δύσεως ὁ δ᾽ ἀπὸ τῆς ἀνατολῆς· οἱ δὲ κόρακάς φασι. δείκνυται δὲ καὶ ὀμφαλός τις ἐν τῷ ναῷ τεταινιωμένος καὶ ἐπ᾽ αὐτῷ αἱ δύο εἰκόνες τοῦ μύθου. Da die erhaltenen Monumente (s. unten) unzweifelhaft 2 Adler, nicht aber Schwäne oder Raben darstellen, und, wie wir sehen werden, die (goldenen) Adler im heil. Kriege (354 v. Chr.) von Onomarchos und Philomelos geraubt waren, so folgt aus Strabon und Plutarch a. a. O., dass man später, als die Adler verschwunden waren, mehrfach an diesen Anstoß nahm, weil sie Vögel des Zeus, nicht des Apollon sind, und an ihrer Stelle vielmehr apollinische Vögel (Raben oder Schwäne) am Omphalos angenommen hat. Diese Annahme lag umso näher, wenn in anderen Apollotempeln die daselbst befindlichen Nabelsteine mit Raben oder Schwänen geschmückt waren, wie wir aus gewissen Münzen (s. unten) schließen dürfen.
 
-*) Zum Verständnis des [GREEK] und [GREEK] verweise ich auf Aristot. Rhet. 3 17 p. 1418 a 21: [GREEK].
+*) Zum Verständnis des ἦν und ἄφαντος verweise ich auf Aristot. Rhet. 3 17 p. 1418 a 21: Ἐπιμενίδης ὁ Κρὴς... περὶ τῶν ἐσομένων οὐκ ἐμαντεύετο, ἀλλὰ περὶ τῶν γεγονότων μὲν ἀδήλων δέ.
 
 *) Worin die vom Gotte an Epimenides vollzogene Strafe für seine Ungläubigkeit bestand, ist m. W. bis jetzt unbekannt. War es vielleicht der langdauernde todesschlafähnliche Zustand, in den er verfallen sein sollte?
 
-Wir ersehen daraus, dass die Sage vom delphischen Omphalos und seiner Entstehung durch die von den entgegengesetzten Enden der Erde ausgesandten Adler des Zeus nach der dem Plutarch vorliegenden Tradition bereits dem alten, spätestens um 500 v. Chr.* lebenden Sühnpriester und Mantis Epimenides bekannt, aber von diesem in Zweifel gezogen worden war, weil er auf eine von ihm der Pythia vorgelegte darauf bezügliche Frage eine unklare Antwort erhalten hatte. Ob dies freilich der einzige Grund seines Zweifels war, darf billig bezweifelt werden. Wahrscheinlich war für Epimenides mindestens ebenso maßgebend der Umstand, dass außer Delphi noch mehrere andere ihm wohlbekannte Orte Anspruch darauf erhoben, Mittelpunkte ([GREEK]) der Erde zu sein, insbesondere Branchidai bei Milet (s. das vorige Kapitel) und Paphos (s. ob. S. 29 f.).
+Wir ersehen daraus, dass die Sage vom delphischen Omphalos und seiner Entstehung durch die von den entgegengesetzten Enden der Erde ausgesandten Adler des Zeus nach der dem Plutarch vorliegenden Tradition bereits dem alten, spätestens um 500 v. Chr.* lebenden Sühnpriester und Mantis Epimenides bekannt, aber von diesem in Zweifel gezogen worden war, weil er auf eine von ihm der Pythia vorgelegte darauf bezügliche Frage eine unklare Antwort erhalten hatte. Ob dies freilich der einzige Grund seines Zweifels war, darf billig bezweifelt werden. Wahrscheinlich war für Epimenides mindestens ebenso maßgebend der Umstand, dass außer Delphi noch mehrere andere ihm wohlbekannte Orte Anspruch darauf erhoben, Mittelpunkte (ὀμφαλοί) der Erde zu sein, insbesondere Branchidai bei Milet (s. das vorige Kapitel) und Paphos (s. ob. S. 29 f.).
 
-*) Vgl. Plat. leg. 642 D, wo aber vielleicht statt [GREEK] [= [GREEK]] [GREEK] [= [GREEK]] zu lesen ist. Diese Lesung würde den Widerspruch mit den übrigen Zeugnissen für die Lebenszeit des Epimenides beseitigen.
+*) Vgl. Plat. leg. 642 D, wo aber vielleicht statt ιʹ [= δέκα] ριʹ [= ἑκατὸν δέκα] zu lesen ist. Diese Lesung würde den Widerspruch mit den übrigen Zeugnissen für die Lebenszeit des Epimenides beseitigen.
 
-Unklar bleibt auch bis auf weiteres, wie sich Epimenides oder die von ihm getadelten Vertreter der Anschauung vom [GREEK] und [GREEK] das Verhältnis dieser beiden [GREEK] zueinander vorgestellt haben, und welche Insel ursprünglich unter dem [GREEK] zu verstehen ist (vgl. oben Anm. 14 u. 74).
+Unklar bleibt auch bis auf weiteres, wie sich Epimenides oder die von ihm getadelten Vertreter der Anschauung vom ὀμφαλὸς γῆς und θαλάσσης das Verhältnis dieser beiden ὀμφαλοί zueinander vorgestellt haben, und welche Insel ursprünglich unter dem ὀμφαλὸς θαλάσσης zu verstehen ist (vgl. oben Anm. 14 u. 74).
 
 2\. Pindar.
 
 a\. Pyth. 6, 1 ff. Boeckh:
 
-[GREEK]...
+Ἀκούσατ᾽· ἦ γὰρ ἑλικώπιδος Ἀφροδίτας  
+ἄρουραν ἢ Χαρίτων  
+ἀναπολίζομεν, ὀμφαλὸν ἐριβρόμου  
+χθονὸς ἀένναον προσοιχόμενοι...
 
-Schol. [GREEK]. Gedichtet ist die Ode nach Вoeckh Ol. 71, 3 = 494 v. Chr., als Pindar 28 Jahre alt war.
+Schol. ἀκούσατε... εἰς τὴν Πυθὼ παριόντες, ἥ ἐστιν ὀμφαλὸς τῆς γῆς. Gedichtet ist die Ode nach Вoeckh Ol. 71, 3 = 494 v. Chr., als Pindar 28 Jahre alt war.
 
 b\. Pyth. 4, 6 ff. B.:
 
-[GREEK]...
+ἔνθα ποτὲ χρυσέων Διὸς αἰητῶν πάρεδρος  
+οὐκ ἀποδάμου Ἀπόλλωνος τυχόντος ἰρέα  
+χρῆσεν...
 
-Schol. [GREEK]. Der in dieser Ode gefeierte Sieg des Arkesilaos vor Kyrene fällt in das Jahr Ol. 78, 3 = 466 v. Chr.
+Schol. Λόγος τις τοιοῦτος περιηχεῖ, ὅτι ὁ Ζεὺς τὸ μεσαίτατον τῆς οἰκουμένης καταμετρήσασθαι βουληθεὶς ἴσους κατὰ τὸ τάχος ἀετοὺς ἐκ δύσεως καὶ ἀνατολῆς ἀφῆκεν· οἱ δὲ διῒπτάμενοι συνέπεσον ἀλλήλοις κατὰ τὴν Πυθῶνα, ὥστε τὴν σύμπτωσιν ὁρίζειν αὐτόθι τῆς ὅλης οἰκουμένης τὸ μεσαίτατον. ὕστερον δὲ σημεῖον τοῦ γεγονότος καὶ χρυσοῦς ἀετοὺς κατασκευάσας ἀνέθηκε τῷ τοῦ θεοῦ τεμένει. --- Ἄλλως ὅτι ὑπὸ Διὸς ἀφεθέντες ἐκ τῶν περάτων τῆς γῆς συνέπεσον ἐνταῦθα, καὶ οὕτως ἐγνώσθη τὸ μέσον τῆς γῆς. ὧν εἰκόνες οἱ χρυσοὶ ἀνέκειντο παρὰ τὸν ὀμφαλὸν ἀετοί, ἤρθησαν δὲ ἐν τῷ Φωκικῷ πολέμῳ, ὃν Φιλόμηλος συνεστήσατο. Der in dieser Ode gefeierte Sieg des Arkesilaos vor Kyrene fällt in das Jahr Ol. 78, 3 = 466 v. Chr.
 
 с\. ebenda 4, 73 ff. (130 ff.):
 
