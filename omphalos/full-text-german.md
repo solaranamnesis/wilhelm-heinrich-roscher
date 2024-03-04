@@ -1391,7 +1391,7 @@ Neugriechische, aus ältester Zeit stammende abergläubische Riten beim Abschnei
 
 # Verzeichnis der Abbildungen nebst Erläuterungen.
 
-## Erklärungen zu [Tafel 1]((https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table01.jpg) (Münztafel).
+## Erklärungen zu [Tafel 1](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table01.jpg) (Münztafel).
 
 1\. Elektronmünze (vergrößert) des 5. Jahrh. von Kyzikos, der Pflanzstadt Milets, nach Studniczka im Hermes 37 (1902) S. 266: netzbedeckter, bienenkorbförmiger, basisloser Omphalos (von Milet oder Branchidai?), darauf zwei große die Köpfe einander zukehrende Adler, darunter der Thunfisch, das Wahrzeichen von Kyzikos (s. ob. S. 50).
 
