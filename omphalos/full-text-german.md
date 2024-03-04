@@ -495,37 +495,47 @@ Schol. Λόγος τις τοιοῦτος περιηχεῖ, ὅτι ὁ Ζε�
 
 с\. ebenda 4, 73 ff. (130 ff.):
 
-[GREEK]...
+ἦλθε δέ οἱ [τῷ Πελίᾳ] κρυόεν πυκινῷ μάντευμα θυμῷ,  
+πὰρ μέσον ὀμφαλὸν εὐδένδροιο ῥηθὲν ματέρος·  
+τὸν μονοκρήπιδα πάντως ἐν φυλακᾷ σχεθέμεν μεγάλᾳ...
 
-Schol. [GREEK].
+Schol. ἦλθε δὲ... τὸ φρικτὸν τοῦτο μάντευμα τῷ συνετῷ αὐτοῦ θυμῷ, τὸ κατὰ τὸν μέσον ὀμφαλὸν ῥηθέν, τουτέστι κατὰ τὸ Δελφικὸν χρηστήριον τὸ ἐν μέσῳ τῆς οἰκουμένης τῆς εὐδένδρου γῆς· λέγει δὲ τῆς Πυθῶνος.
 
 d\. Nem. 7, 33 (49) ff.:
 
-[GREEK] (d. i. Neoptolemos und seine Gefährten)...*
+...τοὶ παρὰ* μέγαν ὀμφαλὸν εὐρυκόλπου  
+μόλον χθονός (d. i. Neoptolemos und seine Gefährten)...*
 
-*) Es fragt sich, ob nicht hier unter dem [GREEK] eigentlich der Parnass zu verstehen ist, der, wie wir später sehen werden, bisweilen als der gewaltige, weithin sichtbare Mittelpunkt Griechenlands und der Erde aufgefasst wird.
+*) Es fragt sich, ob nicht hier unter dem μέγας ὀ. χθονός eigentlich der Parnass zu verstehen ist, der, wie wir später sehen werden, bisweilen als der gewaltige, weithin sichtbare Mittelpunkt Griechenlands und der Erde aufgefasst wird.
 
-Schol. [GREEK]... Das Gedicht ist entstanden um Ol. 79, 4 = 461 v. Chr.
+Schol. ἔμολε παρὰ μέγαν ὀμφαλὸν εὐρυκόλπου χθονὸς Νεοπτόλεμος, Πριάμου πόλιν ἐπεὶ πράθε· τεθνηκότων δὴ τῶν βοηθῶν ἐν Πνθίοις δαπέδοις κεῖται... Das Gedicht ist entstanden um Ol. 79, 4 = 461 v. Chr.
 
 e\. Pyth. 8, 62 (85):
 
-[GREEK].
+ὑπάντασέ [ὁ Ἀλκμάων] τ᾿ ἰόντι γᾶς ὀμφαλὸν παρ᾽ ἀοίδιμον,  
+μαντευμάτων τ᾽ ἐφάψατο συγγόνοισι τέχναις.
 
-Schol. [GREEK]. --- Gedichtet Ol. 80, 3 = 458 v. Chr.
+Schol. Ταῦτα δὲ εἴρηκεν ὡς ὑπάρχοντος ἥρωος καὶ γειενιῶντος τῇ τοῦ νικηφόρου οἰκίᾳ, προσυποτίθεται δὲ ὅτι καὶ ὑπήντησε πορευομένῳ εἰς τὸν ἀγῶνα καὶ τῆς μαντείας ἐφήψατο καὶ αὐτὸς ὢν μάντις... Ἄλλως· ἐφηδόμενος δὲ καὶ αὐτὸς τὸν Ἀλκμάονα στεφανῷ τῇ ὠδῇ, ὅτι δή μοι ὁ τούτου πατὴρ Ἀμφιάραος γείτων ἐστὶ καὶ φύλαξ τῶν ἐμῶν κτημάτων, καὶ ὅτι ἀπιόντι εἰς τὸν τῆς γῆς ὀμφαλόν, τουτέστιν εἰς τὴν Πυθῶνα, ἀκήντησε καὶ τῶν μαντευμάτων ἐφήψατο τοῖς συγγεννηθεῖσιν αὐτῷ. --- Gedichtet Ol. 80, 3 = 458 v. Chr.
 
 f\. Pyth. 11, 9 (15) f.:
 
-[GREEK]...
+ὄφρα Θέμιν ἱερὰν Πυθῶνά τε καὶ ὀρθοδίκαν  
+γᾶς ὀμφαλὸν κελαδήσετ᾽ ἄκρᾳ σὺν ἑσπέρᾳ...
 
-Schol. [GREEK]. --- Gedichtet Ol. 80, 3 = 458 v. Chr.
+Schol. ὅπως ἂν τὴν ἱερὰν Θέμιν καὶ τὴν Πυθῶνα καὶ τὸν ὄντα ὀμφαλὸν τῆς γῆς ὑμνήσητε σὺν παννυχίσι, χάριν κατατιθέμεναι ταῖς ἑπταπύλοις Θήβαις καὶ τῆς Κίρρας ἀγῶνι. --- Gedichtet Ol. 80, 3 = 458 v. Chr.
 
-g\. Pind. fr. 27 Boeckh (aus dem Paian auf den Delphischen Apollon, auf den Воeckh wohl mit Recht die Worte des Strabon [s. ob. Anm. 103] bezieht): [GREEK]. Vgl. auch Pausanias 10, 16, 3: [GREEK]. Vgl. Вoeckh 2 p. 570: 'Igitur haec praeter Epinicia in alio carmine prodita uberius arbitror, in quo me illud confirmat, quod Pausanias non universe ad Pindarum passim haec tangentem, sed ad certam quandam odam provocat, in qua Pindarus consentientia Delphis pronunciaverit: illi vero Paeani, in quo de Delphicis templis poeta dixerat' illa optime vindicari quis negaverit?'
+g\. Pind. fr. 27 Boeckh (aus dem Paian auf den Delphischen Apollon, auf den Воeckh wohl mit Recht die Worte des Strabon [s. ob. Anm. 103] bezieht): Ἐκάλεσαν τῆς γῆς ὀμφαλὸν προσπλάσαντες καὶ μῦθον, ὅν φησι Πίνδαρος, ὅτι συμπέσοιεν ἐνταῦθα οἱ ἀετοὶ οἱ ἀφεθέντες ὑπὸ τοῦ Διός, ὁ μὲν ἀπὸ τῆς δύσεως, ὁ δ᾽ ἀπὸ τῆς ἀνατολῆς. Vgl. auch Pausanias 10, 16, 3: Τὸν δὲ ὑπὸ Δελφῶν καλούμενον ὀμφαλὸν λίθου πεποιημένου λευκοῦ, τοῦτο εἶναι τὸ ἐν μέσῳ γῆς πάσης αὐτοί τε λέγουσιν οἱ Δελφοί, καὶ ἐν ᾠδῇ τινι Πίνδαρος ὁμολογοῦντά σφισιν ἐποίησεν. Vgl. Вoeckh 2 p. 570: 'Igitur haec praeter Epinicia in alio carmine prodita uberius arbitror, in quo me illud confirmat, quod Pausanias non universe ad Pindarum passim haec tangentem, sed ad certam quandam odam provocat, in qua Pindarus consentientia Delphis pronunciaverit: illi vero Paeani, in quo de Delphicis templis poeta dixerat' illa optime vindicari quis negaverit?'
 
 3\. Auch der Zeitgenosse und schwächere Rivale Pindars, Bakchylides, gedenkt des Erdnabels Delphi in der vierten, zu Ehren eines pythischen Wagensiegs des Hieron von Syrakus gedichteten Ode, Vers 4:
 
-[GREEK].*
+Έτι Συρακοσίαν φιλεῖ  
+πόλιν ὁ χρυσοκόμας Ἀπόλλων,  
+ἀστύθεμίν θ᾽ Ἱέρωνα γεραίρει·  
+τρίτον γὰρ π[αρ᾽ ὀμφα]λὸν ὑψιδείρου χθονὸς*  
+Πυθιόνικ[ος ἀείδε]ται...  
+ὠκυπόδ[ων ἀρετᾷ] σὺν ἵππων.
 
-*) Hier ist unter [GREEK] entweder der Parnass oder der delphische Apollontempel mit dem Nabelstein zu verstehen.
+*) Hier ist unter ὀ. ὑψιδ. χθονός entweder der Parnass oder der delphische Apollontempel mit dem Nabelstein zu verstehen.
 
 Der Wagensieg Hierons fällt in das Jahr Ol. 77, 3 = 470 v. Chr. (vgl. Blass, Praef. p. 50).
 
@@ -533,27 +543,38 @@ Der Wagensieg Hierons fällt in das Jahr Ol. 77, 3 = 470 v. Chr. (vgl. Blass, Pr
 
 a\. In den Septem ante Thebas v. 745 ff. (aufgeführt im J. 467 v. Chr.) sagt der Chor:
 
-[GREEK]...
+Ἀπόλλωνος εὖτε Λάϊος  
+βίᾳ, τρὶς εἰπόντος ἐν  
+μεσομφάλοις Πυθικοῖς  
+χρηστηρίοις θνάσκοντα γέννας ἄτερ σώζειν πόλιν...
 
 b\. Choeph. 1034 ff. sagt Orestes zum Chor:
 
-[GREEK]...
+καὶ νῦν ὁρᾶτέ μ᾽, ὡς παρεσκευασμένος  
+ξὺν τῷδε θαλλῷ καὶ στέφει προσίξομαι  
+μεσόμφαλόν θ᾽ ἴδρυμα, Λοξίου πέδον,  
+πυρός τε φέγγος ἄφθιτον κεκλημένον...
 
-Mit [GREEK] scheint die Hestia des Tempels gemeint zu sein, auf der auch nach den Darstellungen mehrerer Vasenbilder Orestes sitzt.
+Mit πυρὸς φέγγος ἄφθιτον scheint die Hestia des Tempels gemeint zu sein, auf der auch nach den Darstellungen mehrerer Vasenbilder Orestes sitzt.
 
 c\. Eumenid. 39 ff. sagt die durch die Eumeniden erschreckte Pythias:
 
-[GREEK]...*
+ἐγὼ μὲν ἕρπω πρὸς πολυστεφῇ μυχόν·*  
+ὁρῶ δ᾽ ἐπ᾽ ὀμφαλῷ μὲν ἄνδρα θεομυσῆ  
+ἕδραν ἔχοντα προστρόκαιον, αἵματι  
+στάζοντα χεῖρας καὶ νεοσπαδὲς ξίφος...
 
-*) Unter dem [GREEK] kann kaum etwas anderes zu verstehen sein als das Adyton des Tempels.
+*) Unter dem πολυστεφὴς μυχός kann kaum etwas anderes zu verstehen sein als das Adyton des Tempels.
 
-Da Vasenbilder den Orestes öfters am Omphalos sitzend darstellen, so ist hier [GREEK]. wohl am besten als Nabelstein zu fassen. Die Pythia muss also, um zum Dreifuß im Adyton zu gelangen, am Nabelstein vorübergehen, was für die Beurteilung von dessen Lage im Tempel nicht unwichtig ist.
+Da Vasenbilder den Orestes öfters am Omphalos sitzend darstellen, so ist hier ὀ. wohl am besten als Nabelstein zu fassen. Die Pythia muss also, um zum Dreifuß im Adyton zu gelangen, am Nabelstein vorübergehen, was für die Beurteilung von dessen Lage im Tempel nicht unwichtig ist.
 
 d\. ebenda v. 166 Kirchh. singt der Eumenidenchor:
 
-[GREEK].
+πάρεστι γᾶς ὀμφαλόν  
+προσδρακεῖν αἰμάτων  
+βλοσυρὸν ἀρόμενον ἄγος ἔχειν.
 
-Schol. [GREEK] (so Weil für das [GREEK] der Hss.; vgl. ob. Anm. 62) [GREEK].
+Schol. τὸν θρόνον, οὗ Ὀρέστης καθῆστο, πάρεστιν ὁρᾶν φονολιβῆ ἀπὸ ποδῶν ἕως κεφαλῆς ὅλον. τὸ δὲ γᾶς ὀμφαλὸν ἀντὶ τοῦ τὸν ἐν Πυθοῖ... ὥστε τὸν ὀμφαλὸν (so Weil für das ὀφθαλμόν der Hss.; vgl. ob. Anm. 62) ἔχειν αἱμάτων ἄγος ἐπαίροντα.
 
 Aufgeführt sind die beiden zu der gleichen Trilogie gehörigen Stücke bekanntlich 458 v. Chr.
 
@@ -561,47 +582,66 @@ Aufgeführt sind die beiden zu der gleichen Trilogie gehörigen Stücke bekanntl
 
 a\. Oed. Rex 476 ff. (Chorgesang):
 
-[GREEK]...
+φοιτᾷ γὰρ [der flüchtige Mörder] ὑπ᾽ ἀγρίαν  
+ὕλαν ἀνά τ᾽ ἄντρα καὶ  
+πέτρας ἅτε ταῦρος,  
+μέλεος μελέῳ ποδὶ χηρεύων,  
+τὰ μεσόμφαλα γᾶς ἀπονοσφίζων  
+μαντεῖα...
 
-Schol. [GREEK].
+Schol. ὅτε δὲ ἡ Πυθὼ μεσόμφαλος, δηλοῖ καὶ ἡ περὶ τοὺς ἀετοὺς ἱστορία καὶ ὅτι χρύσεοι ἀετοὶ διὰ τοῦτο ἀνάκεινται, καὶ ὅτι τούτου χάριν ὁ Ζεὺς ἐκεῖσε τὸ μαντεῖον ἱδρύσατο.
 
 b\. Oedip. Rex 897 ff. (Chorgesang):
 
-[GREEK].
+οὐκ ἔτι τὸν ἄθικτον εἶμι γᾶς ἐπ᾿ ὀμφαλὸν σέβων  
+οὐδ᾽ ἐς τὸν Ἀβαῖσι ναὸν  
+οὐδὲ τὰν Ὀλυμπίαν,  
+εἰ μὴ τάδε χειρόδεικτα  
+πᾶσιν ἁρμόσει βροτοῖς.
 
-Schol. [GREEK].*
+Schol. Οὐκέτι ἄπειμι πρὸς τὸν Ἀπόλλωνα, οὐδὲ πρὸς τὸν ἄχραντον καὶ ἀπροσπέλαστον αὐτοῦ νεών.*
 
-*) Die Beziehung von [GREEK] auf den Tempel zu Delphi ist auch sonst die gewöhnliche (vgl. z. B. Suid. s. v. [GREEK]), jedoch fragt es sich sehr, ob dieser [GREEK] genannt werden kann, da er doch allgemein zugänglich war. Ich glaube daher, dass Bötticher in seinem Berliner Winckelmannsprogramm über den Omphalos (1859) S. 9 Recht hat, wenn er hier unter [GREEK]. den heiligen Nabelstein im Tempel zu Delphi versteht, der mit Binden verdeckt und dadurch vor allen profanen Berührungen geschützt war.
+*) Die Beziehung von ὀμφαλός auf den Tempel zu Delphi ist auch sonst die gewöhnliche (vgl. z. B. Suid. s. v. Γῆς ὀμφ.), jedoch fragt es sich sehr, ob dieser ἄθικτος genannt werden kann, da er doch allgemein zugänglich war. Ich glaube daher, dass Bötticher in seinem Berliner Winckelmannsprogramm über den Omphalos (1859) S. 9 Recht hat, wenn er hier unter ἄθικτος ὀ. den heiligen Nabelstein im Tempel zu Delphi versteht, der mit Binden verdeckt und dadurch vor allen profanen Berührungen geschützt war.
 
 6\. Euripides.
 
 a\. Ion 5:
 
-[GREEK].
+ΕΡΜ:  
+ἥκω δὲ Δελφῶν τήνδε γῆν, ἵν᾽ ὀμφαλὸν  
+μέσον καθίζων Φοῖβος ὑμνῳδεῖ βροτοῖς  
+τά τ᾽ ὄντα καὶ μέλλοντα θεσπίζων ἀεί.
 
-Man kann zweifelhaft sein, ob hier unter [GREEK], wie Wieseler (Gött. Gel. Anz. 1860 S. 167) meint, der delphische Tempel oder der eigentliche Nabelstein daselbst, auf dem der Gott oft sitzend dargestellt wird (s. unten) zu verstehen ist. Mir scheint die letztere Bedeutung annehmbarer.
+Man kann zweifelhaft sein, ob hier unter ὀμφ. μέσος, wie Wieseler (Gött. Gel. Anz. 1860 S. 167) meint, der delphische Tempel oder der eigentliche Nabelstein daselbst, auf dem der Gott oft sitzend dargestellt wird (s. unten) zu verstehen ist. Mir scheint die letztere Bedeutung annehmbarer.
 
 b\. Ion 222:
 
-[GREEK].
+ΧΟΡΟΣ:  
+ἆρ᾽ ὄντως μέσον ὀμφαλὸν  
+γᾶς Φοίβου κατέχει δόμος;  
+ΙΩΝ:  
+στέμμασί γ᾽ ἐνδυτόν, ἀμφὶ δὲ Γοργόνες.  
+ΧΟΡΟΣ:  
+οὕτω καὶ φάτις αὐδᾷ.
 
-Dieser schwierigen Stelle hat neuerdings Studniczka eine lehrreiche Studie gewidmet (Hermes 37 (1902) S. 258 ff.), dem ich hinsichtlich der Beanstandung des verderbten Ausdrucks [GREEK] vollkommen beistimme. Mit Recht macht St. (S. 262) vor allem gegen die Anbringung von Gorgonenbildern am Omphalos den Umstand geltend, dass sonst 'von solch äußerst bedeutsamer Umgebung des Erdnabels kein Sterbenswörtchen verlaute'* und dass von Pindar (s. ob) und anderen Zeugen vielmehr zwei goldene Adler zur Rechten und Linken des Nabelsteins bezeugt würden. Auch die Annahme G. Hermanns und Verrals, dass die 'Gorgonen' des Euripides mit den [GREEK] Pindars (fr. 30 Bergk 2) oder gar mit den beiden Moirenstatuen am Poseidonaltar des Tempels identisch seien, weist Studniczka mit überzeugenden Gründen zurück. Wenn er aber S. 269 zusammen mit C. Robert v. 224 zu verbessern sucht:
+Dieser schwierigen Stelle hat neuerdings Studniczka eine lehrreiche Studie gewidmet (Hermes 37 (1902) S. 258 ff.), dem ich hinsichtlich der Beanstandung des verderbten Ausdrucks Γοργόνες vollkommen beistimme. Mit Recht macht St. (S. 262) vor allem gegen die Anbringung von Gorgonenbildern am Omphalos den Umstand geltend, dass sonst 'von solch äußerst bedeutsamer Umgebung des Erdnabels kein Sterbenswörtchen verlaute'* und dass von Pindar (s. ob) und anderen Zeugen vielmehr zwei goldene Adler zur Rechten und Linken des Nabelsteins bezeugt würden. Auch die Annahme G. Hermanns und Verrals, dass die 'Gorgonen' des Euripides mit den χρύσεαι Κηληδόνες Pindars (fr. 30 Bergk 2) oder gar mit den beiden Moirenstatuen am Poseidonaltar des Tempels identisch seien, weist Studniczka mit überzeugenden Gründen zurück. Wenn er aber S. 269 zusammen mit C. Robert v. 224 zu verbessern sucht:
 
-[GREEK],
+στέμμασί γ᾽ ἐνδυτόν, ἀμφὶ δὲ γοργ<ὼ>  
+<χρυσοφαέννω Διὸς οἰωνώ>,
 
-so gestehe ich offen, dass mir diese Emendation schon wegen ihrer zu großen Kühnheit nicht recht einleuchtet. Zwar nehme auch ich an, dass noch zur Zeit des Euripides die beiden goldenen Zeusadler am Omphalos zu sehen waren (s. oben S. 56 ff.), ob sie aber mit Notwendigkeit hier erwähnt gedacht werden müssen, bezweifle ich im Hinblick auf die meisten bis jetzt angeführten Zeugnisse durchaus. Ich nehme vielmehr eine viel leichtere Verderbnis an, indem ich statt [GREEK] lese:
+so gestehe ich offen, dass mir diese Emendation schon wegen ihrer zu großen Kühnheit nicht recht einleuchtet. Zwar nehme auch ich an, dass noch zur Zeit des Euripides die beiden goldenen Zeusadler am Omphalos zu sehen waren (s. oben S. 56 ff.), ob sie aber mit Notwendigkeit hier erwähnt gedacht werden müssen, bezweifle ich im Hinblick auf die meisten bis jetzt angeführten Zeugnisse durchaus. Ich nehme vielmehr eine viel leichtere Verderbnis an, indem ich statt ἀμφὶ δὲ Γοργόνες lese:
 
-[GREEK]
+ἀμφὶ δὲ γνώμονες
 
-und diesen leichtverständlichen Ausdruck* auf den Priester ([GREEK]) und die fünf delphischen [GREEK] beziehe, die regelmäßig der auf dem Dreifuß sitzenden Pythia assistierten, um deren oft undeutliche und unverständliche Worte zu interpretieren, d. h. verständlich zu machen. Zur weiteren Begründung dieser meiner Emendation berufe ich mich auf folgende Zeugnisse:
+und diesen leichtverständlichen Ausdruck* auf den Priester (προφήτης) und die fünf delphischen ὄσιοι beziehe, die regelmäßig der auf dem Dreifuß sitzenden Pythia assistierten, um deren oft undeutliche und unverständliche Worte zu interpretieren, d. h. verständlich zu machen. Zur weiteren Begründung dieser meiner Emendation berufe ich mich auf folgende Zeugnisse:
 
 Ion 414 ff:
 
 [GREEK].
 
-*) An kleine am [GREEK] wie an der damit identischen [?] [GREEK] angebrachte Gorgonenmasken denken Miss J. Harrison (Bull. de Corr. Hell. 24 [1900] p. 261 f.) und G. Karo in seinem Artikel Omphalos im Dict. des ant. 4 1 p. 199 b.
+*) An kleine am ἀγρηνόν wie an der damit identischen [?] αἰγίς angebrachte Gorgonenmasken denken Miss J. Harrison (Bull. de Corr. Hell. 24 [1900] p. 261 f.) und G. Karo in seinem Artikel Omphalos im Dict. des ant. 4 1 p. 199 b.
 
-*) Zum Verständnis von [GREEK] vgl. auch folgende Stellen: Aesch. Agam. 1130 [GREEK] (dies bezieht sich auf die unmittelbar vorausgehenden Prophezeiungen der Kassandra). --- Eurip. Phoen. 1757 f. [GREEK]. --- Hippol. 346: [GREEK]. --- Hesych. [GREEK] (= fr. 931 N. 1). --- S. auch Thukyd. 1, 138, 3. Lys. [GREEK] 25. Xen. Mem. 1, 4, 5. Solon fr. 16 B. 2 ([GREEK]). Et. M. s. v. --- Übrigens nehmen auch Karo (b. Daremberg-Saglio, Dict. d. ant. s. v. Omphalos p. 199 Anm. 11) und Svoronos, Journ. Internat. d. archéol. numism. 1911 [13] p. 313 Anstoß an der überkühnen Emendation Roberts. Svoronos will lesen [GREEK], was die Adler bezeichnen soll. Ich vermisse für diese Möglichkeit die nötigen Belege.
+*) Zum Verständnis von γνώμονες vgl. auch folgende Stellen: Aesch. Agam. 1130 ΧΟ. Οὐ κομπάσαιμ᾽ ἂν θεσφάτων γνώμων ἄκρος || εἶναι, κακῷ δὲ τῷ προσεικάζω τάδε (dies bezieht sich auf die unmittelbar vorausgehenden Prophezeiungen der Kassandra). --- Eurip. Phoen. 1757 f. ὦ πάτρας κλεινῆς πολῖται, λεύσσετ᾽, Οἰδίπους ὅδε || ὃς τὰ κλείν᾽ αἰνίγματ᾽ ἔγνω καὶ μέγιστος ἦν ἀνὴρ. --- Hippol. 346: οὐ μάντις εἰμὶ τἀφανῆ γνῶναι σαφῶς. --- Hesych. γνώμων· συνετὸς Σοφοκλῆς (= fr. 931 N. 1). --- S. auch Thukyd. 1, 138, 3. Lys. π. σηκοῦ 25. Xen. Mem. 1, 4, 5. Solon fr. 16 B. 2 (γνωμοσύνη). Et. M. s. v. --- Übrigens nehmen auch Karo (b. Daremberg-Saglio, Dict. d. ant. s. v. Omphalos p. 199 Anm. 11) und Svoronos, Journ. Internat. d. archéol. numism. 1911 [13] p. 313 Anstoß an der überkühnen Emendation Roberts. Svoronos will lesen γοργῶπες, was die Adler bezeichnen soll. Ich vermisse für diese Möglichkeit die nötigen Belege.
 
 Plut. Q. Gr. 9: [GREEK]. --- Plut. de def. or. 51: [GREEK].
 
