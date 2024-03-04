@@ -16,8 +16,31 @@
 
 # [Vorwort.](#vorwort-1)
 
+# [1\. Über die Etymologie von ὀμφαλός (= umbilicus etc.) und die Bedeutung des 'Nabels' bei den Griechen und anderen Völkern.](#1-über-die-etymologie-von-ὀμφαλός--umbilicus-etc-und-die-bedeutung-des-nabels-bei-den-griechen-und-anderen-völkern-1)
 
+# [2\. Der Gedanke eines Zentrums ('Nabels') der Erdoberfläche bei verschiedenen Völkern.](#2-der-gedanke-eines-zentrums-nabels-der-erdoberfläche-bei-verschiedenen-völkern-1)
 
+# [3\. Branchidai (Didyma) und sein Orakel als Nabel der Erde.](#3-branchidai-didyma-und-sein-orakel-als-nabel-der-erde-1)
+
+# [4\. Delphi und sein Orakel als Mittelpunkt (ὀμφαλός) der Welt und sein Nabelstein.](#4-delphi-und-sein-orakel-als-mittelpunkt-ὀμφαλός-der-welt-und-sein-nabelstein-1)
+
+## [A\. Die literarischen Zeugnisse.](#a-die-literarischen-zeugnisse-1)
+
+## [B\. Die monumentalen Zeugnisse.](#b-die-monumentalen-zeugnisse-1)
+
+# [5\. Weitere, wahrscheinlich nicht von Delphi abhängige Kulte des Apollon, Asklepios usw., in denen Omphaloi vorkamen.](#5-weitere-wahrscheinlich-nicht-von-delphi-abhängige-kulte-des-apollon-asklepios-usw-in-denen-omphaloi-vorkamen-1)
+
+# [6\. Grabmonumente, Baitylien und Altäre in Omphalosform.](#6-grabmonumente-baitylien-und-altäre-in-omphalosform-1)
+
+# [7\. Nachträge.](#7-nachträge-1)
+
+# [8\. Berichtigungen und Zusätze.](#8-berichtigungen-und-zusätze-1)
+
+# [Register. Systematische Inhaltsübersicht.](#register-systematische-inhaltsübersicht-1)
+
+# [Bilder im Texte.](#bilder-im-texte-1)
+
+# [Verzeichnis der Abbildungen nebst Erläuterungen.](#verzeichnis-der-abbildungen-nebst-erläuterungen-1)
 
 ---
 
