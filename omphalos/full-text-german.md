@@ -662,69 +662,99 @@ und diesen leichtverständlichen Ausdruck* auf den Priester (προφήτης) u
 
 Ion 414 ff:
 
-[GREEK].
+ΙΩΝ:  
+ἡμεῖς τά γ᾽ ἔξω, τῶν ἔσω δ᾽ ἄλλοις μέλει,  
+οἵ πλησίον θάσσουσι τρίποδος, ὦ ξένε,  
+Δελφῶν ἀριστῆς, οὃς ἐκλήρωσεν πάλος.
 
 *) An kleine am ἀγρηνόν wie an der damit identischen [?] αἰγίς angebrachte Gorgonenmasken denken Miss J. Harrison (Bull. de Corr. Hell. 24 [1900] p. 261 f.) und G. Karo in seinem Artikel Omphalos im Dict. des ant. 4 1 p. 199 b.
 
 *) Zum Verständnis von γνώμονες vgl. auch folgende Stellen: Aesch. Agam. 1130 ΧΟ. Οὐ κομπάσαιμ᾽ ἂν θεσφάτων γνώμων ἄκρος || εἶναι, κακῷ δὲ τῷ προσεικάζω τάδε (dies bezieht sich auf die unmittelbar vorausgehenden Prophezeiungen der Kassandra). --- Eurip. Phoen. 1757 f. ὦ πάτρας κλεινῆς πολῖται, λεύσσετ᾽, Οἰδίπους ὅδε || ὃς τὰ κλείν᾽ αἰνίγματ᾽ ἔγνω καὶ μέγιστος ἦν ἀνὴρ. --- Hippol. 346: οὐ μάντις εἰμὶ τἀφανῆ γνῶναι σαφῶς. --- Hesych. γνώμων· συνετὸς Σοφοκλῆς (= fr. 931 N. 1). --- S. auch Thukyd. 1, 138, 3. Lys. π. σηκοῦ 25. Xen. Mem. 1, 4, 5. Solon fr. 16 B. 2 (γνωμοσύνη). Et. M. s. v. --- Übrigens nehmen auch Karo (b. Daremberg-Saglio, Dict. d. ant. s. v. Omphalos p. 199 Anm. 11) und Svoronos, Journ. Internat. d. archéol. numism. 1911 [13] p. 313 Anstoß an der überkühnen Emendation Roberts. Svoronos will lesen γοργῶπες, was die Adler bezeichnen soll. Ich vermisse für diese Möglichkeit die nötigen Belege.
 
-Plut. Q. Gr. 9: [GREEK]. --- Plut. de def. or. 51: [GREEK].
+Plut. Q. Gr. 9: Πέντε δέ εἰσιν Ὅσιοι διὰ βίου, καὶ τὰ πολλὰ μετὰ τῶν προφητῶν δρῶσιν οὗτοι, καὶ συνιερουργοῦσιν, ἅτε γεγονέναι δοκοῦντες ἀπὸ Δευκαλίωνος. --- Plut. de def. or. 51: Κατέβη μὲν [ἡ Πυθιὰς] εἰς τὸ μαντεῖον, ὥς φασιν, ἄκουσα καὶ ἀπρόθυμος, εὐθὺς δὲ περὶ τὰς πρώτας ἀποκρίσεις ἦν καταφανὴς τῇ τραχύτητι τῆς φωνῆς οὐκ ἀναφέρουσα, δίκην νεὼς ἐπειγομένης, ἀλάλου καὶ κακοῦ πνεύματος οὖσα πλήρης· τέλος δὲ παντάπασιν ἐκταραχθεῖσα καὶ μετὰ κραυγῆς φοβερᾶς φερομένη πρὸς τὴν ἔξοδον ἔρριψεν ἑαυτήν· ὥστε φυγεῖν μὴ μόνον τοὺς θεοπρόπους, ἀλλὰ καὶ τὸν προφήτην Νίκανδρον καὶ τοὺς παρόντας τῶν ὁσίων.
 
-Habe ich also mit meiner Vermutung Recht, so würde sich Euripides hier den ursprünglichen Omphalos nicht in der von Pomtow angenommenen 'aedicula des Omphalos' unweit der Hestia in der Cella des späteren Tempels (vgl. Pomtow im Philologus 1912 S. 59 ff.), sondern vielmehr im Adyton unmittelbar am [GREEK] und in der Nähe des Dreifußes denken, eine Annahme, die im Hinblick darauf, dass es sich hier nicht um die historischen Verhältnisse des 4. Jahrhunderts, sondern um die der älteren Zeit handelt, wohl gerechtfertigt erscheinen dürfte.*
+Habe ich also mit meiner Vermutung Recht, so würde sich Euripides hier den ursprünglichen Omphalos nicht in der von Pomtow angenommenen 'aedicula des Omphalos' unweit der Hestia in der Cella des späteren Tempels (vgl. Pomtow im Philologus 1912 S. 59 ff.), sondern vielmehr im Adyton unmittelbar am χάσμα γῆς und in der Nähe des Dreifußes denken, eine Annahme, die im Hinblick darauf, dass es sich hier nicht um die historischen Verhältnisse des 4. Jahrhunderts, sondern um die der älteren Zeit handelt, wohl gerechtfertigt erscheinen dürfte.*
 
-*) Dass Euripides von der Einrichtung des delphischen Tempels keine ganz klare Vorstellung hatte, geht auch aus der folgenden Stelle (Ion 461 f.) hervor, wonach die delphische [GREEK] neben ([GREEK]) dem Orakeldreifuß gestanden und Orakel gespendet haben soll. Vgl. auch die Unklarheit des Pausanias hinsichtlich des eigentlichen Omphalos (10, 16, 3) und darüber Pomtow a. a. О. S. 59 f.
+*) Dass Euripides von der Einrichtung des delphischen Tempels keine ganz klare Vorstellung hatte, geht auch aus der folgenden Stelle (Ion 461 f.) hervor, wonach die delphische ἑστία neben (παρά) dem Orakeldreifuß gestanden und Orakel gespendet haben soll. Vgl. auch die Unklarheit des Pausanias hinsichtlich des eigentlichen Omphalos (10, 16, 3) und darüber Pomtow a. a. О. S. 59 f.
 
 c\. Ion 461 f.
 
-[GREEK].*
+ΧΟ:  
+Φοιβήιος ἔνθα γᾶς  
+μεσσόμφαλος ἑστία  
+παρὰ χορευομένῳ* τρίποδι  
+μαντεύματα κραίνει.
 
-*) Wieseler (Gött. Gel. Anz. 1860 S. 167) will hier [GREEK] lesen und den Ausdruck [GREEK] von dem ganzen Tempel verstehen, nicht von dem Herde im Adyton, 'auf welchem sich der Omphalos befand' [??].
+*) Wieseler (Gött. Gel. Anz. 1860 S. 167) will hier περιχορευομένῳ τρίποδι lesen und den Ausdruck ἑστία von dem ganzen Tempel verstehen, nicht von dem Herde im Adyton, 'auf welchem sich der Omphalos befand' [??].
 
-Diese Verse sind deshalb von ziemlicher Wichtigkeit für die Omphalosfrage, weil hauptsächlich aus ihnen sowie aus einem hocharchaischen den Kampf um Troilos darstellenden Vasengemälde in München (O. Jahn nr. 124, wo ein apollinischer Altar von 'Omphalos'-form ausdrücklich als [GREEK] bezeichnet ist; s. unt. Kap. 4 B), endlich aus dem Umstande, dass der Omphalos von Delphi öfters als auf einer Basis stehend dargestellt wird, Wieseler den Schluss gezogen hat, dass in Delphi Omphalos und Hestia identisch seien, also der Omphalos als ein Symbol der Hestia betrachtet werden müsse.* Gewiss mit Recht hat dagegen Preuner in seinem Buche Hestia-Vesta (vgl. auch dessen Artikel 'Hestia' im Lexikon d. Mythol. 1 Sp. 2640) außer anderen Gründen vor allem die absolute Unmöglichkeit geltend gemacht, einen mit (brennbaren) Wollenbinden bekleideten Omphalos mit dem auf der delphischen Hestia brennenden ewigen Feuer in unmittelbaren Zusammenhang zu bringen. Folglich ist nach Preuner (im Lexikon d. Mythol. a. а. O.) unter der [GREEK] auf keinen Fall der Nabelstein, sondern vielmehr die im Tempel von Delphi stehende [GREEK] zu verstehen, 'deren ewiges Feuer zugleich zu Ehren Apollons brannte' (Preuner a. a. О. Sp. 2639, 39 ff.; vgl. auch Pomtow а. а. O. S. 58 f. u. Anm. 19, sowie den homer. Hymn. auf Hestia 1 ff.). [GREEK] wird diese [GREEK] natürlich nur deshalb genannt, weil sie in einem geheiligten Raume stand, der nach delphischer Lehre den Mittelpunkt der bewohnten Erde bildete.*
+Diese Verse sind deshalb von ziemlicher Wichtigkeit für die Omphalosfrage, weil hauptsächlich aus ihnen sowie aus einem hocharchaischen den Kampf um Troilos darstellenden Vasengemälde in München (O. Jahn nr. 124, wo ein apollinischer Altar von 'Omphalos'-form ausdrücklich als [SVG] bezeichnet ist; s. unt. Kap. 4 B), endlich aus dem Umstande, dass der Omphalos von Delphi öfters als auf einer Basis stehend dargestellt wird, Wieseler den Schluss gezogen hat, dass in Delphi Omphalos und Hestia identisch seien, also der Omphalos als ein Symbol der Hestia betrachtet werden müsse.* Gewiss mit Recht hat dagegen Preuner in seinem Buche Hestia-Vesta (vgl. auch dessen Artikel 'Hestia' im Lexikon d. Mythol. 1 Sp. 2640) außer anderen Gründen vor allem die absolute Unmöglichkeit geltend gemacht, einen mit (brennbaren) Wollenbinden bekleideten Omphalos mit dem auf der delphischen Hestia brennenden ewigen Feuer in unmittelbaren Zusammenhang zu bringen. Folglich ist nach Preuner (im Lexikon d. Mythol. a. а. O.) unter der Φοιβήιος γᾶς μεσσόμφαλος ἑστία auf keinen Fall der Nabelstein, sondern vielmehr die im Tempel von Delphi stehende κοινὴ ἑστία τῆς Ἑλλάδος zu verstehen, 'deren ewiges Feuer zugleich zu Ehren Apollons brannte' (Preuner a. a. О. Sp. 2639, 39 ff.; vgl. auch Pomtow а. а. O. S. 58 f. u. Anm. 19, sowie den homer. Hymn. auf Hestia 1 ff.). Μεσσόμφαλος wird diese ἑστία natürlich nur deshalb genannt, weil sie in einem geheiligten Raume stand, der nach delphischer Lehre den Mittelpunkt der bewohnten Erde bildete.*
 
 *) Vgl. Wieseler, Annali d. I. 29 (1857) p. 160 ff. Derselbe in Jahns Jahrbb. 75 (1857) S. 678 ff. und in den Gött. Gel. Anz. 1860 S. 161 ff. --- An Wieseler hat sich trotz Preuners Darlegungen neuerdings angeschlossen Baumeister, Denkmäler 1, 601.
 
-*) Daneben kann freilich auch [GREEK] in übertragener Bedeutung von [GREEK] in Betracht kommen. Vgl. unten Orest. 327 ff. [GREEK]. Iph. T. 1251 ff. [GREEK].
+*) Daneben kann freilich auch ἑστία in übertragener Bedeutung von δόμος (νεώς, ἄδυτον) in Betracht kommen. Vgl. unten Orest. 327 ff. μεσόμφαλοι μυχοί. Iph. T. 1251 ff. μέσον γᾶς μέλαθρον etc.
 
 Die Aufführung des Ion fällt wahrscheinlich in die Zeit zwischen 421 und 413 (A. Dieterich).
 
 d\. Medea 667:
 
-[GREEK].
+ΜΗΔ. Τί δ᾽ ὀμφαλὸν γῆς θεσπιῳφδὸν ἐστάλης;  
+ΑΙΓ. παίδων ἐρευνῶν σπέρμ᾽ ὅπως γένοιτό μοι.
 
 Aufgeführt wurde die Medea Ol. 87, 1 = 431 v. Chr.
 
 e\. Orestes 327 ff.:
 
-[GREEK].
+ΧΟ...  
+φεῦ μόχθων,  
+οἵων, ὦ τάλας, ὀρεχθεὶς ἔρρεις,  
+τρίποδος ἄπο φάτιν, ἃν ὁ Φοῖβος  
+ἔλακεν ἔλακε, δεξάμενος ἀνὰ δάπεδον,  
+ἵνα μεσόμφαλοι λέγονται μυχοί.
 
-Schol. [GREEK].* Vgl. zu der Ableitung von [GREEK] unten (Anm. 126) Cornutus de nat. deor. 196 Os.
+Schol. ὀμφαλὸς λέγεται ἡ Πυθὼ παρὰ τὸ τὰς ὀμφὰς τὰς ὑπὸ θεοῦ χρηστηριαζομένας λέγειν ἢ παρὰ τὸ εἶναι ἐν μέσῳ τῆς οἰκουμένης, λέγεται γὰρ τὸν Δία μαθεῖν βουλόμενον τὸ μέσον τῆς γῆς, δύο ἀετοὺς ἰσοταχεῖς ἀφεῖναι, τὸν μὲν ἀπὸ δύσεως, τὸν δὲ ἀπὸ ἀνατολῆς, καὶ ἐκεῖ αὐτοὺς συναντῆσαι, ὅθεν ὀμφαλὸς ἐκλήθη. ἀνακεῖσθαί τε χρυσοῦς ἀετούς φασι τῶν μυθευομένων ἀετῶν ὑπομνήματα.* Vgl. zu der Ableitung von ὀμφή unten (Anm. 126) Cornutus de nat. deor. 196 Os.
 
-*) Vgl. oben S. 55 ff. Anm. 103 und die in vieler Hinsicht ganz ähnliche Sage von den [GREEK] b. Sall. Iug. 79. Val. Max. 5, 6, Ext. 4. Strab. 3, 171.
+*) Vgl. oben S. 55 ff. Anm. 103 und die in vieler Hinsicht ganz ähnliche Sage von den βωμοὶ Φιλαίνων b. Sall. Iug. 79. Val. Max. 5, 6, Ext. 4. Strab. 3, 171.
 
 f\. Orestes 591:
 
-[GREEK].
+ΟΡΕΣΤ.  
+ὁρᾷς, Ἀπόλλων ὃς μεσομφάλους ἕδρας  
+ναίων βροτοῖσι στόμα νέμει σαφέστατον.
 
 Die Aufführung des Orestes fällt ins Jahr 408.
 
 g\. Iphig. Taur. 1251 ff.:
 
-[GREEK].
+ΧΟ.  
+...ὦ Φοῖβε, μαν-  
+τείων δ᾽ ἐπέβας ζαθέων,  
+τρίποδί τ᾽ ἐν χρυσέῳ  
+θάσσεις, ἐν ἀψευδεῖ θρόνῳ.  
+μαντείας βροτοῖς  
+θεσφάτων νέμων  
+ἀδύτων ὕπο, Κασταλίας ῥεέθρων  
+γείτων, μέσον γᾶς ἔχων μέλαθρον.
 
 h\. Phoeniss. 232 ff.:
 
-[GREEK].
+ΧΟ.  
+ζάθεά τ᾽ ἄντρα δράκοντος οὔ-  
+ρειαί τε σκοπιαὶ θεῶν  
+νιφόβολόν τ᾽ ὄρος ἱερόν, εἱ-  
+λίσσων ἀθανάτας θεοῦ  
+χορὸς γενοίμαν ἄφοβος  
+παρὰ μεσόμφαλα γύαλα Φοί-  
+βου Δίρκαν προλιποῦσα.
 
 Aufgeführt zwischen 411 und 408 (Schol. Arist. ran. 53).
 
 7\. Platon.
 
-De republ. 4, 5 р. 427 e: [GREEK]. Vgl. zum Verständnis dieser Worte die unten angeführten Bilder und Münzen.
+De republ. 4, 5 р. 427 e: οὗτος γὰρ δήπον ὁ θεὸς [Ἀπόλλων] περὶ τὰ τοιαῦτα πᾶσιν ἀνθρώποις πάτριος ἐξηγητὴς ἐν μέσῳ τῆς γῆς ἐπὶ ὀμφαλοῦ καθήμενος ἐξηγεῖται. Vgl. zum Verständnis dieser Worte die unten angeführten Bilder und Münzen.
 
-8\. "In einer Bauinschrift des 4. Jahrhunderts ist von einer [GREEK] und von [GREEK] die Rede, beides sicher im Tempel, aber nicht genau lokalisiert: Acad. d. inscr. Comptes rendus 23 (1895) S. 335 mit Note" (Studniczka im Hermes 37 (1902) S. 263 Anm. 5). S. jetzt darüber Pomtow a. а. О. S. 61, der annimmt, dass in dem Tempel des 4. Jahrh. der Omphalos in einer aedicula auf der einen Seite der Cella (s. S. 69), gegenüber der [GREEK], gestanden habe (vgl. Varro l. l. 7, 17 in aede ad latus).
+8\. "In einer Bauinschrift des 4. Jahrhunderts ist von einer πρόστασις ἡ πρὸ τοῦ ὀμφαλοῦ und von ἔργον τὸ περὶ τὸν ὀμφαλόν die Rede, beides sicher im Tempel, aber nicht genau lokalisiert: Acad. d. inscr. Comptes rendus 23 (1895) S. 335 mit Note" (Studniczka im Hermes 37 (1902) S. 263 Anm. 5). S. jetzt darüber Pomtow a. а. О. S. 61, der annimmt, dass in dem Tempel des 4. Jahrh. der Omphalos in einer aedicula auf der einen Seite der Cella (s. S. 69), gegenüber der ἑστία, gestanden habe (vgl. Varro l. l. 7, 17 in aede ad latus).
 
-Ob Pomtow а. а. О. S. 61 auch die leider etwas zusammenhangslosen Worte aus dem Paian des Philodamos (4. Jahrh.) [GREEK] mit Recht auf den Omphalos und seine beiden goldenen Adler (die von den Phokiern eingeschmolzen waren, jetzt aber erneuert worden sein sollen) bezieht, ist mir schon wegen des [GREEK] (was von weißen, nicht von goldenen Gegenständen gilt) etwas zweifelhaft.
+Ob Pomtow а. а. О. S. 61 auch die leider etwas zusammenhangslosen Worte aus dem Paian des Philodamos (4. Jahrh.) ναὸν... νεοχρύσεον χρυσέοις τύποις... ἀργαίνοντε αὐτόχθονι κόσμῳ mit Recht auf den Omphalos und seine beiden goldenen Adler (die von den Phokiern eingeschmolzen waren, jetzt aber erneuert worden sein sollen) bezieht, ist mir schon wegen des ἀργαίνοντε = λευκαίνοντε (was von weißen, nicht von goldenen Gegenständen gilt) etwas zweifelhaft.
 
 9\. Römischer Tragiker des 3. oder 2. vorchr. Jahrhunderts (Frgm. tr. inc. inc. 19 f. R.).
 
@@ -737,15 +767,20 @@ Das Beiwort certus bezieht man wohl am besten auf die Tatsache, dass auch andere
 
 10\. Der zweiten Hälfte des dritten vorchristlichen Jahrhunderts gehört der kürzlich in Delphi aufgefundene Hestiahymnus des Aristonoos an, dessen Anfang in der von Pomtow (Delphica 3 S. 248 ff.) mitgeteilten Fassung so lautet:
 
-[GREEK].*
+[Ἱ]ερὰν ἱερῶν ἄνασσαν Ἑστίαν [ὑ-]  
+μνήσομεν, ἃ καὶ Ὀλύμπου καὶ υ[...]*  
+γαίας μεσόμφαλον ἀεὶ Πυθίαν πα[ρὰ]  
+[δ]άφναν κατέχουσα ναὸν ἀν ἱ[ε-]  
+[ρ]ὸν Φοίβου χορεύεις τερπομένα τ[ε]  
+χολῶν θεσπίσμασιν κ. τ. λ.
 
-*) Hier ergänzt ein Ungenannter: [GREEK], Br. Keil [GREEK]. Mir scheint ein Epitheton zu [GREEK] zu fehlen. [GREEK] fasse ich als Substantiv (= Mittelpunkt, Zentrum); vgl. Batrach. 129; [GREEK] Poll. 2, 169; [GREEK] etc. --- Zum [GREEK] verweist P. Maas auf Philolaos b. Diels, Vorsokrat. 32 A 16 S. 237: [GREEK].
+*) Hier ergänzt ein Ungenannter: εὐ[ρέας], Br. Keil [τ]ύ[λον]. Mir scheint ein Epitheton zu γαίας zu fehlen. μεσόμφαλον fasse ich als Substantiv (= Mittelpunkt, Zentrum); vgl. Batrach. 129; μεσομφάλιον Poll. 2, 169; μεσόλοφον, μεσόριον, μεσομήνιον etc. --- Zum μεσόμφαλον Ὀλύμπου verweist P. Maas auf Philolaos b. Diels, Vorsokrat. 32 A 16 S. 237: Φιλόλαος πῦρ ἐν μέσῳ περὶ τὸ κέντρον ὅπερ ἑστίαν τοῦ παντὸς καλεῖ.
 
 11\. Varro l. l. 7, 17 (р. 97 ed. Götz-Schöll):
 
-'O sancte Apollo, qui umbilicum certum terrarum obtines.' Umbilicum dictum aiunt ab umbilico nostro, quod is medius locus sit terrarum, ut umbilicus in nobis; quod utrumque est falsum: neque hic locus est terrarum medius neque noster umbilicus est hominis medius. Itaque pingitur quae vocatur [GREEK] [vgl. Philolaus 247, 17 D.; Cic. Tusc. 1, 68 f.] ut media caeli ac terrae linea* ducatur infra umbilicum per id quo discernitur, homo mas an femina sit, ubi ortus humanus, similis ut in mundo: ibi enim omnia nascuntur in medio, quod terra mundi media. Praeterea si quod medium id est umbilicus, * ut pila terrae, non Delphi medium. Et terrae medium * non hoc sed quod vocant Delphis, in aede ad latus* est quiddam ut thesauri* specie, quod Graeci vocant [GREEK], quem Pythonos [-is?]* aiunt esse tumulum [-os Hss.]; ab eo nostri interpretes [GREEK] umbilicum dixerunt.
+'O sancte Apollo, qui umbilicum certum terrarum obtines.' Umbilicum dictum aiunt ab umbilico nostro, quod is medius locus sit terrarum, ut umbilicus in nobis; quod utrumque est falsum: neque hic locus est terrarum medius neque noster umbilicus est hominis medius. Itaque pingitur quae vocatur <ἀντί>χθων Πυθαγόρα [vgl. Philolaus 247, 17 D.; Cic. Tusc. 1, 68 f.] ut media caeli ac terrae linea* ducatur infra umbilicum per id quo discernitur, homo mas an femina sit, ubi ortus humanus, similis ut in mundo: ibi enim omnia nascuntur in medio, quod terra mundi media. Praeterea si quod medium id est umbilicus, * ut pila terrae, non Delphi medium. Et terrae medium * non hoc sed quod vocant Delphis, in aede ad latus* est quiddam ut thesauri* specie, quod Graeci vocant ὀμφαλόν, quem Pythonos [-is?]* aiunt esse tumulum [-os Hss.]; ab eo nostri interpretes ὀμφαλόν umbilicum dixerunt.
 
-*) = [GREEK]: s. ob. S. 41 f. Anm. 79 ff.
+*) = ἄξων (πόλος): s. ob. S. 41 f. Anm. 79 ff.
 
 *) Lobeck, der die schwierige Stelle Aglaoph. p. 1002 ff. behandelt und darauf hinweist, dass statt '_ad latus_' auch gelesen wird '[_foramen_] _adlatum, allatum_, (_ablatum_' [= _lanatum_?], vermutet a. а. О. p. 1004 _arquatum_ (od. _arcuatum_) _quiddam_' d. h. ein Ding von gewölbter Gestalt, was allerdings die Form, die der Nabelstein, nach den maßgebendsten Monumenten hatte, außerordentlich treffend bezeichnen würde.
 
@@ -753,11 +788,11 @@ Das Beiwort certus bezieht man wohl am besten auf die Tatsache, dass auch andere
 
 *) Pomtow, Philolog. 1912 S. 60 А. 21.
 
-Der Sinn der leider stark verderbten Sätze scheint folgender zu sein. Vor allem bekämpft der skeptische Varro (wohl nach dem Vorgang griechischer Philosophen; vgl. oben das über Epimenides' Zweifel an der [GREEK] Delphis Gesagte!) die delphische Lehre vom [GREEK] im Apollontempel als dem anerkannten (certus) Mittelpunkt der Erde, wie sie namentlich auch der von ihm (und Cicero) zitierte römische Tragiker vertreten hatte. Zur Begründung seiner Ansicht nun scheint sich Varro auf Dreierlei zu berufen: erstens auf die vor allen von Pythagoras und später von den Stoikern (Posidonius) ausgesprochene Lehre von der Kugelgestalt der Erde (pila terrae), die deshalb wohl eine Achse, nicht aber auf ihrer Oberfläche einen Mittelpunkt haben könne; zweitens auf die auch sonst in der späteren Zeit mehrfach verbreitete Theorie, dass der sogenannte delphische, wie ein 'thesaurus' (d. h. entweder Grabgewölbe, Grabkuppel oder Sparbüchse: s. ob. Anm. 121) gestaltete Omphalos nicht den Mittelpunkt der Erde, sondern vielmehr das Grab des Python darstelle.* Drittens endlich auf die Tatsache, dass der Nabel nicht genau die Mitte des menschlichen Leibes bezeichnet.
+Der Sinn der leider stark verderbten Sätze scheint folgender zu sein. Vor allem bekämpft der skeptische Varro (wohl nach dem Vorgang griechischer Philosophen; vgl. oben das über Epimenides' Zweifel an der μεσομφαλία Delphis Gesagte!) die delphische Lehre vom ὀμφαλός im Apollontempel als dem anerkannten (certus) Mittelpunkt der Erde, wie sie namentlich auch der von ihm (und Cicero) zitierte römische Tragiker vertreten hatte. Zur Begründung seiner Ansicht nun scheint sich Varro auf Dreierlei zu berufen: erstens auf die vor allen von Pythagoras und später von den Stoikern (Posidonius) ausgesprochene Lehre von der Kugelgestalt der Erde (pila terrae), die deshalb wohl eine Achse, nicht aber auf ihrer Oberfläche einen Mittelpunkt haben könne; zweitens auf die auch sonst in der späteren Zeit mehrfach verbreitete Theorie, dass der sogenannte delphische, wie ein 'thesaurus' (d. h. entweder Grabgewölbe, Grabkuppel oder Sparbüchse: s. ob. Anm. 121) gestaltete Omphalos nicht den Mittelpunkt der Erde, sondern vielmehr das Grab des Python darstelle.* Drittens endlich auf die Tatsache, dass der Nabel nicht genau die Mitte des menschlichen Leibes bezeichnet.
 
-*) Vgl. Hesych. s. v. [GREEK]. Vgl. dazu Meineke, Callim. hymn. et epigr. p. 154 f. --- Tatian c. Gr. 8, 251 identifiziert den [GREEK] sogar mit dem nach Philochoros (fr. 22 f.) unmittelbar neben der goldenen Apollonstatue des Tempels befindlichen Grabe des Dionysos, indem er behauptet: [GREEK]. Vgl. Preller-Robert, Gr. Myth. 1, 686 f. Lobeck, Agl. 572 ff. etc. Rohde, Psyche 2 1, 132, 2.
+*) Vgl. Hesych. s. v. Τοξίου βουνός· τοῦ Ἀπόλλωνος τοῦ ἐν Σικυῶνι. βέλτιον δὲ ἀκούειν τὴν ἐν Δελφοῖς Νάπην λεγομένην· ἐκεῖ γὰρ καὶ ὁ δράκων κατετοξεύθη. καὶ ὁ ὀμφαλὸς τῆς γῆς τάφος ἐστι τοῦ Πύθωνος. Vgl. dazu Meineke, Callim. hymn. et epigr. p. 154 f. --- Tatian c. Gr. 8, 251 identifiziert den ὀ. sogar mit dem nach Philochoros (fr. 22 f.) unmittelbar neben der goldenen Apollonstatue des Tempels befindlichen Grabe des Dionysos, indem er behauptet: ὁ δὲ ὀμφ. τάφος ἐστὶ Διονύσου. Vgl. Preller-Robert, Gr. Myth. 1, 686 f. Lobeck, Agl. 572 ff. etc. Rohde, Psyche 2 1, 132, 2.
 
-Wenn neuerdings ein so ausgezeichneter Forscher wie E. Rohde in seiner Psyche 2 1, 132 f. (ebenso Stengel, Gr. Kultusaltertümer 2 S. 65) die Behauptung ausgesprochen hat, dass die Ansicht, der delphische Nabelstein von der Form eines 'tumulus' oder 'thesaurus' habe in der Tat ursprünglich das Grab des Python dargestellt, und 'zum "Nabel" d. h. Mittelpunkt der Erde hätten ihn erst Missverständnis und daraus hervorgesponnene Fabeln gemacht,' das Richtige treffe, so kann ich schon im Hinblick auf die angeführten Zeugnisse des Epimenides, Pindar usw. diese Deutung nur als höchst unwahrscheinlich bezeichnen.* Damit soll freilich nicht geleugnet werden, dass vielleicht in allerältester Zeit der möglicherweise als Baityl aufgefasste delphische Omphalos* eine andere Bedeutung hatte, als ihm von Pindar usw. zugeschrieben wird; welches aber diese seine ursprünglichste Bedeutung gewesen ist, kann mit unsern jetzigen Mitteln absolut nicht ausgemacht werden; das was allein sich feststellen lässt, ist die Tatsache, dass spätestens von Beginn des 5. vorchristlichen Jahrhunderts an Delphi von den Westgriechen für den Mittelpunkt der (scheibenförmigen) Erde und der dortige Nabelstein als äußeres Wahrzeichen dieser Anschauung erklärt wurde. Die Anschauung vom Omphalos als dem Grabe des Python ist wahrscheinlich erst dann entstanden, als man sich allgemein die Erde nicht mehr als runde Scheibe sondern mit Parmenides, Pythagoras und dem von mir neuentdeckten altionischen Kosmologen bei Ps.-Hippokr. [GREEK]. bereits als Kugel vorstellte, die als solche wohl eine Achse, aber auf ihrer Oberfläche keinen Mittelpunkt oder 'Nabel' haben konnte.*
+Wenn neuerdings ein so ausgezeichneter Forscher wie E. Rohde in seiner Psyche 2 1, 132 f. (ebenso Stengel, Gr. Kultusaltertümer 2 S. 65) die Behauptung ausgesprochen hat, dass die Ansicht, der delphische Nabelstein von der Form eines 'tumulus' oder 'thesaurus' habe in der Tat ursprünglich das Grab des Python dargestellt, und 'zum "Nabel" d. h. Mittelpunkt der Erde hätten ihn erst Missverständnis und daraus hervorgesponnene Fabeln gemacht,' das Richtige treffe, so kann ich schon im Hinblick auf die angeführten Zeugnisse des Epimenides, Pindar usw. diese Deutung nur als höchst unwahrscheinlich bezeichnen.* Damit soll freilich nicht geleugnet werden, dass vielleicht in allerältester Zeit der möglicherweise als Baityl aufgefasste delphische Omphalos* eine andere Bedeutung hatte, als ihm von Pindar usw. zugeschrieben wird; welches aber diese seine ursprünglichste Bedeutung gewesen ist, kann mit unsern jetzigen Mitteln absolut nicht ausgemacht werden; das was allein sich feststellen lässt, ist die Tatsache, dass spätestens von Beginn des 5. vorchristlichen Jahrhunderts an Delphi von den Westgriechen für den Mittelpunkt der (scheibenförmigen) Erde und der dortige Nabelstein als äußeres Wahrzeichen dieser Anschauung erklärt wurde. Die Anschauung vom Omphalos als dem Grabe des Python ist wahrscheinlich erst dann entstanden, als man sich allgemein die Erde nicht mehr als runde Scheibe sondern mit Parmenides, Pythagoras und dem von mir neuentdeckten altionischen Kosmologen bei Ps.-Hippokr. π. ἑβδ. bereits als Kugel vorstellte, die als solche wohl eine Achse, aber auf ihrer Oberfläche keinen Mittelpunkt oder 'Nabel' haben konnte.*
 
 *) Hierzu kommt jetzt noch der von Pomtow (Philologus 1912 S. 60 A. 21) gelieferte Nachweis, dass in römischer Zeit die Pythonsage willkürlich ausgeschmückt wurde. --- Hat vielleicht zu der Deutung des О. als 'Pythonis tumulus' der Umstand beigetragen, dass er mehrfach von einer Schlange (= Python?) umringelt und hohl dargestellt wurde (s. unt.)?
 
