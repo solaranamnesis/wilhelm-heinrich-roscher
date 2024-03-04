@@ -10,7 +10,7 @@
 
 ### Bei B. G. Teubner.
 
-[](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/cover.jpg)
+[Titelbild.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/cover.jpg)
 
 ---
 
