@@ -969,7 +969,7 @@ b\. Die Omphalosdarstellungen in Wandgemälden usw.
 
 *) Ähnlich Helbig a. а. О. S. 63 nr. 231: Apoll, lorbeerbekränzt mit flatternder roter Chlamys, nach r. schreitend, das Plektron in der R., rührt mit der L. die Kithara; r. am Boden der Omph., um den sich eine Schlange windet. Über die Gestalt des O. kann ich leider nichts sagen. S. uns. Taf. 9, 1.
 
-[Apollon feiert seinen Sieg über Python. (Nach P. Herrmann-Bruckmann, Denkmäler der Malerei des Altertums 3, 20.)]((https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/fig03.jpg)
+[Apollon feiert seinen Sieg über Python. (Nach P. Herrmann-Bruckmann, Denkmäler der Malerei des Altertums 3, 20.)](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/fig03.jpg)
 
 21\. Ein zweites Wandgemälde von Pompeji (abgeb. Museo Borbon. 10. Taf. 20, Müller-Wieseler 2 nr. 136, vgl. Helbig, Wandgem. nr. 184) zeigt den jugendlichen lorbeerbekränzten Apollon mit einem Lorbeerzweig in der Rechten, seine Leier auf den Omphalos stützend. Dieser ist niedrig, mit einem Wollennetz umgeben, ohne Basis, oben etwas abgeplattet (um besser als Stütze für die Leier zu dienen) und verjüngt sich auch nach unten ein wenig, so dass er, bei weiterer Verlängerung der Kurve nach unten, sich der Eiform nähern würde.
 
