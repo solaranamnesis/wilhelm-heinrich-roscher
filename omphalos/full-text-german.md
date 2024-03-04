@@ -10,6 +10,8 @@
 
 ### Bei B. G. Teubner.
 
+[](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/cover.jpg)
+
 ---
 
 # [Vorwort.](#vorwort-1)
@@ -243,13 +245,13 @@ Meine Frage, ob nicht die Ka'ba in Mekka den Mohamedanern als Nabel der Erde gel
 
 *) Möglicherweise bezieht sich auf ganz ähnliche Vorstellungen das phönikisch-karthagische Relief, abgebildet in Memnon 3 Taf. 3 Fig. 30. Vgl. unten Kap. 6.
 
-[Münze von Kypros nach Roschers Mythol. Lex. 1 Sp. 747).]()
+[Münze von Kypros nach Roschers Mythol. Lex. 1 Sp. 747).](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/fig01.jpg)
 
 9\. Die Ägypter. Um zu erfahren, ob auch dieses uralte Kulturvolk in älterer Zeit die Vorstellung von einem Nabel des Landes oder der Erde gekannt hat, habe ich mich an Dr. Günther Roeder in Breslau, einen ganz hervorragenden jüngeren Ägyptologen, mit verschiedenen Fragen gewandt, aber leider von diesem die Antwort erhalten, dass ihm nichts über die in meinen Fragen berührten Punkte bekannt sei. Vielleicht gewähren künftige Funde und Ausgrabungen im Nillande die Möglichkeit, dass für Ägypten, die Heimat der ältesten Geometer, nicht unwichtige Problem durch den Nachweis ausdrücklicher Zeugnisse aus älterer Zeit zu lösen. Dass die hiermit ausgesprochene Hoffnung nicht unbegründet ist, scheint eine interessante Stelle des aus dem späteren Ägypten stammenden hermetischen Traktats Κόρη κόσμου (= Stob. Ecl. 1 р. 302 ed. Meineke) zu bestätigen. Hier antwortet Isis auf die Frage ihres Sohnes Horos auf dessen Frage: Διὰ τίνα αἰτίαν οἱ ἔξω τῆς ἱερωτάτης ἡμῶν χώρας ἄνθρωποι ταῖς διανοίαις οὐκ ὄντως εἰσὶ συνετοὶ ὡς οἱ ἡμέτεροι; --- Ἡ γῆ μέσον τοῦ παντὸς ὑπτία κεῖται, καὶ κεῖται ὥσπερ ἄνθρωπος οὐρανὸν βλέπουσα, μεμερισμένη δὲ καὶ ὅσα μέλη ὁ ἄνθρωπος μελίζεται· ἐμβλέπει δ᾽ οὐρανῷ καθάπερ πατρὶ ἰδίῳ, ὅπως ταῖς ἐκείνου μεταβολαῖς καὶ αὐτὴ τὰ ἴδια συμμεταβάλλῃ. καὶ πρὸς μὲν τῷ νότῳ τοῦ παντὸς κειμένην ἔχει τὴν κεφαλήν [1], πρὸς δὲ τῷ ἀπηλιώτῃ τὸν δεξιὸν ὦμον [2], <πρὸς δὲ τῷ λιβὶ τὸν εὐώνυμον> [3], ὑπὸ τῆς ἄρκτου τοὺς πόδας, <τὸν μὲν δεξιὸν ὑπὸ τὴν οὐράν> [4], τὸν δὲ εὐώνυμον ὑπὸ τὴν κεφαλὴν τῆς ἄρκτου [5], τοὺς δὲ μηροὺς ἐν τοῖς μετὰ τὸν ἄρκτον [6], τὰ δὲ μέσα ἐν τοῖς μέσοις [7],... ἐπειδὴ δὲ ἐν τῷ μέσῳ τῆς γῆς κεῖται ἡ τῶν προγόνων ἡμῖν ἱερωτάτη χώρα [= Αἴγυπτος], τὸ δὲ μέσον τοῦ ἀνθρωπίνου σώματος μόνης τῆς καρδίας ἐστὶ σηκός, τῆς δὲ φυχῆς δρμητήριόν ἐστι καρδία, παρὰ ταύτην τὴν αἰτίαν, ὦ τέκνον, οἱ ἐνταῦθα ἄνθρωποι τὰ μὲν ἄλλα ἔχουσιν οὐχ ἧττον ὅσα καὶ πάντες, ἐξαίρετον δὲ τῶν πάντων νοερώτεροί εἰσι καὶ σώφρονες, ὡς ἂν ἐπὶ καρδίας γεννώμενοι καὶ τραφέντες. Illustriert werden diese höchst wahrscheinlich auf einer altägyptischen Vorstellung beruhenden Sätze, wie Fr. Воll (Die Lebensalter S. 50 f.) erkannt hat, einerseits durch das beistehend abgebildete altägyptische (bereits von mir zum Verständnis der in Kap. 11 der hippokratischen Schrift von der Siebenzahl erhaltenen siebenteiligen Weltkarte herangezogene) Gemälde, anderseits durch diese Weltkarte selbst, die so nahe verwandte, ja fast identische Anschauungen enthält, dass auch Boll а. а. О. in verstärktem Maße dazu neigt, mit mir an Anregung des Hippokrateers durch eine ägyptische Vorstellung zu glauben.*
 
 *) Man beachte vor allem, dass nicht bloß die Siebenteilung der Erde (des Makrokosmos) und des menschlichen Körpers (des Mikrokosmos) in π. ἑβδομ. dieselbe ist wie in der Κόρη κόσμου, sondern dass auch die einzelnen Körperteile hier wie dort so ziemlich identisch sind. Nur ist zu beachten, dass statt der χεῖρες in π. ἑβδ. hier die ὦμοι, statt der φρένες (praecordia) dort hier die καρδία als der mittelste Teil und zugleich als Sitz der Seele und Denkkraft genannt werden, und dass natürlich bei dem Ägypter dessen Vaterland genau dieselbe Rolle spielen musste, die für den Ionier (Milesier) Ionien (als Sitz höchster Kultur!) spielt. Vgl. Roscher, Über Alter, Ursprung u. Bedeutg. d. hippokrat. Schrift von d. Siebenzahl S. 12 Anm. 14. Derselbe, Die neuentdeckte Schrift e. altmiles. Naturphilosophen usw. S. 6 nebst Taf. 2 Fig. 1 u. 2. Derselbe, D. hippokrat. Schr. von d. Siebenzahl in ihrer vierfachen Überlieferung z. ersten Mal herausgeg. von W. Н. R. Paderborn 1913 S. 107 ff., wo nicht weniger als 8 hebdomadische Listen der wesentlichsten Körperteile mitgeteilt sind, die mit der Liste in der Schrift Κόρη κόσμου nahe Verwandtschaft verraten.
 
-[Zwei Himmelsgöttinnen und Erdgott der Ägypter. Nach Brugsch, Religion u. Mythologie der alten Ägypter S. 211. Man beachte, dass hier der Nabel aller drei Figuren genau in der Mitte liegt.]()
+[Zwei Himmelsgöttinnen und Erdgott der Ägypter. Nach Brugsch, Religion u. Mythologie der alten Ägypter S. 211. Man beachte, dass hier der Nabel aller drei Figuren genau in der Mitte liegt.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/fig02.jpg)
 
 10\. Die Griechen. Da über die beiden Hauptorte, die sich im Bereiche Griechenlands rühmten, im Besitze des ὀμφαλὸς γῆς zu sein, nämlich Branchidai und Delphi, in zwei größeren Sonderabschnitten (Kap. 3 u. 4) gehandelt werden wird, so wollen wir hier nur ganz kurz diejenigen Städte aufzählen, die beanspruchten das Zentrum (ὀμφαλός) eines mehr oder weniger umfassenden Teiles von Hellas zu sein.
 
@@ -967,7 +969,7 @@ b\. Die Omphalosdarstellungen in Wandgemälden usw.
 
 *) Ähnlich Helbig a. а. О. S. 63 nr. 231: Apoll, lorbeerbekränzt mit flatternder roter Chlamys, nach r. schreitend, das Plektron in der R., rührt mit der L. die Kithara; r. am Boden der Omph., um den sich eine Schlange windet. Über die Gestalt des O. kann ich leider nichts sagen. S. uns. Taf. 9, 1.
 
-[Apollon feiert seinen Sieg über Python. (Nach P. Herrmann-Bruckmann, Denkmäler der Malerei des Altertums 3, 20.)]()
+[Apollon feiert seinen Sieg über Python. (Nach P. Herrmann-Bruckmann, Denkmäler der Malerei des Altertums 3, 20.)]((https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/fig03.jpg)
 
 21\. Ein zweites Wandgemälde von Pompeji (abgeb. Museo Borbon. 10. Taf. 20, Müller-Wieseler 2 nr. 136, vgl. Helbig, Wandgem. nr. 184) zeigt den jugendlichen lorbeerbekränzten Apollon mit einem Lorbeerzweig in der Rechten, seine Leier auf den Omphalos stützend. Dieser ist niedrig, mit einem Wollennetz umgeben, ohne Basis, oben etwas abgeplattet (um besser als Stütze für die Leier zu dienen) und verjüngt sich auch nach unten ein wenig, so dass er, bei weiterer Verlängerung der Kurve nach unten, sich der Eiform nähern würde.
 
@@ -1389,7 +1391,7 @@ Neugriechische, aus ältester Zeit stammende abergläubische Riten beim Abschnei
 
 # Verzeichnis der Abbildungen nebst Erläuterungen.
 
-## Erklärungen zu Tafel 1 (Münztafel).
+## Erklärungen zu [Tafel 1]((https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table01.jpg) (Münztafel).
 
 1\. Elektronmünze (vergrößert) des 5. Jahrh. von Kyzikos, der Pflanzstadt Milets, nach Studniczka im Hermes 37 (1902) S. 266: netzbedeckter, bienenkorbförmiger, basisloser Omphalos (von Milet oder Branchidai?), darauf zwei große die Köpfe einander zukehrende Adler, darunter der Thunfisch, das Wahrzeichen von Kyzikos (s. ob. S. 50).
 
@@ -1455,106 +1457,106 @@ Neugriechische, aus ältester Zeit stammende abergläubische Riten beim Abschnei
 
 (Vasengemälde mit dem delphischen Omphalos).
 
-1\. Rotfiguriere Vase in Neapel, nach Baumeister, Denkm. 2 S. 1110 Fig. 1307: Apollon mit Leier und Lorbeerzweig sitzt auf dem halbkugelförmigen, basislosen, mit Tänien und Lorbeerzweigen geschmückten Omphalos von Delphi; vor ihm Orestes, hinter diesem Elektra. Hinter Apollon Pylades und die Pythia, auf dem Dreifuß thronend. S. ob. S. 101.
+[1\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table02-01.jpeg) Rotfiguriere Vase in Neapel, nach Baumeister, Denkm. 2 S. 1110 Fig. 1307: Apollon mit Leier und Lorbeerzweig sitzt auf dem halbkugelförmigen, basislosen, mit Tänien und Lorbeerzweigen geschmückten Omphalos von Delphi; vor ihm Orestes, hinter diesem Elektra. Hinter Apollon Pylades und die Pythia, auf dem Dreifuß thronend. S. ob. S. 101.
 
-2\. Desgl. in Petersburg, nach Baumeister a. а. O. 1 S. 104 Fig. 110: Bündnis zwischen Dionysos und dem in Delphi einziehenden Apollon. Vorn unten in der Mitte der basislose, netzbedeckte, halbkugelförmige Omphalos von Delphi; darüber eine Palme, rechts von dieser Dionysos, links Apollon, einander die rechte Hand zum Bündnis reichend. Rings umher Satyrn und Bacchantinnen, links oben der delphische Dreifuß. S. ob. S. 101.
+[2\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table02-02.jpeg) Desgl. in Petersburg, nach Baumeister a. а. O. 1 S. 104 Fig. 110: Bündnis zwischen Dionysos und dem in Delphi einziehenden Apollon. Vorn unten in der Mitte der basislose, netzbedeckte, halbkugelförmige Omphalos von Delphi; darüber eine Palme, rechts von dieser Dionysos, links Apollon, einander die rechte Hand zum Bündnis reichend. Rings umher Satyrn und Bacchantinnen, links oben der delphische Dreifuß. S. ob. S. 101.
 
-3\. Desgl. in Ruvo, Sammlung Jatta, nach Roschers Lexikon der Mythol. 3 Sp. 175: Orestas verbirgt sich hinter dem hohen eiförmigen, netzbedeckten Omphalos, der aus einem blumenkelchförmigen auf einer 3-4stufigen Basis stehenden Gebilde gewissermaßen hervorwächst; links vom Omphalos Neoptolemos mit dem r. Knie auf einen Altar sich stützend und sein Schwert schwingend, links von ihm ein lanzenschwingender Krieger. In der Mitte oben der Tempel von Delphi, rechts von ihm Apollon mit dem Bogen sitzend, neben ihm eine Palme. Links vom Tempel der Dreifuß und Artemis. S. ob. S. 103.
+[3\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table02-03.jpeg) Desgl. in Ruvo, Sammlung Jatta, nach Roschers Lexikon der Mythol. 3 Sp. 175: Orestas verbirgt sich hinter dem hohen eiförmigen, netzbedeckten Omphalos, der aus einem blumenkelchförmigen auf einer 3-4stufigen Basis stehenden Gebilde gewissermaßen hervorwächst; links vom Omphalos Neoptolemos mit dem r. Knie auf einen Altar sich stützend und sein Schwert schwingend, links von ihm ein lanzenschwingender Krieger. In der Mitte oben der Tempel von Delphi, rechts von ihm Apollon mit dem Bogen sitzend, neben ihm eine Palme. Links vom Tempel der Dreifuß und Artemis. S. ob. S. 103.
 
 ## Erklärungen zu Tafel 3.
 
 (Vasengemälde mit dem delphischen Omphalos).
 
-1\. Rotfiguriere Vase der Sammlung Hope nach Baumeister a. a. О. 2 S. 1118 Fig. 1315: Orestes' Sühnung in Delphi. Unten in der Mitte kniet Orestes vor dem hohen, eiförmigen, basislosen, netzbedeckten Omphalos, hinter dem der Dreifuß steht. Rechts davon Athene, links Apollon. Hinter diesem eine Erinys, ebenso eine desgl. hinter dem Dreifuß. Links oben das Brustbild des Pylades, rechts oben das einer verschleierten Frau (Klytaimnestra?). S. ob. S. 104.
+[1\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table03-01.jpeg) Rotfiguriere Vase der Sammlung Hope nach Baumeister a. a. О. 2 S. 1118 Fig. 1315: Orestes' Sühnung in Delphi. Unten in der Mitte kniet Orestes vor dem hohen, eiförmigen, basislosen, netzbedeckten Omphalos, hinter dem der Dreifuß steht. Rechts davon Athene, links Apollon. Hinter diesem eine Erinys, ebenso eine desgl. hinter dem Dreifuß. Links oben das Brustbild des Pylades, rechts oben das einer verschleierten Frau (Klytaimnestra?). S. ob. S. 104.
 
-2\. Vasenbild nach O. Jahn, Vasenbilder Taf. 1 = Bötticher, Der Omphalos des Zeus zu Delphi = 19. Winckelmannsprogramm Berl. 1859 Tafel: Orestes umklammert den hohen, kegelförmigen, netzbedeckten, basislosen, wie es scheint, im Tempel befindlichen Omphalos. Anwesend rechts Artemis, links Apollon und die entsetzt fliehende Pythia; links oben eine Erinys. S. ob. S. 104.
+[2\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table03-02.jpeg) Vasenbild nach O. Jahn, Vasenbilder Taf. 1 = Bötticher, Der Omphalos des Zeus zu Delphi = 19. Winckelmannsprogramm Berl. 1859 Tafel: Orestes umklammert den hohen, kegelförmigen, netzbedeckten, basislosen, wie es scheint, im Tempel befindlichen Omphalos. Anwesend rechts Artemis, links Apollon und die entsetzt fliehende Pythia; links oben eine Erinys. S. ob. S. 104.
 
-3\. Vase im Louvre zu Paris, nach Roschers Lexikon der Mythol. 3 Sp. 983/4: Orestes' Sühnung. In der Mitte Orestes, auf der Basis des hohen, kegelförmigen, netzbedeckten Omphalos sitzend. Anwesend Apollon, Artemis, 3 Erinyen und der Schatten Klytaimnestras. S. ob. S. 102 f.
+[3\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table03-03.jpeg) Vase im Louvre zu Paris, nach Roschers Lexikon der Mythol. 3 Sp. 983/4: Orestes' Sühnung. In der Mitte Orestes, auf der Basis des hohen, kegelförmigen, netzbedeckten Omphalos sitzend. Anwesend Apollon, Artemis, 3 Erinyen und der Schatten Klytaimnestras. S. ob. S. 102 f.
 
 ## Erklärungen zu Tafel 4.
 
 (Vasengemälde mit Omphalos oder omphalosartigen Grabmälern).
 
-1\. Omphalosförmiges, an den 'Bomos' (= Omphalos?) des Tempels von Thymbra (s. das folgende Bild!) erinnerndes Grab des Achilleus, über dem Polyxene geschlachtet wird, anwesend Nestor, Diomedes, Neoptolemos, Amphilochos, Antiphates, Aias Oiliades, Phoinix, hocharchaisches Vasenbild nach Journ. of Hellen. Stud. 18 (1898) Taf. 15; s. ob. S. 116.
+[1\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table04-01.jpeg) Omphalosförmiges, an den 'Bomos' (= Omphalos?) des Tempels von Thymbra (s. das folgende Bild!) erinnerndes Grab des Achilleus, über dem Polyxene geschlachtet wird, anwesend Nestor, Diomedes, Neoptolemos, Amphilochos, Antiphates, Aias Oiliades, Phoinix, hocharchaisches Vasenbild nach Journ. of Hellen. Stud. 18 (1898) Taf. 15; s. ob. S. 116.
 
-2\. Der 'Bomos' (= Omphalos?) im Apollontempel von Thymbra, neben dem der gemordete Troilos liegt. Anwesend Hermes, Athena, Achilleus, Hektor, Aineas, Deithynos (= Deiphobos)  Hochaltertümliches Vasenbild in München nach Baumeister, Denkm, S. 1902 Fig. 2001. S. ob. S. 106 f. u. 116 Anm. 209 f.
+[2\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table04-02.jpeg) Der 'Bomos' (= Omphalos?) im Apollontempel von Thymbra, neben dem der gemordete Troilos liegt. Anwesend Hermes, Athena, Achilleus, Hektor, Aineas, Deithynos (= Deiphobos)  Hochaltertümliches Vasenbild in München nach Baumeister, Denkm, S. 1902 Fig. 2001. S. ob. S. 106 f. u. 116 Anm. 209 f.
 
-3\. Omphalosförmiges Grab, auf dem zwei Raben (Augurienvögel) sitzen, rechts und links je ein sitzender gerüsteter Krieger, das Augurium beobachtend, schwarzfigurieres Vasenbild im Brit. Museum nach Studniczka im Hermes 37 (1902) S. 265 nr. 4. S. ob. S. 117 f. u. vgl. unt. Taf. 5 Fig. 4.
+[3\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table04-03.jpeg) Omphalosförmiges Grab, auf dem zwei Raben (Augurienvögel) sitzen, rechts und links je ein sitzender gerüsteter Krieger, das Augurium beobachtend, schwarzfigurieres Vasenbild im Brit. Museum nach Studniczka im Hermes 37 (1902) S. 265 nr. 4. S. ob. S. 117 f. u. vgl. unt. Taf. 5 Fig. 4.
 
-4\. Die Tötung des Python, der sich hinter dem Omphalos (in der delphischen Felsengrotte) zu verbergen sucht, durch den noch auf dem Arme der Leto getragenen kindlichen Apollon; anwesend Artemis. Schwarzfiguriere (archaische??) Lekythos in Paris nach Roschers Lexikon d. Mythol. 3 Sp. 3408 Fig. 4. S. ob. S. 104 f.
+[4\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table04-04.jpeg) Die Tötung des Python, der sich hinter dem Omphalos (in der delphischen Felsengrotte) zu verbergen sucht, durch den noch auf dem Arme der Leto getragenen kindlichen Apollon; anwesend Artemis. Schwarzfiguriere (archaische??) Lekythos in Paris nach Roschers Lexikon d. Mythol. 3 Sp. 3408 Fig. 4. S. ob. S. 104 f.
 
-5\. Omphalosförmiger, gegitterter (s. ob. Fig. 1 u. 2) Gegenstand (Grabstele??) als Dekoration eines Gefäßes in Straßburg nach Jahrb. für d. klass. Alt. 15 (1912) Taf. 2 Fig. 8.
+[5\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table04-05.jpeg) Omphalosförmiger, gegitterter (s. ob. Fig. 1 u. 2) Gegenstand (Grabstele??) als Dekoration eines Gefäßes in Straßburg nach Jahrb. für d. klass. Alt. 15 (1912) Taf. 2 Fig. 8.
 
-6\. Omphalosförmiges Grabmal, an dem oder in dem kleine Flügelwesen (Keren, Seelen?) umhersehwirren und eine Schlange sichtbar ist, daneben zwei Trauernde, attische Lekythos nach О. Crusius in Roschers Lexikon d. Mythol. 2 Sp. 1147 Fig. 5. S. ob. S. 119.
+[6\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table04-06.jpeg) Omphalosförmiges Grabmal, an dem oder in dem kleine Flügelwesen (Keren, Seelen?) umhersehwirren und eine Schlange sichtbar ist, daneben zwei Trauernde, attische Lekythos nach О. Crusius in Roschers Lexikon d. Mythol. 2 Sp. 1147 Fig. 5. S. ob. S. 119.
 
 ## Erklärungen zu Tafel 5.
 
 (Vasengemälde mit omphalosförmigen Grabmälern).
 
-1\. Weißes, omphalosartiges Grabmal mit Schlange daran (oder darin?), überragt von einem 'Baityl' (?), rechts und links davon je ein gerüsteter Krieger, schwarzfigurieres Vasenbild nach Journ. of Hellen. Stud. 19 (1899) S. 228. S. ob S. 117.
+[1\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table05-01.jpeg) Weißes, omphalosartiges Grabmal mit Schlange daran (oder darin?), überragt von einem 'Baityl' (?), rechts und links davon je ein gerüsteter Krieger, schwarzfigurieres Vasenbild nach Journ. of Hellen. Stud. 19 (1899) S. 228. S. ob S. 117.
 
-2\. Eiförmiges Grabmal auf Basis, links davon eine (opfernde?) Frau, Vasenbild nach Journ. of Hellen. Stud. 19 S. 169 Fig. 1. S. ob. S. 116 Anm. 208.
+[2\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table05-02.jpeg) Eiförmiges Grabmal auf Basis, links davon eine (opfernde?) Frau, Vasenbild nach Journ. of Hellen. Stud. 19 S. 169 Fig. 1. S. ob. S. 116 Anm. 208.
 
-3\. Eiförmiges, auf Stufenbasis sich erhebendes Grabmal mit Stele, rechts davon eine Opfergaben darbringende Frau, links ein Jüngling mit Lanze, Vasenbild nach Kell, Journ. of Hellen. Stud. 19 Taf. 2. S. ob. S. 116.
+[3\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table05-03.jpeg) Eiförmiges, auf Stufenbasis sich erhebendes Grabmal mit Stele, rechts davon eine Opfergaben darbringende Frau, links ein Jüngling mit Lanze, Vasenbild nach Kell, Journ. of Hellen. Stud. 19 Taf. 2. S. ob. S. 116.
 
-4\. Zwei omphalosförmige Gräber (s. ob. Taf. 4, 3), auf denen je ein Augurienvogel sitzt, rechts und links von jedem je ein gerüsteter Krieger, sitzend das Wahrzeichen beobachtend, schwarzfiguriere Vase in Neapel nach Journ. of Hellen. Stud. 19 (1899) S. 227. S. ob. S. 117.
+[4\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table05-04.jpeg) Zwei omphalosförmige Gräber (s. ob. Taf. 4, 3), auf denen je ein Augurienvogel sitzt, rechts und links von jedem je ein gerüsteter Krieger, sitzend das Wahrzeichen beobachtend, schwarzfiguriere Vase in Neapel nach Journ. of Hellen. Stud. 19 (1899) S. 227. S. ob. S. 117.
 
 ## Erklärungen zu Tafel 6.
 
 (plastische Omphaloi und omphalosähnliche Grabmäler).
 
-1\. Netzbedeckter, bienenkorbförmiger Omphalos von weißem Marmor, gefunden auf dem Platze vor dem Apollontempel in Delphi, Federzeichnung von Alice Roscher nach einer Photographie Pomtows. S. ob. S. 81 f. Die beste und deutlichste Abbildung dieses Omphalos s. jetzt in 'Über Land und Meer' 1913 nr. 3 S. 1083.
+[1\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table06-01.jpeg) Netzbedeckter, bienenkorbförmiger Omphalos von weißem Marmor, gefunden auf dem Platze vor dem Apollontempel in Delphi, Federzeichnung von Alice Roscher nach einer Photographie Pomtows. S. ob. S. 81 f. Die beste und deutlichste Abbildung dieses Omphalos s. jetzt in 'Über Land und Meer' 1913 nr. 3 S. 1083.
 
-2\. Zuckerhutförmiger, innen hohler Omphalos[?] von glattem Kalkstein, gefunden in Delphi beim Thesauros von Syrakus, Federzeichnung von Alice Roscher nach einer Photographie Pomtows. S. ob. S. 83.
+[2\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table06-02.jpeg) Zuckerhutförmiger, innen hohler Omphalos[?] von glattem Kalkstein, gefunden in Delphi beim Thesauros von Syrakus, Federzeichnung von Alice Roscher nach einer Photographie Pomtows. S. ob. S. 83.
 
-3\. Marmoromphalos mit Netzwerk aus dem Heiligtum des Apollon Erethimios zu Kamiros auf Rhodos nach Corp. Inscr. Insul. 1, 733; s. ob. S. 109 f.
+[3\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table06-03.jpeg) Marmoromphalos mit Netzwerk aus dem Heiligtum des Apollon Erethimios zu Kamiros auf Rhodos nach Corp. Inscr. Insul. 1, 733; s. ob. S. 109 f.
 
-4\. Großer, konischer Marmoromphalos mit Netzwerk, oben abgeplattet, um eine Apollonstatue zu tragen, gefunden im Dionysostheater Athens, nach Studniczka im Hermes 37 (1902) S. 261 Fig. 3. S. ob. S. 88 f.
+[4\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table06-04.jpeg) Großer, konischer Marmoromphalos mit Netzwerk, oben abgeplattet, um eine Apollonstatue zu tragen, gefunden im Dionysostheater Athens, nach Studniczka im Hermes 37 (1902) S. 261 Fig. 3. S. ob. S. 88 f.
 
-5\. Großer, konischer, von einer Schlange umwundener Marmoromphalos aus der Nekropole Milets, nach einer Photographie Br. Schröders. S. ob. S. 38 u. 48 oben. Es ist natürlich zweifelhaft, ob es sich in diesem Falle um einen richtigen Omphalos oder um ein Grabmal handelt.
+[5\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table06-05.jpeg) Großer, konischer, von einer Schlange umwundener Marmoromphalos aus der Nekropole Milets, nach einer Photographie Br. Schröders. S. ob. S. 38 u. 48 oben. Es ist natürlich zweifelhaft, ob es sich in diesem Falle um einen richtigen Omphalos oder um ein Grabmal handelt.
 
-6\. Großer, konischer, mit Netzwerk versehener Omphalos von Marmor, gefunden in Vathia bei Eretria unweit des Heiligtums der Artemis Amarysia, nach [GREEK]. 1900 S. 19. S. ob. S. 89.
+[6\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table06-06.jpeg) Großer, konischer, mit Netzwerk versehener Omphalos von Marmor, gefunden in Vathia bei Eretria unweit des Heiligtums der Artemis Amarysia, nach [GREEK]. 1900 S. 19. S. ob. S. 89.
 
-7\. Grabomphalos, gefunden zu Athen, Federzeichnung von Alice Roscher nach einer Photographie Br. Schroeders. S. ob. S. 119 f.
+[7\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table06-07.jpeg) Grabomphalos, gefunden zu Athen, Federzeichnung von Alice Roscher nach einer Photographie Br. Schroeders. S. ob. S. 119 f.
 
-8\. Omphalosähnliche, konische, ziemlich schlanke, an die Säule des Apollon Agyieus erinnernde Säule, die von einer Schlange umwunden ist, gefunden in Delos(?), nach 'Griech. Ausgrabungen... Auktion in München in der Gallerie Helbing.' München 1910 S. 30. S. ob. S. 128 u. 132.
+[8\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table06-08.jpeg) Omphalosähnliche, konische, ziemlich schlanke, an die Säule des Apollon Agyieus erinnernde Säule, die von einer Schlange umwunden ist, gefunden in Delos(?), nach 'Griech. Ausgrabungen... Auktion in München in der Gallerie Helbing.' München 1910 S. 30. S. ob. S. 128 u. 132.
 
 ## Erläuterungen zu Tafel 7.
 
 (Reliefs mit dem Omphalos von Delphi und Didyma).
 
-1\. Votivrelief im Louvre: Apollon Kitharodos, dem Nike eine Schale darreicht, zwischen ihnen der basislose, fast halbkugelförmige, mit Tänien geschmückte Omphalos, nach Overbeck, Kunstmythol. Atlas Taf. 21 nr. 11. S. ob. S. 92.
+[1\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table07-01.jpeg) Votivrelief im Louvre: Apollon Kitharodos, dem Nike eine Schale darreicht, zwischen ihnen der basislose, fast halbkugelförmige, mit Tänien geschmückte Omphalos, nach Overbeck, Kunstmythol. Atlas Taf. 21 nr. 11. S. ob. S. 92.
 
-2\. Relief der Dresdener Dreifußbasis: Apollon und Herakles, den Dreifuß raubend; zwischen ihnen der Omphalos, ganz ähnlich gebildet wie in Fig. 1, nach Overbeck a. а. О. Taf. 24 nr. 14. S. ob. S. 92 f.
+[2\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table07-02.jpeg) Relief der Dresdener Dreifußbasis: Apollon und Herakles, den Dreifuß raubend; zwischen ihnen der Omphalos, ganz ähnlich gebildet wie in Fig. 1, nach Overbeck a. а. О. Taf. 24 nr. 14. S. ob. S. 92 f.
 
-3\. Relief des Archelaos von Priene: Apotheose Homers. Im zweiten Streifen von unten die Grotte von Branchidai: darin der fast halbkugelförmige, basislose Omphalos von Branchidai, links von ihm Apollon Kitharodos, rechts die Priesterin, eine Trinkschale zum Munde(?) führend. S. ob. S. 48 f.
+[3\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table07-03.jpeg) Relief des Archelaos von Priene: Apotheose Homers. Im zweiten Streifen von unten die Grotte von Branchidai: darin der fast halbkugelförmige, basislose Omphalos von Branchidai, links von ihm Apollon Kitharodos, rechts die Priesterin, eine Trinkschale zum Munde(?) führend. S. ob. S. 48 f.
 
-4\. Votivrelief des 5. Jahrh. aus Sparta, darstellend Apollon Kitharodos, dem Artemis einen Trunk kredenzt, zwischen ihnen der delphische Omphalos auf viereckiger Basis, annähernd halbkugelförmig, flankiert von zwei Аdlern, die die Köpfe nach rückwärts wenden. Nach Wolters in den Athen. Mitteilungen 1887 (12) Taf. 12. S. ob. S. 84 u. vgl. Taf. 8 Fig. 2.
+[4\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table07-04.jpeg) Votivrelief des 5. Jahrh. aus Sparta, darstellend Apollon Kitharodos, dem Artemis einen Trunk kredenzt, zwischen ihnen der delphische Omphalos auf viereckiger Basis, annähernd halbkugelförmig, flankiert von zwei Аdlern, die die Köpfe nach rückwärts wenden. Nach Wolters in den Athen. Mitteilungen 1887 (12) Taf. 12. S. ob. S. 84 u. vgl. Taf. 8 Fig. 2.
 
-5\. Votivrelief aus dem Pythion von Ikaria (Attika), nach Americ. Journal of Archaeol. 5 (1889) Taf. 11 nr. 3. S. ob. S. 89 f.
+[5\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table07-05.jpeg) Votivrelief aus dem Pythion von Ikaria (Attika), nach Americ. Journal of Archaeol. 5 (1889) Taf. 11 nr. 3. S. ob. S. 89 f.
 
 ## Erläuterungen zu Tafel 8.
 
 (Reliefs mit Eschara und delphischem Omphalos).
 
-1\. Theseus mit Eschara vor ihm, adoriert von Sosippos, Sohn des Nauarchides, Votivrelief aus Athen, nach Roschers Lex. d. Mythol. 1 Sp. 2499. S. ob. S. 117.
+[1\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table08-01.jpeg) Theseus mit Eschara vor ihm, adoriert von Sosippos, Sohn des Nauarchides, Votivrelief aus Athen, nach Roschers Lex. d. Mythol. 1 Sp. 2499. S. ob. S. 117.
 
-2\. Linke Hälfte eines schönen figurenreichen Votivreliefs aus Phaleron, nach [GREEK]. 1909 Taf. 8: s. ob. S. 86 f. Hier ist der Omphalos ganz ähnlich gebildet wie in Taf. 7 Fig. 4.
+[2\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table08-02.jpeg) Linke Hälfte eines schönen figurenreichen Votivreliefs aus Phaleron, nach [GREEK]. 1909 Taf. 8: s. ob. S. 86 f. Hier ist der Omphalos ganz ähnlich gebildet wie in Taf. 7 Fig. 4.
 
-3\. Votivrelief aus Aigina: oben auf dem netzbedeckten, fast halbkugelförmigen Omphalos sitzen die zwei Adler, die Köpfe voneinander abwendend, nach Svoronos in der [GREEK]. 1912 [GREEK]. 22. S. ob. S. 126 u. vgl. ob. Taf. 1 Fig. 9 (Münze von Megara).
+[3\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table08-03.jpeg) Votivrelief aus Aigina: oben auf dem netzbedeckten, fast halbkugelförmigen Omphalos sitzen die zwei Adler, die Köpfe voneinander abwendend, nach Svoronos in der [GREEK]. 1912 [GREEK]. 22. S. ob. S. 126 u. vgl. ob. Taf. 1 Fig. 9 (Münze von Megara).
 
 ## Erläuterungen zu Tafel 9.
 
 (Verschiedenes).
 
-1\. Apollon als Pythonbesieger, den Siegespaian anstimmend. Vor ihm der halbkugelförmige, basislose Omphalos, vom toten Python umwunden. Wandgemälde aus Pompeji, nach Photographie P. Herrmanns. S. ob. S. 93 u. 94 Anm. 169.
+[1\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table09-01.jpeg) Apollon als Pythonbesieger, den Siegespaian anstimmend. Vor ihm der halbkugelförmige, basislose Omphalos, vom toten Python umwunden. Wandgemälde aus Pompeji, nach Photographie P. Herrmanns. S. ob. S. 93 u. 94 Anm. 169.
 
-2\. Asklepiosstatue in Neapel, von der römischen Tiberinsel stammend. Neben Asklepios ein fast halbkugelförmiger netzbedeckter, basisloser Omphalos. Nach Roschers Lex. d. Mythol. 1 Sp. 634. S. ob. S. 111.
+[2\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table09-02.jpeg) Asklepiosstatue in Neapel, von der römischen Tiberinsel stammend. Neben Asklepios ein fast halbkugelförmiger netzbedeckter, basisloser Omphalos. Nach Roschers Lex. d. Mythol. 1 Sp. 634. S. ob. S. 111.
 
-3\. Der Omphalos von Jerusalem. Er befindet sich in der griechischen Kathedrale und zwar in "einer Art Becher, mit einer umflochtenen gedrückten Kugel, der nach sehr alter Fabel die Mitte der Welt bezeichnete" (Baedeker, Palästina 7, 39). Vgl. A. Jeremias, Handbuch d. altoriental. Geisteskultur S. 34 Anm. 4. Nach einer mir von Jeremias gütigst überlassenen Photographie gezeichnet von Аlice Roscher. S. ob. S. 26 u. 130.
+[3\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table09-03.jpeg) Der Omphalos von Jerusalem. Er befindet sich in der griechischen Kathedrale und zwar in "einer Art Becher, mit einer umflochtenen gedrückten Kugel, der nach sehr alter Fabel die Mitte der Welt bezeichnete" (Baedeker, Palästina 7, 39). Vgl. A. Jeremias, Handbuch d. altoriental. Geisteskultur S. 34 Anm. 4. Nach einer mir von Jeremias gütigst überlassenen Photographie gezeichnet von Аlice Roscher. S. ob. S. 26 u. 130.
 
-4\. Mittelalterlicher Orbis terrarum mit dem Zentrum Jerusalem. Nach A. Jeremias, D. A. Testament im Lichte d. alt. Or. 2 S. 584. S. ob. S. 26 Anm. 48.
+[4\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table09-04.jpeg) Mittelalterlicher Orbis terrarum mit dem Zentrum Jerusalem. Nach A. Jeremias, D. A. Testament im Lichte d. alt. Or. 2 S. 584. S. ob. S. 26 Anm. 48.
 
-5\. Votivrelief aus Athen nach Svoronos im Journ. Internat. d'archéol. num. 13 (1911) S. 302: Apollon Pythios, Leto und Artemis; zwischen ihnen der fast halbkugelförmige, auf einer Basis stehende, von zwei Adlern (die zurückblicken) flankierte Omphalos von Delphi. S. ob. S. 84 f.
+[5\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table09-05.jpeg) Votivrelief aus Athen nach Svoronos im Journ. Internat. d'archéol. num. 13 (1911) S. 302: Apollon Pythios, Leto und Artemis; zwischen ihnen der fast halbkugelförmige, auf einer Basis stehende, von zwei Adlern (die zurückblicken) flankierte Omphalos von Delphi. S. ob. S. 84 f.
 
-6\. Bienenkorbförmiger, netzbedeckter, von einer lebendigen Schlange umringelter Omphalos (= Terminus) Rechts und Links von ihm je ein Lar Compitalis. Wandgemälde in Pompeji nach Herculanum u. Pompeji... von H. Roux ainé u. L. Barré, deutsch von Kaiser, Hamburg 1841 2 Taf. 57. S. ob. S. 114.
+[6\.](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalos/table09-06.jpeg) Bienenkorbförmiger, netzbedeckter, von einer lebendigen Schlange umringelter Omphalos (= Terminus) Rechts und Links von ihm je ein Lar Compitalis. Wandgemälde in Pompeji nach Herculanum u. Pompeji... von H. Roux ainé u. L. Barré, deutsch von Kaiser, Hamburg 1841 2 Taf. 57. S. ob. S. 114.
