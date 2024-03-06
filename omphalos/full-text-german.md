@@ -529,7 +529,7 @@ Schol. ἦλθε δὲ... τὸ φρικτὸν τοῦτο μάντευμα τ�
 d\. Nem. 7, 33 (49) ff.:
 
 ...τοὶ παρὰ* μέγαν ὀμφαλὸν εὐρυκόλπου  
-μόλον χθονός (d. i. Neoptolemos und seine Gefährten)...*
+μόλον χθονός (d. i. Neoptolemos und seine Gefährten)...
 
 *) Es fragt sich, ob nicht hier unter dem μέγας ὀ. χθονός eigentlich der Parnass zu verstehen ist, der, wie wir später sehen werden, bisweilen als der gewaltige, weithin sichtbare Mittelpunkt Griechenlands und der Erde aufgefasst wird.
 
