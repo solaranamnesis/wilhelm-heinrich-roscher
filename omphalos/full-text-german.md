@@ -92,7 +92,7 @@ Von besonderer Wichtigkeit für unsere Zwecke ist in dieser Beziehung Odyssee 1,
 
 *) Dieselbe Vorstellung von einem 'Nabel des Meeres' findet sich noch in neugriechischen Märchen. Vgl. Politis, Μελέται π. τοῦ βίον... τοῦ Ἑλληνικοῦ λαοῦ. Παραδόσεις α΄ p. 310 (Anfang eines Märchens aus Bizye). ᾽Σ τὸν ἀφαλὸ [= ὀμφαλὸν] τῆς θάλασσας, ἐκεῖ ποῦ τὸ νερὸ γυρίζει γύρω γύρω καὶ γίνεται μιὰ τρῦπα μέσ᾽ ᾿ς τὴ μέση εὑρίσκεται καὶ ἡ Φώκια, ἡ μάννα τ᾿ Ἀλεξάνδρου κ. τ. λ. Mehr bei Politis in der Λαογραφία γ΄ (1912) S. 700. Ferner mache ich schon hier darauf aufmerksam, dass sich der Gedanke eines 'Nabels der Erde' auch noch bei vielen anderen Völkern findet, z. B. den Peruanern, den Bewohnern von Celebes, den Arabern, Persern, den Phöniziern auf Kypros usw. (s. unten Kap. 2). Ich verdanke die meisten Nachweisungen der Güte I. Goldzihers.
 
-Diese hier in einem altionischen Gedicht zum erstenmale deutlich ausgesprochene Idee eines 'Nabels des Meeres' im kosmologischen Sinne* ist umso beachtenswerter, als sie mit einer gewissen Notwendigkeit auch den Begriff eines 'Nabels der Erde' (ὀμφαλὸς γῆς) vorauszusetzen scheint, obwohl von einem solchen weder bei Homer noch bei Hesiod jemals die Rede ist, vor allem nicht an den zahlreichen Stellen, wo Pytho (= Delphi) als apollinische Kult- und Orakelstätte erwähnt wird.* Sonach bilden das älteste wirkliche Zeugnis für die Idee eines 'Nabels der Erde und des Meeres' bis jetzt die später in weiterem Zusammenhang zu besprechenden Verse des Epimenides (b. Plut. Mor. p. 409 E = Epic. gr. fr. ed. Kinkel 1 p. 234, fr. б):
+Diese hier in einem altionischen Gedicht zum erstenmale deutlich ausgesprochene Idee eines 'Nabels des Meeres' im kosmologischen Sinne* ist umso beachtenswerter, als sie mit einer gewissen Notwendigkeit auch den Begriff eines 'Nabels der Erde' (ὀμφαλὸς γῆς) vorauszusetzen scheint, obwohl von einem solchen weder bei Homer noch bei Hesiod jemals die Rede ist, vor allem nicht an den zahlreichen Stellen, wo Pytho (= Delphi) als apollinische Kult- und Orakelstätte erwähnt wird.* Sonach bilden das älteste wirkliche Zeugnis für die Idee eines 'Nabels der Erde und des Meeres' bis jetzt die später in weiterem Zusammenhang zu besprechenden Verse des Epimenides (b. Plut. Mor. p. 409 E = Epic. gr. fr. ed. Kinkel 1 p. 234, fr. 6):
 
 Οὔτε γὰρ ἦν γαίης μέσος ὀμφαλός, οὐδὲ θαλάσσης·  
 εἰ δέ τίς ἐστι, θεοῖς δῆλος, θνητοῖσι δ᾽ ἄφαντος.
@@ -1499,7 +1499,7 @@ Neugriechische, aus ältester Zeit stammende abergläubische Riten beim Abschnei
 
 16\. Tetradrachme des Antiochos 3. von Syrien, nach Overbeck a. a. O. Münztaf. 3 nr. 42 (s. das. S. 308): Apollon sitzt, nur den Unterkörper mit dem Himation umhüllend, auf dem netzbedeckten, basislosen, bienenkorbförmigen Omphalos (vgl. nr. 13 u. ob. S. 30 Anm. 58).
 
-17\. Erzmünze des Gordianus 3 von Patara in Lykien, nach Overbeck a. a. O. Münztaf. 5 nr. б (s. das. S. 304 u. S. 310 oben): Apollon mit langem Chiton bekleidet, stehend und in der R. einen Lorbeerzweig haltend; vor ihm ein kleiner, bienenkorbförmiger, basisloser Omphalos, auf dem ein ziemlich großer, eben seine Flügel entfaltender Adler (oder Rabe? Overbeck) sitzt. S. ob. S. 107 f.
+17\. Erzmünze des Gordianus 3 von Patara in Lykien, nach Overbeck a. a. O. Münztaf. 5 nr. 6 (s. das. S. 304 u. S. 310 oben): Apollon mit langem Chiton bekleidet, stehend und in der R. einen Lorbeerzweig haltend; vor ihm ein kleiner, bienenkorbförmiger, basisloser Omphalos, auf dem ein ziemlich großer, eben seine Flügel entfaltender Adler (oder Rabe? Overbeck) sitzt. S. ob. S. 107 f.
 
 18\. Münze des Elagabal von Emisa, nach Baumeister, Denkmäler S. 603 nr. 649: Der bienenkorbförmige, omphalosartige Steinfetisch von Emisa in einem sechssäuligen Tempel stehend, im Giebelfeld des Tempels ein Halbmond. S. ob. S. 124.
 
@@ -1521,7 +1521,7 @@ Neugriechische, aus ältester Zeit stammende abergläubische Riten beim Abschnei
 
 27\. Münze von Apollonia Illyr., nach Overbeck a. a. O. Fig. 5. Desgl.
 
-28\. Vierteldrachme derselben Stadt, nach Overbeck a. a. O. Fig. б a b.
+28\. Vierteldrachme derselben Stadt, nach Overbeck a. a. O. Fig. 6 a b.
 
 29\. Desgl. nach Overbeck a. a. O. Fig. 7.
 
