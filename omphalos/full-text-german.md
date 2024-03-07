@@ -881,7 +881,12 @@ Dass hier unter den παλαιοί nicht die von Delphi völlig unabhängigen, j
 
 19\. Nicht unwichtig ist auch das nunmehr hier anzuführende Zeugnis des Claudianus im Prolog des Hymnus auf das Konsulat des Fl. Mallius Theodorus (16, 11 ff.):
 
-Jupiter, ut perhibent, spatium quum discere vellet  Naturae, regni nescius ipse sui,  Armigeros utrimque duos aequalibus alis  Misit ab eois occiduisque plagis.  Parnassus geminos fertur iunxisse volatus;  Contulit alternas Pythius axis aves.
+Jupiter, ut perhibent, spatium quum discere vellet  
+Naturae, regni nescius ipse sui,  
+Armigeros utrimque duos aequalibus alis  
+Misit ab eois occiduisque plagis.  
+Parnassus geminos fertur iunxisse volatus;  
+Contulit alternas Pythius axis aves.
 
 Also auch Claudian kannte Quellen, nach denen der Parnass der eigentliche Nabel der Erde war. Der Ausdruck axis (= ἄξων, πόλος) erklärt sich dagegen aus der späteren Vorstellung, dass die Erde keine Scheibe, sondern eine Kugel sei, so dass das ursprüngliche Kreiszentrum sich mit Notwendigkeit in eine Achse verwandeln musste (s. oben S. 41 Anm. 79 ff. und die vom delphischen ἄξων zeugenden Stellen des Nonnos; siehe auch den nun folgenden Abschnitt Nr. 18).
 
