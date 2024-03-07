@@ -816,17 +816,26 @@ Wir lernen aus dieser Notiz hauptsächlich zweierlei: erstens dass der Vorstellu
 
 14\. Auch Ovid gedenkt an zwei Stellen der Metamorphosen Delphis als des Mittelpunkts des Orbis terrarum. Vgl. 10, 167:
 
-Te (Hyacinthum) mens (Orphei) aut alios genitor dilexit, et orbe  In medio positi caruerunt praeside Delphi,  Dum Deus Eurotan immunitamque frequentat  Sparten...
+Te (Hyacinthum) mens (Orphei) aut alios genitor dilexit, et orbe  
+In medio positi caruerunt praeside Delphi,  
+Dum Deus Eurotan immunitamque frequentat  
+Sparten...
 
 15, 630:
 
-Auxilium caeleste petunt (Romani) mediamque tenentes  Orbis humum Delphos adeunt, oracula Phoebi.
+Auxilium caeleste petunt (Romani) mediamque tenentes  
+Orbis humum Delphos adeunt, oracula Phoebi.
 
 15\. Lucan. Phars. 5, 71 ff.
 
-Hesperio tantum quantum submotus Eoo  Cardine Parnasus gemino petit aethera colle  Mons Phoebo Bromioque sacer...
+Hesperio tantum quantum submotus Eoo  
+Cardine Parnasus gemino petit aethera colle  
+Mons Phoebo Bromioque sacer...
 
-Hoc solum fluctu terras mergente cacumen  Emicuit pontoque fuit discrimen et astris.  Tu quoque vix summam seductus ab aequore rupem  Extuleras unaque iugo, Parnase, latebas.
+Hoc solum fluctu terras mergente cacumen  
+Emicuit pontoque fuit discrimen et astris.  
+Tu quoque vix summam seductus ab aequore rupem  
+Extuleras unaque iugo, Parnase, latebas.
 
 Schol. Bernens. ed. Usener p. 156: Iovis scire volens quae pars terrarum media esset, alteram ab oriente aquilam, alteram ab occidente misit, ut pari volatu adversum tendentes iter ibi consisterent, ubi obviae sibi factae essent. hoc in loco occurrerunt ubi Delphicum est oraculum, eoque umbilicus terrae dictus est. In diluvio propter illud divinum specus hoc cacumen solum eminuit... Parnasus autem mundi dictus umbilicus... --- ib. p. 157, 21 ff.: Forsan scilicet illud, inquit, antrum terrae umbilicus est, quod inde aër exiens caelo conexus terras suspendit [wie eine Nabelschnur?]. huic loco congruit quod Virgilius [Aen. 6, 726 u. Georg. 4, 221 ff.] dixit: 'spiritus intus alit' et 'deum namque ire per omnes terrasque tractusque maris.'
 
@@ -839,7 +848,16 @@ Wir ersehen daraus, dass neben der Anschauung, dass Delphi oder genauer gesagt d
 
 Statius Theb. 1, 561 ff. setzt an die Stelle des Parnass die Stadt Delphi:
 
-Postquam caerulei sinuosa volumina monstri,  Terrigenam Pythona, deus septem* orbibus atris  Amplexam Delphos squamisque annosa terentem  Robora, Castaliis dum fontibus ore trisulco  Fusus hiat nigro sitiens alimenta veneno,  Perculit, absumptis numerosa in vulnera telis,  Cirrhaeique dedit centum per iugera campi  Vix tandem explicitum, nova deinde piacula caedi  Perquirens nostri tecta haut opulenta Crotopi  Attigit...
+Postquam caerulei sinuosa volumina monstri,  
+Terrigenam Pythona, deus septem* orbibus atris  
+Amplexam Delphos squamisque annosa terentem  
+Robora, Castaliis dum fontibus ore trisulco  
+Fusus hiat nigro sitiens alimenta veneno,  
+Perculit, absumptis numerosa in vulnera telis,  
+Cirrhaeique dedit centum per iugera campi  
+Vix tandem explicitum, nova deinde piacula caedi  
+Perquirens nostri tecta haut opulenta Crotopi  
+Attigit...
 
 *) Über die Vertauschung der beiden Zahlen 7 und 9 s. meine Abhandlungen 'D. Sieben- u. Neunzahl im Kultus u. Mythus d. Griechen' S. 15 A. 39; S. 56 A. 131 u. 'Enneadische Studien' S. 9 f.
 
