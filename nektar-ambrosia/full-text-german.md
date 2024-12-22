@@ -184,7 +184,7 @@ Widerlegung der Ansicht, dass der Wein das ursprüngliche Substrat des Nektars s
 
 Bereits in zwei früher erschienenen Monographien „Hermes der Windgott“ (1878) und „die Gorgonen und Verwandtes“ (1879) habe ich den Versuch gemacht größere Gruppen scheinbar wenig oder gar nicht miteinander zusammenhängender mythologischer Vorstellungen mittelst einer selbständigen Methode auf eine gemeinsame Naturbasis zurückzuführen und damit zugleich bis ins feinste Detail hineinzuerklären. Dabei ergab sich gleichzeitig ungesucht eine vielfach merkwürdige Übereinstimmung uralter griechischer Vorstellungen mit denjenigen anderer verwandter Völker, namentlich der Inder, Italiker und Germanen. So ließen sich die sämtlichen Funktionen des Hermes mit leichter Mühe und ziemlicher Evidenz auf die Vorstellungen der Alten vom Winde, die Prädikate und Funktionen der Gorgonen dagegen auf die verschiedenen der Anschauung des Gewitters entsprungenen Ideen zurückführen, welche teils aus den Etymologien der zur Bezeichnung der betreffenden Vorstellungen gebrauchten Ausdrücke, teils aus den älteren Dichtern und den Werken der antiken Naturforscher und Philosophen gewonnen wurden. Wie dies zu verstehen ist möge das Beispiel des Hermes lehren, dessen Mythus scheinbar aus lauter unvereinbaren Funktionen und Vorstellungen zusammengesetzt ist.
 
-Die Bedeutung, welche Hermes als Diener der Götter, namentlich des Zeus hatte, erklärt sich einfach aus der das ganze Altertum, namentlich aber den Homer und die übrigen Dichter beherrschenden Anschauung, dass der Wind das Werkzeug der Götter, besonders aber des Zeus sei und von diesem gesendet werde (vgl. Ζεὺς εὐάνεμος, οὔριος, _Juppiter auctor tempestatum_, Διὸς οὖρος, ἦλθ᾽ ἄνεμος Ζέφυρος μέγας, αἴθριος ἐκ Διὸς αἴσης, ἐπὶ δὲ Ζεὺς τερπικέραυνος ὦρσεν ἀπ᾽ Ἰδαίων ὀρέων ἀνέμοιο θύελλαν u. s. w.)
+Die Bedeutung, welche Hermes als Diener der Götter, namentlich des Zeus hatte, erklärt sich einfach aus der das ganze Altertum, namentlich aber den Homer und die übrigen Dichter beherrschenden Anschauung, dass der Wind das Werkzeug der Götter, besonders aber des Zeus sei und von diesem gesendet werde (vgl. Ζεὺς εὐάνεμος, οὔριος, _Juppiter auctor tempestatum_, Διὸς οὖρος, ἦλθ' ἄνεμος Ζέφυρος μέγας, αἴθριος ἐκ Διὸς αἴσης, ἐπὶ δὲ Ζεὺς τερπικέραυνος ὦρσεν ἀπ' Ἰδαίων ὀρέων ἀνέμοιο θύελλαν u. s. w.)
 
 Wie die Winde in der Regel aus dem Äther oder den Wolken oder von den Gipfeln der Berge niederfahren* und --wegen des beständig darin herrschenden Luftzuges --- in Berghöhlen (Windhöhlen)* wohnend gedacht werden (vgl. Ausdrücke wie Βορέας αἰθρηγενής, ἐκνεφίας, ἐπαΐσσειν Διὸς ἐκ νεφελάων, ἐπαιγίζειν ἐξ αἰθέρος, καταιγίζειν, κατιέναι, Ῥιπαῖα ὄρη, ἑπτάμυχον Βορέαο σπέος u. s. w.), so ist Hermes, der Sohn des Äthergottes Zeus und der Regenwolkennymphe Μαῖα (Πλειάς = lat. _pluvia_), entweder auf dem Olymp oder in der Höhle der Kyllene, d. i. des Hohlberges (vgl. Κυλλήνη mit lat. _caelum_), worunter man ursprünglich wohl den hohlen Wolkenberg verstand,* geboren.
 
@@ -202,11 +202,11 @@ Den an Schultern und Füssen beflügelten Winden (Boreaden)* vergleicht sieh der
 
 Der sehr verbreiteten Vorstellung von dem Stehlen, Rauben und Betrügen der Winde (ἀνέλοντο θύελλαι, ἄρπυιαι ἀνηρείψαντο, ἀνήρπασε θέσπις ἄελλα, _aurae fallaces_, _petulantes_, _venti protervi_, ἄνεμος ἀσελγής, ὑβριστής, ἀνέμοις παραδοῦναί τι u. s. w.)* entspricht der diebische, trügerische Charakter des Gottes, der unter Anderm auch als Entführer der Götterrinder (Wolken) auftritt.
 
-*) Nachzutragen S. 39: Sen. Q. Nat. 5, 13, 3: Hinc fere omnia pericula venti erupti de nubibus prodeunt, quibus armenta rapiantur et totae naves in sublime tollantur. ib. 2, 22, 2: Videamus, quantis procellae viribus ruant, quanto vertantur impetu turbines. id quod obvium fuit, dissipatur et rapitur et longe a loco suo proicitur. Liv. 21, 58, 7: nec quod statutum esset manebat omnia perscindente vento et rapiente, Od. θ 408: ἔπος δ᾽ εἴ πέρ τι βέβακται || δεινόν, ἄφαρ τὸ φέροιεν ἀναρπάξασαι θύελλαι u. Ameis z. d. St. Xen. Hell. 5, 4, 17. Vgl. auch Schwartz, Poet. Naturanschauungen 2, 53. Πολίτης, δημώδεις μετεωρ. μῦθοι Athen. 1880. S. 43.
+*) Nachzutragen S. 39: Sen. Q. Nat. 5, 13, 3: Hinc fere omnia pericula venti erupti de nubibus prodeunt, quibus armenta rapiantur et totae naves in sublime tollantur. ib. 2, 22, 2: Videamus, quantis procellae viribus ruant, quanto vertantur impetu turbines. id quod obvium fuit, dissipatur et rapitur et longe a loco suo proicitur. Liv. 21, 58, 7: nec quod statutum esset manebat omnia perscindente vento et rapiente, Od. θ 408: ἔπος δ' εἴ πέρ τι βέβακται || δεινόν, ἄφαρ τὸ φέροιεν ἀναρπάξασαι θύελλαι u. Ameis z. d. St. Xen. Hell. 5, 4, 17. Vgl. auch Schwartz, Poet. Naturanschauungen 2, 53. Πολίτης, δημώδεις μετεωρ. μῦθοι Athen. 1880. S. 43.
 
 Wie die Winde überall als göttliche Pfeifer und Sänger auftreten --- ich erinnere an die Mythen der Maruts, des Vaju und des Wodan und berufe mich auf Ausdrücke wie Ζεφύροιο ἰωή, ἠχή,* κεκληγῶς Ζέφυρος, ἄνεμος λιγύς, λιγυρός, βύκτης, συρίζων, σύριγμα ἀνέμων, _ventus susurrans_, _aura sibilans_ u. s. w. --- so gilt Hermes zunächst als Erfinder des αὐλός und der σῦριγξ, als der einfachsten Blasinstrumente, und sodann auch der Lyra.
 
-*) Nachzutragen S. 50: Hes. Theog. 708: ἄνεμοι... φέρον δ᾽ ἰαχήν τ᾽ ἐνοκήν τε. S. 52, Anm. 201: Sen. Q. Nat. 2, 28, 3 ventus... sibilat. Schwartz a. a. O. 59.
+*) Nachzutragen S. 50: Hes. Theog. 708: ἄνεμοι... φέρον δ' ἰαχήν τ' ἐνοκήν τε. S. 52, Anm. 201: Sen. Q. Nat. 2, 28, 3 ventus... sibilat. Schwartz a. a. O. 59.
 
 Auch die Psychopompie des Hermes lässt sich leicht auf seine ursprüngliche Bedeutung als Windgott zurückführen, wenn man bedenkt, dass die Seelen (ψυχαί, _animae_) von jeher luftartig gedacht wurden und demnach bei der Trennung vom Körper in das Reich des Windes oder der Luft, der sie entstammen, zurückkehren müssen.*
 
@@ -214,7 +214,7 @@ Auch die Psychopompie des Hermes lässt sich leicht auf seine ursprüngliche Bed
 
 Wie die Seelen scheinen aber auch die ihnen nahe verwandten Traumbilder aus der Luft zu stammen und den Schlafenden vom Winde zugeführt zu werden (vgl. Redensarten wie εἴδωλον σταθμοῖο παρὰ κληῖδα λιάσθη ἐς πνοιὰς ἀνέμων; ὄνειρος ist verwandt mit ἄνεμος): darum ist Hermes zugleich Seelenführer und Traumgott oder Schlafgott geworden.*
 
-*) Zu S. 64 f.: Ap. Rh. 4, 877: αὐτὴ (Thetis) δὲ πνοιῇ ἰκέλη δέμας ἠύτ᾽ ὄνειρος βῆ ῥ᾽ ἵμεν ἐκ μεγάρονο. Il. _B_, 71: ἀποπτάμενος ὄνειρος. Zu S. 66: In Betreff der Gleichsetzung von Seelen und Träumen ist nachzutragen Porphyr de antro n. 28: δῆμος δὲ ὀνείρων κατὰ Πυθαγόραν αἱ ψυχαί, ἃς συνάγεσθαί φησιν εἰς τὸν γαλαξίαν. Von der Verwandtschaft des Hermes mit Hypnos handelt G. Krüger in Jahrb. f. kl. Philol. 1863. S. 289 f. Vgl. auch Brunn in den Annali d. inst. 1868. S. 351 ff.
+*) Zu S. 64 f.: Ap. Rh. 4, 877: αὐτὴ (Thetis) δὲ πνοιῇ ἰκέλη δέμας ἠύτ' ὄνειρος βῆ ῥ' ἵμεν ἐκ μεγάρονο. Il. _B_, 71: ἀποπτάμενος ὄνειρος. Zu S. 66: In Betreff der Gleichsetzung von Seelen und Träumen ist nachzutragen Porphyr de antro n. 28: δῆμος δὲ ὀνείρων κατὰ Πυθαγόραν αἱ ψυχαί, ἃς συνάγεσθαί φησιν εἰς τὸν γαλαξίαν. Von der Verwandtschaft des Hermes mit Hypnos handelt G. Krüger in Jahrb. f. kl. Philol. 1863. S. 289 f. Vgl. auch Brunn in den Annali d. inst. 1868. S. 351 ff.
 
 Da ferner die Winde dem Ackerbauer und Hirten bald fruchtbare Regenwolken (ὄμπνιον νέφος Soph. fr. 233 D.) bald trockenes Wetter bringen und daher vielfach als befruchtend* und zugerisch gedacht werden (vgl. Ζεφυρίη πνείουσα τὰ μὲν φύει, ἄλλα δὲ πέσσει, _genitabilis aura_, _Favonius_, ἀὴρ πυροφόρος, ἔγχος ἀνεμοτρεφές u. s. w.) und sogar nach einem von Aristoteles und Plinius bezeugten Hirtenglauben die Befruchtung der Heerden hauptsächlich vom Winde abhängt,* so gilt Hermes als δώτωρ ἐάων und ἐριούνιος, als Verleiher des Heerdenreichtums und Hirtengott und wird oft phallisch dargestellt. Auch als Förderer der Gesundheit wurde er verehrt, weil die Winde oft die Luft von schädlichen Miasmen reinigen und dadurch Krankheiten abwehren oder mindern.*
 
@@ -246,7 +246,7 @@ Auf absolute Neuheit kann dieser Gedanke freilich keinen Anspruch machen. Schon 
 
 *) Gemeint ist die Konservierung der Leiche des Patroklos durch Thetis, welche dem Toten durch die Nase Nektar und Ambrosia einflößt.
 
-In neuerer Zeit haben sich für eine Beziehung zwischen Honig und Nektar und Ambrosia, soviel ich weiß, nur zwei Forscher, W. Menzel und Th. Bergk, ausgesprochen. Ersterer hat in seiner lesenswerten Monographie über die Biene (Mythologische Forschungen und Sammlungen Bd. 1. Stuttgart 1842) ganz kurz und ohne irgend näher auf die Sache einzugehen die Vermutung geäußert, dass die Vorstellung von Nektar und Ambrosia auf dem Substrat des Honigs beruhen dürfte. Viel ausführlicher hat dagegen Th. Bergk die Frage nach dem ursprünglichen Wesen des Nektars and der Ambrosia behandelt in einem besonderen Kapitel seines überaus anregenden und geistreichen, freilich aber auch zugleich viele schiefe und unhaltbare Behauptungen enthaltenden Aufsatzes „Über die Geburt der Athene,“ welcher im sechsten Jahrgang der von Fleckeisen herausgegebenen Jahrbücher für klassische Philologie 1860 S. 289 ff. und 377 ff. erschienen ist. Bergk geht darin S. 316 (Kap. 6) von der Ansicht aus, dass nach dem ältesten Glauben der Nektar ein Wasser sei, welches einem himmlischen Quell oder See entspringe.* Dieses himmlische Wasser, welches den Trank der Götter bilde, ohne sie jedoch unsterblich zu machen (S. 377 f.), sei bald Nektar bald Ambrosia genannt worden; wo beide Ausdrücke neben einander erschienen „ist die angemessenste Erklärung überall die, dass man annimmt, die allgemeine Bedeutung sei auch hier wie so oft mit einer spezielleren verbunden, um den Begriff vollständig zu erschöpfen, ungefähr wie man πρὸς ἠῶ τ᾽ ἠἑλιόν τε, οὐρανὸς Οὔλυμπός, und ähnliches verbunden findet“ (S. 380). Noch in der Ilias sei nur von einem Göttertranke, nirgends von einer Götternahrung die Rede, Ambrosia dagegen bezeichne entweder das Salböl oder das Futter der Götterrosse; das Verbum στάζω, was mehrfach auch mit ἀμβροσίην verbunden werde (Il. _T._ 38. 347. 354), spreche für die Identität von Nektar und Ambrosia, insofern Beides eine flüssige nicht feste Substanz bezeichne (S. 378 u. 379). Ein wirklicher Unterschied zwischen beiden Ausdrücken im Sinne von Speise und Trank trete erst Od. ε. 93 hervor. Bergk meint, dass diese Unterscheidung auf einem späteren Missverständnis des formelhaften Hendiadyoin νέκταρ τε καὶ ἀμβροσίην ἐρατεινήν (S. 380). Jene ältere Anschauung aber, die nur einen Göttertrank kenne, der mit verschiedenen Namen bald Nektar bald Ambrosia benannt worden sei, trete noch in der bei Alkman, Sappho und Anaxandrides vorkommenden Verwechselung der beiden Ausdrücke deutlich hervor (S. 381). Später habe man sich gewöhnlich den Nektar (welcher ursprünglich nach Bergk, wie schon gesagt, ein himmlisches Trinkwasser bedeutete) als eine Art Wein vorgestellt, wie aus den Verbindungen νέκταρ οἰνοχοεύειν, κεράσαι, νέκταρ ἐρυθρόν hervorgehe, diese Vorstellung sei natürlich erst nach der Einführung des Weinbaues bei den Hellenen aufgekommen, während man vor dieser Zeit, als noch der Honigmeth das beliebteste Getränk der Hellenen gewesen sei, sich auch den Nektar als eine Art Meth vorgestellt habe. Spuren der älteren Sitte hätten sich noch in den sogenannten νηφάλια und im Hymnus auf Hermes 5. 562, wo der Honig als θεῶν ἡδεῖα ἐδωδή bezeichnet werde, erhalten (S. 382 f.)
+In neuerer Zeit haben sich für eine Beziehung zwischen Honig und Nektar und Ambrosia, soviel ich weiß, nur zwei Forscher, W. Menzel und Th. Bergk, ausgesprochen. Ersterer hat in seiner lesenswerten Monographie über die Biene (Mythologische Forschungen und Sammlungen Bd. 1. Stuttgart 1842) ganz kurz und ohne irgend näher auf die Sache einzugehen die Vermutung geäußert, dass die Vorstellung von Nektar und Ambrosia auf dem Substrat des Honigs beruhen dürfte. Viel ausführlicher hat dagegen Th. Bergk die Frage nach dem ursprünglichen Wesen des Nektars and der Ambrosia behandelt in einem besonderen Kapitel seines überaus anregenden und geistreichen, freilich aber auch zugleich viele schiefe und unhaltbare Behauptungen enthaltenden Aufsatzes „Über die Geburt der Athene,“ welcher im sechsten Jahrgang der von Fleckeisen herausgegebenen Jahrbücher für klassische Philologie 1860 S. 289 ff. und 377 ff. erschienen ist. Bergk geht darin S. 316 (Kap. 6) von der Ansicht aus, dass nach dem ältesten Glauben der Nektar ein Wasser sei, welches einem himmlischen Quell oder See entspringe.* Dieses himmlische Wasser, welches den Trank der Götter bilde, ohne sie jedoch unsterblich zu machen (S. 377 f.), sei bald Nektar bald Ambrosia genannt worden; wo beide Ausdrücke neben einander erschienen „ist die angemessenste Erklärung überall die, dass man annimmt, die allgemeine Bedeutung sei auch hier wie so oft mit einer spezielleren verbunden, um den Begriff vollständig zu erschöpfen, ungefähr wie man πρὸς ἠῶ τ' ἠἑλιόν τε, οὐρανὸς Οὔλυμπός, und ähnliches verbunden findet“ (S. 380). Noch in der Ilias sei nur von einem Göttertranke, nirgends von einer Götternahrung die Rede, Ambrosia dagegen bezeichne entweder das Salböl oder das Futter der Götterrosse; das Verbum στάζω, was mehrfach auch mit ἀμβροσίην verbunden werde (Il. _T._ 38. 347. 354), spreche für die Identität von Nektar und Ambrosia, insofern Beides eine flüssige nicht feste Substanz bezeichne (S. 378 u. 379). Ein wirklicher Unterschied zwischen beiden Ausdrücken im Sinne von Speise und Trank trete erst Od. ε. 93 hervor. Bergk meint, dass diese Unterscheidung auf einem späteren Missverständnis des formelhaften Hendiadyoin νέκταρ τε καὶ ἀμβροσίην ἐρατεινήν (S. 380). Jene ältere Anschauung aber, die nur einen Göttertrank kenne, der mit verschiedenen Namen bald Nektar bald Ambrosia benannt worden sei, trete noch in der bei Alkman, Sappho und Anaxandrides vorkommenden Verwechselung der beiden Ausdrücke deutlich hervor (S. 381). Später habe man sich gewöhnlich den Nektar (welcher ursprünglich nach Bergk, wie schon gesagt, ein himmlisches Trinkwasser bedeutete) als eine Art Wein vorgestellt, wie aus den Verbindungen νέκταρ οἰνοχοεύειν, κεράσαι, νέκταρ ἐρυθρόν hervorgehe, diese Vorstellung sei natürlich erst nach der Einführung des Weinbaues bei den Hellenen aufgekommen, während man vor dieser Zeit, als noch der Honigmeth das beliebteste Getränk der Hellenen gewesen sei, sich auch den Nektar als eine Art Meth vorgestellt habe. Spuren der älteren Sitte hätten sich noch in den sogenannten νηφάλια und im Hymnus auf Hermes 5. 562, wo der Honig als θεῶν ἡδεῖα ἐδωδή bezeichnet werde, erhalten (S. 382 f.)
 
 *) Vgl. S. 388: „Ursprünglich ist Nektar oder Ambrosia, den der heilige Quell Trito spendet, nichts anderes als das reine himmlische Wasser.“
 
@@ -293,17 +293,17 @@ Es ist eine merkwürdige, noch nicht gehörig beachtete Tatsache, dass die Griec
 
 und ib. 143:
 
-ῥεῖ δὲ γάλακτι πέδον, ῥεῖ δ᾽ οἴνῳ, ῥεῖ δὲ μελισσᾶν νέκταρι
+ῥεῖ δὲ γάλακτι πέδον, ῥεῖ δ' οἴνῳ, ῥεῖ δὲ μελισσᾶν νέκταρι
 
 ausgesprochene Vorstellung aus der Beobachtung des Honigtaus hervorgegangen, wie schon Aelian h. an. 5. 42 (s. Anm. 29) richtig vermutet hat.*
 
-*) Die beiden einzigen Stellen, soviel ich weiß, an welchen angedeutet ist, dass im Altertum hier und da der Honig auch als ein Erzeugnis der Blumen oder der Bienen galt, finden sich bei Theophr. fr. 190: αἱ τοῦ μέλιτος γενέσεις τριτταί, ἢ ἀπὸ τῶν ἀνθῶν καὶ ἐν οἷς ἄλλοις ἐστὶν ἡ γλυκύτης, ἄλλη δ᾽ ἐκ τοῦ ἀέρος, ὅταν ἀναχυθὲν ὑγρὸν ὑπὸ τοῦ ἡλίου συνεφηθὲν πέσῃ. Γίνεται δὲ τοῦτο μάλιστα ὑπὸ πυραμητόν. ἄλλη δ᾽ ἐν τοῖς καλάμοις und Sen. ep. 84: Quibusdam placet non faciendi mellis scientiam apibus esse sed colligendi. Vgl. auch Probus z. Verg. Georg. 4. 1: quidam dicunt mel in aëre nasci, quidam apes colligere.
+*) Die beiden einzigen Stellen, soviel ich weiß, an welchen angedeutet ist, dass im Altertum hier und da der Honig auch als ein Erzeugnis der Blumen oder der Bienen galt, finden sich bei Theophr. fr. 190: αἱ τοῦ μέλιτος γενέσεις τριτταί, ἢ ἀπὸ τῶν ἀνθῶν καὶ ἐν οἷς ἄλλοις ἐστὶν ἡ γλυκύτης, ἄλλη δ' ἐκ τοῦ ἀέρος, ὅταν ἀναχυθὲν ὑγρὸν ὑπὸ τοῦ ἡλίου συνεφηθὲν πέσῃ. Γίνεται δὲ τοῦτο μάλιστα ὑπὸ πυραμητόν. ἄλλη δ' ἐν τοῖς καλάμοις und Sen. ep. 84: Quibusdam placet non faciendi mellis scientiam apibus esse sed colligendi. Vgl. auch Probus z. Verg. Georg. 4. 1: quidam dicunt mel in aëre nasci, quidam apes colligere.
 
-*) Interessant ist es, dass schon die Alten genau dieselbe Beobachtung gemacht haben: Galen. π. τροφ. δυνάμ. λθ᾽ (ed. Kuehn 6, 739): οἷδα δέ ποτε θέρους ὥρᾳ πλεῖστον ὅσον ἐπὶ τοῖς τῶν δένδρων καὶ θάμνων καί τινων βοτανῶν φύλλοις εὐρεθὲν, ὡς ὑπὸ τῶν γεωργῶν λέγεσθαι παιζόντων, ὀ Ζεὺς ἔβρεξε μέλι. προηγεῖτο δὲ νὺξ μὲν εὐφυχὴς, ὡς ἐν θέρει... θερμὴ δὲ καὶ ξηρὰ κρᾶσις ἀέρος ἐπὶ τῆς προτεραίας. Aristot. h. an. 5, 22, 4 (ed. Didot 3, 97, 7 ff.): μέλι δὲ τὸ πῖπτον ἐκ τοῦ ἀέρος, καὶ μάλιστα ἐν ταῖς τῶν ἄστρων ἐπιτολαῖς, καὶ ὅταν κατασκήψῃ ἡ ἶρις. ὅλως δ᾽ οὐ γίνεται μέλι πρὸ Πλειάδος ἐπιτολῆς. Plin. n. h. 11, 30: Venit hoc ex aëre et maxime siderum exortu, praecipue ipso Sirio exsplendescente fit, nec omnino prius Vergiliarum exortu, sublucanis temporibus. Itaque tum prima aurora folia arborum melle roscida inveniuntar etc.
+*) Interessant ist es, dass schon die Alten genau dieselbe Beobachtung gemacht haben: Galen. π. τροφ. δυνάμ. λθ' (ed. Kuehn 6, 739): οἷδα δέ ποτε θέρους ὥρᾳ πλεῖστον ὅσον ἐπὶ τοῖς τῶν δένδρων καὶ θάμνων καί τινων βοτανῶν φύλλοις εὐρεθὲν, ὡς ὑπὸ τῶν γεωργῶν λέγεσθαι παιζόντων, ὀ Ζεὺς ἔβρεξε μέλι. προηγεῖτο δὲ νὺξ μὲν εὐφυχὴς, ὡς ἐν θέρει... θερμὴ δὲ καὶ ξηρὰ κρᾶσις ἀέρος ἐπὶ τῆς προτεραίας. Aristot. h. an. 5, 22, 4 (ed. Didot 3, 97, 7 ff.): μέλι δὲ τὸ πῖπτον ἐκ τοῦ ἀέρος, καὶ μάλιστα ἐν ταῖς τῶν ἄστρων ἐπιτολαῖς, καὶ ὅταν κατασκήψῃ ἡ ἶρις. ὅλως δ' οὐ γίνεται μέλι πρὸ Πλειάδος ἐπιτολῆς. Plin. n. h. 11, 30: Venit hoc ex aëre et maxime siderum exortu, praecipue ipso Sirio exsplendescente fit, nec omnino prius Vergiliarum exortu, sublucanis temporibus. Itaque tum prima aurora folia arborum melle roscida inveniuntar etc.
 
-*) Athen. p. 200 _c_: Ἀμύντας... περὶ τοῦ ἀερομέλιτος καλουμένου... γράφει οὕτως. „Σὺν τοῖς φύλλοις δρέποντες συντιθέασιν εἰς παλάθης Συριακῆς τρόπον πλάττοντες, οἱ δὲ σφαίρας ποιοῦντες. καὶ ἐπειδὰν μέλλωσι προσφέρεσθαι, ἀποκλάσαντες ἀπ᾽ αὐτῶν ἐν τοῖς ξυλίνοις ποτηρίοις, οὓς καλοῦσι ταβαίτας, προβρέχουσι καὶ διηθήσαντες πίνουσι. καὶ ἔστιν ὅμοιον ὡς ἂν τις μέλι πίνοι διείς τοῦτο δὲ καὶ πολὺ ἥδιον.“ Galen. π. τροφ. δυνάμ. λθ΄ (ed. Kühn 6, 739): ὀνομάξουσι δ᾽ αὐτὸ δροσόμελί τε, καὶ ἀερόμελι. Diod. 19, 94: φύεται... παρ᾽ αὐτοῖς (den Nabatäern) καὶ ἀπὸ τῶν δένδρων μέλι πολὺ τὸ καλούμενον ἄγριον (ἀέριον?), ᾧ χρῶνται ποτῷ μεθ᾽ ὕδατος. Nach Polyaen 4, 3, 32 gehörten zum täglichen Bedarf des persischen Hofes ὕοντος μέλιτος ἑκατόν παλάθαι τετράγωνοι ἀνὰ δέκα μνᾶς ἕλκουσαι. Suidas s. v. ἀκρίς... μέλι ἄγριον, ὅπερ ἀπὸ τῶν δένδρων ἐπισυναγόμενον μάννα τοῖς πολλοῖς προσαγορεύεται. Vgl. auch Ev. Matth. 3, 4: ἡ δὲ τροφὴ ἦν αὐτοῦ καὶ ἀκρίδες καὶ μέλι ἄγριον (Vulg. mel silvestre). Bocharti Hierozoicon ed. Rosenmüller 3, 375 ff.
+*) Athen. p. 200 _c_: Ἀμύντας... περὶ τοῦ ἀερομέλιτος καλουμένου... γράφει οὕτως. „Σὺν τοῖς φύλλοις δρέποντες συντιθέασιν εἰς παλάθης Συριακῆς τρόπον πλάττοντες, οἱ δὲ σφαίρας ποιοῦντες. καὶ ἐπειδὰν μέλλωσι προσφέρεσθαι, ἀποκλάσαντες ἀπ' αὐτῶν ἐν τοῖς ξυλίνοις ποτηρίοις, οὓς καλοῦσι ταβαίτας, προβρέχουσι καὶ διηθήσαντες πίνουσι. καὶ ἔστιν ὅμοιον ὡς ἂν τις μέλι πίνοι διείς τοῦτο δὲ καὶ πολὺ ἥδιον.“ Galen. π. τροφ. δυνάμ. λθ΄ (ed. Kühn 6, 739): ὀνομάξουσι δ' αὐτὸ δροσόμελί τε, καὶ ἀερόμελι. Diod. 19, 94: φύεται... παρ' αὐτοῖς (den Nabatäern) καὶ ἀπὸ τῶν δένδρων μέλι πολὺ τὸ καλούμενον ἄγριον (ἀέριον?), ᾧ χρῶνται ποτῷ μεθ' ὕδατος. Nach Polyaen 4, 3, 32 gehörten zum täglichen Bedarf des persischen Hofes ὕοντος μέλιτος ἑκατόν παλάθαι τετράγωνοι ἀνὰ δέκα μνᾶς ἕλκουσαι. Suidas s. v. ἀκρίς... μέλι ἄγριον, ὅπερ ἀπὸ τῶν δένδρων ἐπισυναγόμενον μάννα τοῖς πολλοῖς προσαγορεύεται. Vgl. auch Ev. Matth. 3, 4: ἡ δὲ τροφὴ ἦν αὐτοῦ καὶ ἀκρίδες καὶ μέλι ἄγριον (Vulg. mel silvestre). Bocharti Hierozoicon ed. Rosenmüller 3, 375 ff.
 
-*) Galen. a. a. O. (6, 739 ed. K.): γίνεται μὲν γὰρ [τὸ μέλι] ἐπὶ τοῖς φύλλοις τῶν φυτῶν, ἔστι δὲ οὔτε χυλὸς αὐτῶν, οὔτε καρπὸς, οὔτε μόριον, ἀλλ᾽ ὁμογενὲς μὲν ταῖς δρόσοις, οὐ μὴν οὔτε συνεχῶς οὔθ᾽ ὁμοίως ἐκείναις γίνεται δαψιλές. Plin. 16. 31: constatque rores melleos e caelo, ut diximus, non aliis magis insidere frondibus (als dem der Eiche). Ael. π. ζώων 15, 7: Ὕεται ἡ Ἰνδῶν γῆ διὰ τοῦ ἦρος μέλιτι ὑγρῷ,... ὅπερ οὗν ἐμπῖπτον ταῖς πόαις καὶ ταῖς τῶν ἑλείων καλάμων κόμαις, νομὰς τοῖς βουσὶ καὶ τοῖς προβάτοις παρέχει θαυμαστὰς... (μάλιστα γὰρ ἐνταῦθα οἱ νομεὶς ἄγουσιν αὐτά, ἔνθα καὶ μᾶλλον ἡ δρόσος ἡ γλυκεῖα κάθηται πεσοῦσα κ. τ. λ. Plin. 11, 30: Venit hoc ex aëre... tum prima aurora folia arborum melle roscida inveniuntur. Sen. ep. 84, 4: aiunt inveniri apud Indos mel in arundinum foliis, quod aut ros illius coeli aut ipsius arundinis humor... gignit. Etwas phantastisch schildert Nonnos Dion. 26, 183 die Honigbäume in Arizantia: Ἀρειζάντειαν... || ξείνου δουρατέου μέλιτος τροφόν, ᾑχι πιόντα || ἠερίης ζείδωρον ἑώιον ἀρδμὸν ἐέρσης || δένδρεα χαιτήεντα μελίρρυτον, ὡς ἀπὸ σίμβλων, || δαιδαλέην ὠδῖνα σοφῆς τίκτουσι μελίσσης, || αὐτοτόκων πετάλων χλοερὸν ποτόν · εἰς πεδίον γὰρ || ἀρτιφανὴς Φαέθων, ὅτε λούεται Ὠκεανοῖο || ὄμπνιον ἠῴης ἀποσείεται ἰκμάδα χαίτης. Vgl. auch Grimm, Deutsches Wörterb. unter Honigtau.
+*) Galen. a. a. O. (6, 739 ed. K.): γίνεται μὲν γὰρ [τὸ μέλι] ἐπὶ τοῖς φύλλοις τῶν φυτῶν, ἔστι δὲ οὔτε χυλὸς αὐτῶν, οὔτε καρπὸς, οὔτε μόριον, ἀλλ' ὁμογενὲς μὲν ταῖς δρόσοις, οὐ μὴν οὔτε συνεχῶς οὔθ' ὁμοίως ἐκείναις γίνεται δαψιλές. Plin. 16. 31: constatque rores melleos e caelo, ut diximus, non aliis magis insidere frondibus (als dem der Eiche). Ael. π. ζώων 15, 7: Ὕεται ἡ Ἰνδῶν γῆ διὰ τοῦ ἦρος μέλιτι ὑγρῷ,... ὅπερ οὗν ἐμπῖπτον ταῖς πόαις καὶ ταῖς τῶν ἑλείων καλάμων κόμαις, νομὰς τοῖς βουσὶ καὶ τοῖς προβάτοις παρέχει θαυμαστὰς... (μάλιστα γὰρ ἐνταῦθα οἱ νομεὶς ἄγουσιν αὐτά, ἔνθα καὶ μᾶλλον ἡ δρόσος ἡ γλυκεῖα κάθηται πεσοῦσα κ. τ. λ. Plin. 11, 30: Venit hoc ex aëre... tum prima aurora folia arborum melle roscida inveniuntur. Sen. ep. 84, 4: aiunt inveniri apud Indos mel in arundinum foliis, quod aut ros illius coeli aut ipsius arundinis humor... gignit. Etwas phantastisch schildert Nonnos Dion. 26, 183 die Honigbäume in Arizantia: Ἀρειζάντειαν... || ξείνου δουρατέου μέλιτος τροφόν, ᾑχι πιόντα || ἠερίης ζείδωρον ἑώιον ἀρδμὸν ἐέρσης || δένδρεα χαιτήεντα μελίρρυτον, ὡς ἀπὸ σίμβλων, || δαιδαλέην ὠδῖνα σοφῆς τίκτουσι μελίσσης, || αὐτοτόκων πετάλων χλοερὸν ποτόν · εἰς πεδίον γὰρ || ἀρτιφανὴς Φαέθων, ὅτε λούεται Ὠκεανοῖο || ὄμπνιον ἠῴης ἀποσείεται ἰκμάδα χαίτης. Vgl. auch Grimm, Deutsches Wörterb. unter Honigtau.
 
 *) Vgl. Plin. 16, 31 (oben Anm. 23). Theophrast fr. 190 ed. W. ἄλλη δὲ [γένεσις τοῦ μέλιτος] ἐκ τοῦ ἀέρος... εὑρίσκεται δὲ μάλιστα ἐπὶ τοῖς φύλλοις τῆς δρυὸς καὶ τῆς φιλύρας. Id. h. plant. 3, 7, 6: μελιτώδης οὗτος χυλὸς ἐπὶ δρυῒ μάλιστα προσίζει. Diod. 17, 75: Ἔστι καὶ δένδρον παρὰ τοῖς ἐγχωρίοις (τ. Ὑρκανίοις] παραπλήσιον δρυῒ κατὰ τὴν ἐπιφάνειαν, ἀπὸ δὲ τῶν φύλλων ἀπολεῖβον μέλι καὶ τοῦτό τινες συνάγοντες δαψιλῆ τὴν ἀπόλαυσιν αὐτοῦ ποιοῦνται. Curt. Ruf. 6, 4, 22: [In Hyrcania] frequens arbor faciem quercus habet, cuius folia multo melle tinguntur: sed nisi solis ortum incolae occupaverint, vel modico tepore sucus extinguitur. (Vgl. Exod. 16, 21). Philostr. Her. 750 (2, p. 217 ed. K.): τρέφουσι δὲ (d. Amazonen) τά βρέφη γάλακτί τε τῶν φορβάδων ἵππων καὶ δρόσου κηρίοις, ἣ μέλιτος δίκην ἐπὶ τοὺς δόνακας τῶν ποταμῶν ἰζάνει. Arr. Peripl. mar. Eryth. p. 9 ed. Huds. μέλι τὸ καλάμινον τὸ λεγόμενον σάκχαρι. Seneca ep. 84, 4: aiunt inveniri apud Indos mel in arundinum foliis, quod aut ros illius caeli aut ipsius arundinis humor dulcis et pinguior gignit. Ael. h. an. 15, 7: [τὸ μέλι]... ἐμπῖπτον ταῖς πόαις καὶ ταῖς τῶν ἑλείων καλάμων κόμαις.
 
@@ -315,9 +315,9 @@ ausgesprochene Vorstellung aus der Beobachtung des Honigtaus hervorgegangen, wie
 
 *) Wenn es Exod. 16, 21 heißt, dass die Morgensonne die Manna zerschmolzen hätte, so erinnert dies an die Erzählung des Curt. Ruf. 6, 4, 22, wo es von dem hyrkanischen Eichenhonig heißt: sed nisi solis ortum incolae occupaverint vel modico tepore sucus extinguitur.
 
-*) Aristot. de mir. ausc. 19 (4, 78 ed. Didot): Φασὶ δὲ καὶ ἐν Λυδίᾳ(?) ἀπὸ τῶν δένδρων τὸ μέλι συλλέγεσθαι πολὺ καὶ ποιεῖν ἐξ αὐτοῦ τοὺς ἐνοικοῦντας ἄνευ κηροῦ τροχίσκους... Γίνεται μὲν οὖν καὶ ἐν Θρᾴκῃ, οὐχ οὕτω δὲ στερεόν, ἀλλ᾽ ὡσανεὶ ἀμμῶδες. Ael. h. an. 5, 42: ἐν Μηδίᾳ δὲ ἀποστάζειν τῶν δένδρων ἀκούω μέλι ὡς Εὐριπίδης ἐν τῷ Κιθαιρῶνί φησιν ἐκ τῶν κλάδων γλυκείας σταγόνας ἀπορρεῖν, γίνεσθαι δὲ καὶ ἐν Θρᾴκῃ μέλι ἐκ τῶν φυτῶν ἤκουσα.
+*) Aristot. de mir. ausc. 19 (4, 78 ed. Didot): Φασὶ δὲ καὶ ἐν Λυδίᾳ(?) ἀπὸ τῶν δένδρων τὸ μέλι συλλέγεσθαι πολὺ καὶ ποιεῖν ἐξ αὐτοῦ τοὺς ἐνοικοῦντας ἄνευ κηροῦ τροχίσκους... Γίνεται μὲν οὖν καὶ ἐν Θρᾴκῃ, οὐχ οὕτω δὲ στερεόν, ἀλλ' ὡσανεὶ ἀμμῶδες. Ael. h. an. 5, 42: ἐν Μηδίᾳ δὲ ἀποστάζειν τῶν δένδρων ἀκούω μέλι ὡς Εὐριπίδης ἐν τῷ Κιθαιρῶνί φησιν ἐκ τῶν κλάδων γλυκείας σταγόνας ἀπορρεῖν, γίνεσθαι δὲ καὶ ἐν Θρᾴκῃ μέλι ἐκ τῶν φυτῶν ἤκουσα.
 
-*) Galen. π. τροφ. δυνάμ. λθʹ (6, 739 ed. Kühn): παρ᾽ ἡμῖν μὲν οὖν σπανίως φαίνεται τοῦτο γινόμενον, ἐν δὲ τῷ ὄρει τῷ Λιβάνῳ καθ᾽ ἕκαστον ἔτος οὐκ ὀλίγον (vgl. Pseudoaristot. Probl. ined. 1, 2 (5, 291, 27 f. ed. Didot). ὥστε ἐκπεταννύντες ἐπὶ γῆς δέρματα καὶ σείοντες τὰ δένδρα δέχονται τὸ ἀπορρέον ἀπ᾽ αὐτῶν καὶ χύτρας καὶ κεράμια πληροῦσι τοῦ μέλιτος. ὀνομάζουσι δ᾽ αὐτὸ δροσόμελί τε καὶ ἀερόμελι. Vorher sagt Galenus: οἷδα δέ ποτε θέρους ὥρᾳ πλεῖστον ὅσον ἐπὶ τοῖς τῶν δένδρων καὶ θάμνων καί τινων βοτανῶν φύλλοις εὐρεθὲν, ὡς ὑπὸ τῶν γεωργῶν λέγεσθαι παιζόντων, ὁ Ζεὺς ἔβρεξε μέλι. Plin. n. h. 15, 96: Sponte nascitur in Syriae maritimis, quod elaeomeli vocant. Manat ex arboribus pingue, crassius melle, resina tenuius, sapore dulci.
+*) Galen. π. τροφ. δυνάμ. λθʹ (6, 739 ed. Kühn): παρ' ἡμῖν μὲν οὖν σπανίως φαίνεται τοῦτο γινόμενον, ἐν δὲ τῷ ὄρει τῷ Λιβάνῳ καθ' ἕκαστον ἔτος οὐκ ὀλίγον (vgl. Pseudoaristot. Probl. ined. 1, 2 (5, 291, 27 f. ed. Didot). ὥστε ἐκπεταννύντες ἐπὶ γῆς δέρματα καὶ σείοντες τὰ δένδρα δέχονται τὸ ἀπορρέον ἀπ' αὐτῶν καὶ χύτρας καὶ κεράμια πληροῦσι τοῦ μέλιτος. ὀνομάζουσι δ' αὐτὸ δροσόμελί τε καὶ ἀερόμελι. Vorher sagt Galenus: οἷδα δέ ποτε θέρους ὥρᾳ πλεῖστον ὅσον ἐπὶ τοῖς τῶν δένδρων καὶ θάμνων καί τινων βοτανῶν φύλλοις εὐρεθὲν, ὡς ὑπὸ τῶν γεωργῶν λέγεσθαι παιζόντων, ὁ Ζεὺς ἔβρεξε μέλι. Plin. n. h. 15, 96: Sponte nascitur in Syriae maritimis, quod elaeomeli vocant. Manat ex arboribus pingue, crassius melle, resina tenuius, sapore dulci.
 
 *) Vgl. auch Philostr. im. 2, 320, 19 ed. Teubn. θύρσοι καὶ δένδρα μέλι στάζοντα. Etwas anders Hor. ca. 2, 19, 9 ff.: Fas pervicaces est mihi Thyiadas, || Vinique fontem lactis et uberes || Cantare rivos atque truncis || Lapsa cavis iterare mella.
 
@@ -325,11 +325,11 @@ Aber nicht bloß den von den Blättern und Zweigen der Bäume ausgeschwitzten Ho
 
 ὅντινα τιμήσουσι Διὸς κοῦραι μεγάλοιο  
 τῷ μὲν ἐπὶ γλώσσῃ γλυκερὴν χείουσιν ἐέρσην,  
-τοῦ δ᾽ ἔπε᾽ ἐκ στόματος ῥεὶ μείλιχα.
+τοῦ δ' ἔπε' ἐκ στόματος ῥεὶ μείλιχα.
 
 Offenbar ist hier γλυκερὴ ἐέρση für Honig gebraucht, der ja schon von Homer* der Süßigkeit der Rede oder des Gesanges verglichen worden ist (S. unten Kap. 7). Selbst Aristoteles (h. a. 5, 22, 4) führt für die Meinung, dass der Honig aus der Luft falle (μέλι δὲ τὸ πῖπτον ἐκ τοῦ ἀέρος), während das Wachs von den Blumen, das Stopfwachs (κήπωσις, _melligo_) von den Bäumen komme, die Beobachtung an, dass die Bienenzüchter in einem oder zwei Tagen die Stöcke voll Honig finden und dass es zwar im Herbste Blumen aber keinen Honig mehr gibt, wenn er weggenommen wird. „Ἀφῃρημένου οὖν ἤδη τοῦ γενομένου μέλιτος,“ fährt Aristoteles fort, „καὶ τροφῆς ἢ οὐκ ἐνούσης ἢ σπανίας, ἐνεγίγνετο ἄν, εἴπερ ἐποίουν ἐκ τῶν ἀνθῶν.“ Ähnlich sagt Columella (9, 14 z. Ende): idemque (Celsus) ait, ex fioribus ceras fieri, ex matutino rore mella. Daher wird auch der Blumenhonig, ebenso wie der Baumhonig, als ein himmlischer Tau gefasst* und von Dichtern und Naturforschern in begeisterten Worten als göttlicher Nektar und Geschenk des Himmels, als eine Göttern und Menschen gleichwillkommene Speise gepriesen.*
 
-*) Vgl. 2. 1, 247: τοῖσι δὲ Νέστωρ || ἡδυεπὴς ἀνόρουσε, λιγὺς Πυλίων ἀγορήτης, || τοῦ καὶ ἀπὸ γλώσσης μέλιτος γλυκίων ῥέεν αὐδή. Hom. hy. 25, 4: ὁ δ᾽ ὄλβιος, ὄντινα Μοῦσαι || φίλωνται · γλυκερή οἱ ἀπὸ στόματος ῥέει αὐδή (vgl. Hesiod. Theog. 94). Ebenso wie hier Hesiod so nennt auch Pindar den Honig ἔερσα: vgl. Nem. 3, 73: ἐγὼ τόδε τοι || πέμπω μεμιγμένον μέλι λευκῷ || Σὺν γάλακτι, κιρναμένα δ᾽ ἔερσ᾽ ἀμφέπει, || πόμ᾽ ἀοίδιμον Αἰολῇσιν ἐν πνοαῖσιν αὐλῶν. Dazu bemerkt der Scholiast: ἡ δρόσος ἡ τοῦ μέλιτος κιρναμένη πρὸς τὸ γάλα ποιεῖ τὸ πόμα ἀοίδιμον καὶ τὸ ποίημα μιχθὲν αὐλοῖς γίνεται καὶ αὐτὸ θαυμάσιον.
+*) Vgl. 2. 1, 247: τοῖσι δὲ Νέστωρ || ἡδυεπὴς ἀνόρουσε, λιγὺς Πυλίων ἀγορήτης, || τοῦ καὶ ἀπὸ γλώσσης μέλιτος γλυκίων ῥέεν αὐδή. Hom. hy. 25, 4: ὁ δ' ὄλβιος, ὄντινα Μοῦσαι || φίλωνται · γλυκερή οἱ ἀπὸ στόματος ῥέει αὐδή (vgl. Hesiod. Theog. 94). Ebenso wie hier Hesiod so nennt auch Pindar den Honig ἔερσα: vgl. Nem. 3, 73: ἐγὼ τόδε τοι || πέμπω μεμιγμένον μέλι λευκῷ || Σὺν γάλακτι, κιρναμένα δ' ἔερσ' ἀμφέπει, || πόμ' ἀοίδιμον Αἰολῇσιν ἐν πνοαῖσιν αὐλῶν. Dazu bemerkt der Scholiast: ἡ δρόσος ἡ τοῦ μέλιτος κιρναμένη πρὸς τὸ γάλα ποιεῖ τὸ πόμα ἀοίδιμον καὶ τὸ ποίημα μιχθὲν αὐλοῖς γίνεται καὶ αὐτὸ θαυμάσιον.
 
 *) Verg. Geo. 4, 1: Protinus aërii mellis caelestia dona exsequar, wozu Serv. bemerkt: nam mel exrore colligitur, qui utique defluit ex aëre. Prob. Quidam dicunt mel in aëre nasci, quidam apes colligere quo tempore in Ida Juppiter nutriebatur: tum primum ex aëre fluxisse, eoque ipsum alitum. Philostr. Im. 2, 414 ed. K. ὁρᾶς γὰρ (Sophokles) καὶ τὰς μελίττας, ὡς ὑπερπέτονταί σου... ἐπιλείβουσαι σταγόνας ἀπορρήτους τῆς οἰκείας δρόσον. Dio Chrys. 2, p. 178. κερὶ τῶν ἀνθῶν τῆς δρόσου διαφέρονται [αἱ μέλισσαι]. Anth. Gr. 2, 177, 29, 1 (ed. Brunck); αὐτοπόνητον ἐν αἰθέρι ῥεῦμα μελισσᾶν.
 
@@ -381,13 +381,13 @@ Sehr häufig werden schon bei Homer und Hesiod die beiden Begriffe in der angege
 
 Il. _T_, 352:
 
-...ἡ δ᾽ Ἀχιλῆι  
+...ἡ δ' Ἀχιλῆι  
 νέκταρ ἐνὶ στήθεσσι καὶ ἀμβροσίην ἐρατεινὴν  
-στάξ᾽, ἵνα μή μιν λιμὸς ἀτερπὴς γούναθ᾽ ἴκηται.
+στάξ', ἵνα μή μιν λιμὸς ἀτερπὴς γούναθ' ἴκηται.
 
 Od. ε 199:
 
-τῇ δὲ [τῇ Καλυψοῖ] παρ᾽ ἀμβροσίην δμωαὶ καὶ νέκταρ ἔθηκαν.
+τῇ δὲ [τῇ Καλυψοῖ] παρ' ἀμβροσίην δμωαὶ καὶ νέκταρ ἔθηκαν.
 
 ib. 92:
 
@@ -396,52 +396,52 @@ ib. 92:
 
 Od. ι 359 (vom Weine des Odysseus):
 
-ἀλλὰ τόδ᾽ ἀμβροσίης καὶ νέκταρός ἐστιν ἀπορρώξ.
+ἀλλὰ τόδ' ἀμβροσίης καὶ νέκταρός ἐστιν ἀπορρώξ.
 
 Hes. Theog. 639:
 
-ἀλλ᾽ ὅτε δὴ κείνοισι παρέσχεθεν ἄρμενα πάντα,  
-νέκταρ τ᾽ ἀμβροσίην τε, τάπερ θεοὶ αὐτοὶ ἔδουσι,  
+ἀλλ' ὅτε δὴ κείνοισι παρέσχεθεν ἄρμενα πάντα,  
+νέκταρ τ' ἀμβροσίην τε, τάπερ θεοὶ αὐτοὶ ἔδουσι,  
 πάντων ἐν στήθεσσιν ἀέξετο θυμὸς ἀγήνωρ.
 
 ib. 796:
 
-οὐδέ ποτ᾽ ἀμβροσίης καὶ νέκταρος ἔρχεται ἆσσον  
+οὐδέ ποτ' ἀμβροσίης καὶ νέκταρος ἔρχεται ἆσσον  
 (ὅς κεν τὴν [Στύγα] ἐπίορκον ἀπολείψας ἐπομόσσῃ  
 ἀθανάτων κ. τ. λ.)
 
 Hy. in Merc. 248 findet Apollon in der Kyllenischen Höhle:
 
 τρεῖς ἀδύτους ἀνέῳγε λαβὼν κληῖδα φαεινήν,  
-νέκταρος ἐμπλείους ἠδ᾽ ἀμβροσίης ἐρατεινῆς.
+νέκταρος ἐμπλείους ἠδ' ἀμβροσίης ἐρατεινῆς.
 
 Hy. in Cer. 49:
 
-οὐδέ ποτ᾽ ἀμβροσίης καὶ νέκταρος ἡδυπότοιο  
-πάσσατ᾽ ἀκηχεμένη, οὐδὲ χρόα βάλλετο λουτροῖς.
+οὐδέ ποτ' ἀμβροσίης καὶ νέκταρος ἡδυπότοιο  
+πάσσατ' ἀκηχεμένη, οὐδὲ χρόα βάλλετο λουτροῖς.
 
 Hy. in Ap. Del. 123:
 
-οὐδ᾽ ἄρ Ἀπόλλωνα χρυσάορα θήσατο μήτηρ,  
+οὐδ' ἄρ Ἀπόλλωνα χρυσάορα θήσατο μήτηρ,  
 ἀλλὰ Θέμις νέκταρ τε καὶ ἀμβροσίην ἐρατεινὴν  
 ἀθανάτῃσι χερσὶν ἐπήρξατο.
 
 Sehr eigentümlich ist, wenn man diese Verse damit vergleicht, eine Stelle im Hy. in Ven. 231, wo von der Eos erzählt wird, dass sie den Tithonos mit Götterspeise ernährt habe:
 
-αὐτὸν δ᾽ αὖτ᾽ ἀτίταλλεν ἐνὶ μεγάροισιν ἔχουσα  
+αὐτὸν δ' αὖτ' ἀτίταλλεν ἐνὶ μεγάροισιν ἔχουσα  
 σίτῳ τ᾿ ἀμβροσίῃ τε καὶ εἴματα καλὰ διδοῦσα.
 
-Augenscheinlich sollte man hier entweder den Begriff ἀμβροσίη allein oder νέκταρι τ᾽ ἀμβροσίῃ τε erwarten, σίτῳ τ᾽ ἀμβροσίῃ τε aber ist unverständlich.* Eine Änderung scheint demnach notwendig. Am einfachsten ist es wohl in diesem Falle nach Analogie von Ausdrücken wie ἄμβροτον εἶδαρ (Hy. in Ap. Del. 127 in Ven. 260), ἀμβρόσιον εἰδαρ (Il. _N_ 35. _E_ 369), ἐλαίῳ ἀμβρότῳ (Od. θ 365, Hy. in Ven. 61), ἐλαίῳ ἀμβροσίῳ (Il. Ξ 171), κάλλει ἀμβροσίῳ (Od. σ 192) zu lesen σίτῳ* ἀμβροσίῳ καὶ εἳματα καλὰ διδοῦσα.*
+Augenscheinlich sollte man hier entweder den Begriff ἀμβροσίη allein oder νέκταρι τ' ἀμβροσίῃ τε erwarten, σίτῳ τ' ἀμβροσίῃ τε aber ist unverständlich.* Eine Änderung scheint demnach notwendig. Am einfachsten ist es wohl in diesem Falle nach Analogie von Ausdrücken wie ἄμβροτον εἶδαρ (Hy. in Ap. Del. 127 in Ven. 260), ἀμβρόσιον εἰδαρ (Il. _N_ 35. _E_ 369), ἐλαίῳ ἀμβρότῳ (Od. θ 365, Hy. in Ven. 61), ἐλαίῳ ἀμβροσίῳ (Il. Ξ 171), κάλλει ἀμβροσίῳ (Od. σ 192) zu lesen σίτῳ* ἀμβροσίῳ καὶ εἳματα καλὰ διδοῦσα.*
 
-*) Auch Bergk (Jahrb. f. class Phil. 1860, S. 380) nimmt Anstoß an diesem Verse. Das bloße σῖτος bedeutet an sich menschliche (nicht göttliche) Nahrung. Vgl. Hy. in Cer. 236: ὁ δ᾽ ἀέξετο δαίμονι ἶσος (Demophon), οὔτ᾽ οὖν σῖτον ἔδων, οὐ θησάμενος γάλα μητρός.
+*) Auch Bergk (Jahrb. f. class Phil. 1860, S. 380) nimmt Anstoß an diesem Verse. Das bloße σῖτος bedeutet an sich menschliche (nicht göttliche) Nahrung. Vgl. Hy. in Cer. 236: ὁ δ' ἀέξετο δαίμονι ἶσος (Demophon), οὔτ' οὖν σῖτον ἔδων, οὐ θησάμενος γάλα μητρός.
 
 *) In Betreff der beiden Hiatus vgl. Kühner, Ausführl. Gr. d. gr. Spr. 2 1. 153 f. u. 81.
 
-*) Vgl. übrigens Nägelsbach, Hom. Theol. S. 15, der σίτῳ τ᾽ ἀμβροσίῃ mit Brod und Ambrosia erklärt, was Bergk, mit dessen Annahme eines ἓν διὰ δυοῖν ich mich aber nicht einverstanden erklären kann, mit Recht verwirft (Fleckeisens Jahrb. 1860. S. 380 f.)
+*) Vgl. übrigens Nägelsbach, Hom. Theol. S. 15, der σίτῳ τ' ἀμβροσίῃ mit Brod und Ambrosia erklärt, was Bergk, mit dessen Annahme eines ἓν διὰ δυοῖν ich mich aber nicht einverstanden erklären kann, mit Recht verwirft (Fleckeisens Jahrb. 1860. S. 380 f.)
 
 Außerdem finden sich noch einige Stellen, wo ἀμβροσίη in der Bedeutung Götterspeise und νέκταρ = Göttertrank allein gebraucht sind (Il. Α. 597. Δ 3. Od. μ 62. Hy. in Ap. Del. 10).
 
-Höchst merkwürdig ist es nun, dass neben dieser gewöhnlichen Tradition, wonach ἀμβροσία die Speise, νέκταρ den Trank der Götter bezeichnete, eine andere mehrfach bezeugte bestand, worin dieses Verhältnis geradezu umgekehrt erscheint. Das Hauptzeugnis dafür findet sich bei Athenaios, 39 _a_: „οἶδα δ᾽ ὅτι Ἀναξανδρίδης τὸ νέκταρ οὐ ποτὸν ἀλλὰ τροφὴν εἶναι λέγει θεῶν
+Höchst merkwürdig ist es nun, dass neben dieser gewöhnlichen Tradition, wonach ἀμβροσία die Speise, νέκταρ den Trank der Götter bezeichnete, eine andere mehrfach bezeugte bestand, worin dieses Verhältnis geradezu umgekehrt erscheint. Das Hauptzeugnis dafür findet sich bei Athenaios, 39 _a_: „οἶδα δ' ὅτι Ἀναξανδρίδης τὸ νέκταρ οὐ ποτὸν ἀλλὰ τροφὴν εἶναι λέγει θεῶν
 
 Τὸ νέκταρ ἐσθίω πάνυ  
 μάττων διαπίνω τ ἀμβροσίαν, καὶ τῷ Διὶ  
@@ -450,8 +450,8 @@ Höchst merkwürdig ist es nun, dass neben dieser gewöhnlichen Tradition, wonac
 Dass dies nicht etwa ein Witz des Anaxandrides sondern ernsthaft zu nehmen ist, geht aus den unmittelbar darauffolgenden Zeugnissen des Alkman und der Sappho zur Genüge hervor: καὶ Ἀλκμὰν δέ φησι „Τὸ νέκταρ ἔδμεναι αὐτούς.“ Καὶ Σαπφὼ δέ φησιν
 
 Ἀμβροσίας μὲν κρατὴρ ἐκέκρατο,  
-Ἑρμᾶς δ᾽ ἑλὼν ἕρπιν θεοῆ ᾠνοχόησεν.  
-ὁ δ᾽ Ὅμηρος θεῶν πῶμα τὸ νέκταρ οἶδεν.*
+Ἑρμᾶς δ' ἑλὼν ἕρπιν θεοῆ ᾠνοχόησεν.  
+ὁ δ' Ὅμηρος θεῶν πῶμα τὸ νέκταρ οἶδεν.*
 
 *) Vgl. auch Eustath. p. 1633, 1.
 
@@ -459,10 +459,10 @@ Dieselbe Vorstellung liegt vielleicht auch den schönen Versen des Euripides (Hi
 
 κρῆναί τ΄ ἀμβρόσιαι χέονται  
 Ζηνὸς μελάθρων παρὰ κοίταις,  
-ῖν᾽ ἁ βιόδωρος αὔξει ζαθέα  
+ῖν' ἁ βιόδωρος αὔξει ζαθέα  
 χθὼν εὐδαιμονίαν θεοῖς.
 
-Wie ist nun dieser eigentümliche Widerspruch der beiden verschiedenen Traditionen zu lösen? Bergk, welcher im Hinblick auf die Tatsache, dass die andern Völker (Inder und Germanen) nur einen Göttertrank, keine Götterspeise kennen, von einem ursprünglichen Unterschied der beiden Begriffe nichts wissen will, sondern in ἀμβροσία nur eine zweite Bezeichnung des Göttertranks erkennt, sagt (Fleckeisens Jahrb. 1860. S. 379 f.) Folgendes: „Keine dieser Stellen nötigt jene Ausdrücke voneinander zu halten: die angemessenste Erklärung ist überall die, dass man annimmt, die allgemeine Bezeichnung sei auch hier wie so oft mit einer spezielleren verbunden, um den Begriff vollständig zu erschöpfen, ungefähr wie man πρὸς ἠῶ τ᾽ ἠέλιόν τε, οὐρανὸς Οὔλυμπός τε und Ähnliches verbunden findet.“ Dass diese Erklärung jedoch angesichts solcher Stellen wie Od. ε 93:
+Wie ist nun dieser eigentümliche Widerspruch der beiden verschiedenen Traditionen zu lösen? Bergk, welcher im Hinblick auf die Tatsache, dass die andern Völker (Inder und Germanen) nur einen Göttertrank, keine Götterspeise kennen, von einem ursprünglichen Unterschied der beiden Begriffe nichts wissen will, sondern in ἀμβροσία nur eine zweite Bezeichnung des Göttertranks erkennt, sagt (Fleckeisens Jahrb. 1860. S. 379 f.) Folgendes: „Keine dieser Stellen nötigt jene Ausdrücke voneinander zu halten: die angemessenste Erklärung ist überall die, dass man annimmt, die allgemeine Bezeichnung sei auch hier wie so oft mit einer spezielleren verbunden, um den Begriff vollständig zu erschöpfen, ungefähr wie man πρὸς ἠῶ τ' ἠέλιόν τε, οὐρανὸς Οὔλυμπός τε und Ähnliches verbunden findet.“ Dass diese Erklärung jedoch angesichts solcher Stellen wie Od. ε 93:
 
 θεὰ παρέθηκε τράπεζαν  
 ἀμβροσίης πλήσασα, κέρασσε δὲ νέκταρ ἐρυθρόν.  
@@ -472,9 +472,9 @@ Wie ist nun dieser eigentümliche Widerspruch der beiden verschiedenen Tradition
 
 und Theog. 640:
 
-νέκταρ τ᾽ ἀμβροσίην τε, τάπερ θεοὶ αὐτοὶ ἔδουσι.
+νέκταρ τ' ἀμβροσίην τε, τάπερ θεοὶ αὐτοὶ ἔδουσι.
 
-zu kühn ist und dass zwischen Ausdrücken wie ἠῶ τ᾽ ἠέλιόν τε und νέκταρ τ᾽ ἀμβροσίην τε ein großer Unterschied besteht, dürfte einleuchtend sein. Die Möglichkeit der beiden verschiedenen Traditionen erklärt sich wohl am besten auf andere Weise, nämlich durch die Annahme, dass νέκταρ und ἀμβροσία nur verschiedene Formen einer und derselben Substanz, d. i. des Honigs sind, welchen man, wie wir später sehen werden, nicht bloß für die Nahrung der Götter hielt, sondern dem man auch geradezu die Fähigkeit unsterblich zu machen zuschrieb.
+zu kühn ist und dass zwischen Ausdrücken wie ἠῶ τ' ἠέλιόν τε und νέκταρ τ' ἀμβροσίην τε ein großer Unterschied besteht, dürfte einleuchtend sein. Die Möglichkeit der beiden verschiedenen Traditionen erklärt sich wohl am besten auf andere Weise, nämlich durch die Annahme, dass νέκταρ und ἀμβροσία nur verschiedene Formen einer und derselben Substanz, d. i. des Honigs sind, welchen man, wie wir später sehen werden, nicht bloß für die Nahrung der Götter hielt, sondern dem man auch geradezu die Fähigkeit unsterblich zu machen zuschrieb.
 
 An sich ist Honig zwar eine Speise, aber durch Verdünnung mit Wasser nimmt er den Charakter eines Getränkes an, welches gegohren sogar eine berauschende Wirkung zu äußern im Stande ist.
 
@@ -492,12 +492,12 @@ Nun ist aber der wesentlichste und wirkungsreichste Bestandteil des Methes nicht
 
 Mit dieser Deutung des Nektars und der Ambrosia als Honig stehen auch die Mythen von der Herkunft der Götternahrung im besten Einklang. Es lässt sich nämlich nachweisen, dass wie der Honig so auch die Ambrosia und der Nektar ihren Ursprung im Himmel oder in einer Art himmlischen Paradieses im äußersten Westen hatten.
 
-Schon die Alten haben die Beobachtung gemacht, dass Baumhonig (Honigtau) und Blumenhonig nicht vor dem Aufgange der Pleiaden entstehen (Aristot. H. A. 5, 22, 4: ὅλως δ᾽ οὐ γίνεται μέλι πρὸ Πλειάδος ἐπιτολῆς. Plin. h. n. 11, 30: nec omnino prius Vergiliarum exortu [mel fit]),* und es lässt sich wohl annehmen, dass die antiken Bienenzüchter, gegen das Ende des Winters, wenn der Honigvorrat zu Ende ging oder gänzlich aufgezehrt war, sehnsüchtig nach dem Aufgange des Pleiadengestirns ausschauten, welches ihnen neue Fülle der herrlichsten Speise verhieß. Diese Tatsache ist nun, wie ich glaube der Anlass zur Bildung eines Mythus gewesen, den schon Homer kannte. Od. μ 62 heißt es von den Irrfelsen im äußersten Westen (Völcker, Homer. Geogr. S. 118):
+Schon die Alten haben die Beobachtung gemacht, dass Baumhonig (Honigtau) und Blumenhonig nicht vor dem Aufgange der Pleiaden entstehen (Aristot. H. A. 5, 22, 4: ὅλως δ' οὐ γίνεται μέλι πρὸ Πλειάδος ἐπιτολῆς. Plin. h. n. 11, 30: nec omnino prius Vergiliarum exortu [mel fit]),* und es lässt sich wohl annehmen, dass die antiken Bienenzüchter, gegen das Ende des Winters, wenn der Honigvorrat zu Ende ging oder gänzlich aufgezehrt war, sehnsüchtig nach dem Aufgange des Pleiadengestirns ausschauten, welches ihnen neue Fülle der herrlichsten Speise verhieß. Diese Tatsache ist nun, wie ich glaube der Anlass zur Bildung eines Mythus gewesen, den schon Homer kannte. Od. μ 62 heißt es von den Irrfelsen im äußersten Westen (Völcker, Homer. Geogr. S. 118):
 
-τῇ μέν τ᾽ οὐδὲ ποτητὰ παρέρχεται οὐδὲ πέλειαι  
-τρήρωνες, ταί τ᾽ ἀμβροσίην Διὶ πατρὶ φέρουσι,  
+τῇ μέν τ' οὐδὲ ποτητὰ παρέρχεται οὐδὲ πέλειαι  
+τρήρωνες, ταί τ' ἀμβροσίην Διὶ πατρὶ φέρουσι,  
 ἀλλά τε καὶ τῶν αἰὲν ἀφαιρεῖται λὶς πέτρη ·  
-ἀλλ᾽ ἄλλην ἐνίησι πατὴρ ἐναρίθμιον εἶναι.
+ἀλλ' ἄλλην ἐνίησι πατὴρ ἐναρίθμιον εἶναι.
 
 Sowohl die antiken, als auch die meisten modernen Erklärer der Stelle* verstehen hier unter den τρήρωνες πέλειαι das Pleiadengestirn (Πληιάδες, Πελειάδες), von dem nur sechs Sterne hell leuchten, während der siebente verdunkelt ist.* Besonders berief man sich in dieser Beziehung auf folgende Verse der Dichterin Moiro (um 300 v. Chr.), worin auch die Quellen der Ambrosia und des Nektars in den äußersten Westen, an die Fluten des Okeanos, aus dem die Pleiaden aufzusteigen scheinen, verlegt werden:
 
@@ -505,11 +505,11 @@ Moiro b. Ath. 491 b:
 
 τὸν μὲν [Δία ἐν Κρήτῃ] ἄρα τρήρωνες ὑπὸ ζαθέῳ τράφον ἄντρῳ,  
 ἀμβροσίην φορέουσαι ἀπ' Ὠκεανοῖο ῥοάων,  
-νέκταρ δ᾽ ἐκ πέτρης μέγας αἰετὸς αἰὲν ἀφύσσων  
+νέκταρ δ' ἐκ πέτρης μέγας αἰετὸς αἰὲν ἀφύσσων  
 γαμφηλῇς φορέεσκε ποτὸν Διὶ μητιόεντι.*  
 τὸν καὶ, νικήσας πατέρα Κρόνον εὐρύοπα Ζεὺς,  
 ἀθάνατον ποίησε καὶ οὐρανῷ ἐγκατένασσεν.  
-ὣς δ᾽ αὕτως τρήρωσι πελειάσιν ὥπασε τιμὴν,  
+ὣς δ' αὕτως τρήρωσι πελειάσιν ὥπασε τιμὴν,  
 αἳ δή τοι θέρεος καὶ χείματος ἄγγελοι εἰσίν.
 
 *) Vgl. auch Plin. h. n. 11, 42: Haec ergo mellatio fine vindemiae et Vergiliarum occasu Idibus Novembribus fere includitur. ib. 43: In Italia vero hoc idem [apes] a Vergiliarum exortu faciunt [= iam vigilant]; in eum dormiunt. Varro de r. r. 3, 16: Eximendorum favorum primum putant esse tempus Vergiliarum exortu... tertium post Vergiliarum occasum.
@@ -524,15 +524,15 @@ Da nun nach der Vorstellung der Alten der Sitz der Götter nicht bloß im Himmel
 
 Hippol. 5. 742:
 
-Ἑσπερίδων δ᾽ ἐπὶ μηλόσπορον ἀκτὰν*  
+Ἑσπερίδων δ' ἐπὶ μηλόσπορον ἀκτὰν*  
 ἀνύσαιμι τᾶν ἀοιδῶν,  
 ἵν᾿ ὁ ποντομέδων πορφυρέας λίμνας  
-ναύταις οὐκέθ᾽ ὁδὸν νέμει,  
+ναύταις οὐκέθ' ὁδὸν νέμει,  
 σεμνὸν τέρμονα, κύρων  
 οὐρανοῦ τὸν Ἄτλας ἔχει,  
-κρῆναι τ᾽ ἀμβρόσιαι χέονται*  
+κρῆναι τ' ἀμβρόσιαι χέονται*  
 Ζηνὸς μελάθρων παρὰ κοίταις,  
-ἵν᾽ ἁ βιόδωρος αὔξει ζαθέα  
+ἵν' ἁ βιόδωρος αὔξει ζαθέα  
 χθὼν εὐδαιμονίαν θεοῖς.*
 
 Wie wunderbar stimmt nunmehr der schon homerische Mythus von den aus dem paradiesischen Göttergarten im Westen Ambrosia bringenden Pleiaden oder Tauben mit jener oben erwähnten indisch-persischen, germanischen und finnischen Vorstellung überein, wonach die Bienen (oder Vögel) den Honig (oder Göttertrank) vom Himmel (oder aus dem Paradiese) herzutragen! Noch merkwürdiger spricht für unsere Annahme einer ursprünglichen Identität von Honig und Ambrosia (Nektar), dass nach anderen Quellen (vgl. oben das Fragment der Moiro) Zeus auf Kreta nicht von Tauben oder Pleiaden mit Ambrosia, sondern von Bienen mit Honig genährt wurde.* Dies ist offenbar nur eine andere Form eines und desselben Grundgedankens, denn die Bienen fangen erst nach dem Aufgang der Pleiaden an den von diesen gewissermaßen gebrachten himmlischen Honigtau einzutragen.
@@ -545,11 +545,11 @@ Wie wunderbar stimmt nunmehr der schon homerische Mythus von den aus dem paradie
 
 *) S. Anm. 56, 60, 66.
 
-*) Diod. 5, 70: τὸ δὲ πάντων παραδοξότατον καὶ μυθολογούμενον περὶ τῶν μελιττῶν οὐκ ἄξιον παραλιπεῖν · τὸν γὰρ θεόν φασιν ἀθάνατον · μνήμην τῆς πρὸς αὐτὰς οἰκειότητος διαφυλάξαι βουλόμενον ἀλλάξαι μὲν τὴν χρόαν αὐτῶν καὶ ποιῆσαι χαλκῷ χρυσοειδεῖ παραπλησίαν. Anton. Lib. 19: Ἐν Κρήτῃ λέγεται εἶναι ἱερὸν ἄντρον μελισσῶν, ἐν ᾧ μυθολογοῦσι τεκεῖν Ῥέαν τὸν Δία, καὶ ἔστιν ὅσιον οὐδένα παρελθεῖν οὔτε θεὸν οὔτε θνητόν... κατέχουσι δὲ τὸ ἄντρον ἱεραὶ μέλισσαι, τροφοὶ τοὺ Διὸς. Kallim. hy. in Jov. 48: σὺ δ᾽ ἐθήσαο πίονα μάζον || Αἰγὸς Ἀμαλθείης, ἐπὶ δὲ γλυκὺ κηρίον ἔβρως. Daraus ist dann die Legende von dem kretischen König Melisseus und seiner Tochter Melissa entstanden: Apollod. 1, 1, 6. Hyg. P. Astr. 2, 13. Lactant. 1, 22. Vgl. auch Prob. z. Verg. Geo. 4, 1: quo tempore in Ida Juppiter nutriebatur, tum primum [mel] ex aëre fluxisse eoque ipsum alitum. Colum. 9, 2.
+*) Diod. 5, 70: τὸ δὲ πάντων παραδοξότατον καὶ μυθολογούμενον περὶ τῶν μελιττῶν οὐκ ἄξιον παραλιπεῖν · τὸν γὰρ θεόν φασιν ἀθάνατον · μνήμην τῆς πρὸς αὐτὰς οἰκειότητος διαφυλάξαι βουλόμενον ἀλλάξαι μὲν τὴν χρόαν αὐτῶν καὶ ποιῆσαι χαλκῷ χρυσοειδεῖ παραπλησίαν. Anton. Lib. 19: Ἐν Κρήτῃ λέγεται εἶναι ἱερὸν ἄντρον μελισσῶν, ἐν ᾧ μυθολογοῦσι τεκεῖν Ῥέαν τὸν Δία, καὶ ἔστιν ὅσιον οὐδένα παρελθεῖν οὔτε θεὸν οὔτε θνητόν... κατέχουσι δὲ τὸ ἄντρον ἱεραὶ μέλισσαι, τροφοὶ τοὺ Διὸς. Kallim. hy. in Jov. 48: σὺ δ' ἐθήσαο πίονα μάζον || Αἰγὸς Ἀμαλθείης, ἐπὶ δὲ γλυκὺ κηρίον ἔβρως. Daraus ist dann die Legende von dem kretischen König Melisseus und seiner Tochter Melissa entstanden: Apollod. 1, 1, 6. Hyg. P. Astr. 2, 13. Lactant. 1, 22. Vgl. auch Prob. z. Verg. Geo. 4, 1: quo tempore in Ida Juppiter nutriebatur, tum primum [mel] ex aëre fluxisse eoque ipsum alitum. Colum. 9, 2.
 
 Aber nicht bloß als Speise der Götter erscheint die Ambrosia, sie bezeichnet auch hie und da das Futter der Götterrosse und muss demnach in diesen Fällen als eine Art Gras oder Kraut gedacht worden sein. So heißt es Il. _E_ 777 von den Rossen der Hera:
 
-τοῖσιν δ᾽ ἀμβροσίην Σιμόεις ἀνέτειλε νέμεσθαι,
+τοῖσιν δ' ἀμβροσίην Σιμόεις ἀνέτειλε νέμεσθαι,
 
 wozu der Scholiast bemerkt τὴν τῶν θεῶν τροφὴν* ἢ πόαν τινὰ νῦν, ἣν οἱ τῶν θεῶν ἵπποι ἐσθίουσιν. Derselben Vorstellung begegnen wir auf Il. _E_ 369, wo Iris die Rosse des Ares, und Il. _N_ 35, wo Poseidon sein Gespann mit ἀμβρόσιον εἶδαρ füttert. Nach Alexander Aetolus fressen die Rosse des Helios ein Gras, welches auf den Inseln der Seligen im äußersten Westen wächst und mit dem Kraute, dem Glaukos die Unsterblichkeit verdankt, identisch ist.* Von demselben Grase sagt Aeschrion bei Ath. 296 f.:
 
@@ -559,7 +559,7 @@ womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götter
 
 *) Dieser ersten Auffassung des Scholiasten folgte Ovid. Met. 2, 120: ignemque vomentes, ambrosiae suco saturos, praesepibus altis quadrupedes ducunt. ib. 4, 214: axe sub Hesperio sunt pascua solis equorum: ambrosiam pro gramine habent.
 
-*) Alex. Aet. b. Ath. 296 e. Γευσάμενος βοτάνης [κατεποντώθη] ἣν Ἠελίῳ φαέθοντι || ἐν μακάρων νήσοις λιτὴ φύει εἴαρι γαῖα · Ἠέλιος δ᾽ ἵπποις θυμήρεα δόρπον ὁπάζει || ὕλῃ ναιετάουσαν, ἵνα δρόμον ἐκτελέσωσιν || ἄτρυτοι, καὶ μή τιν᾽ ἕλοι μεσσηγὺς ἀνίη. Vgl. Claud. in Stilich. 2, 470.
+*) Alex. Aet. b. Ath. 296 e. Γευσάμενος βοτάνης [κατεποντώθη] ἣν Ἠελίῳ φαέθοντι || ἐν μακάρων νήσοις λιτὴ φύει εἴαρι γαῖα · Ἠέλιος δ' ἵπποις θυμήρεα δόρπον ὁπάζει || ὕλῃ ναιετάουσαν, ἵνα δρόμον ἐκτελέσωσιν || ἄτρυτοι, καὶ μή τιν' ἕλοι μεσσηγὺς ἀνίη. Vgl. Claud. in Stilich. 2, 470.
 
 *) Vgl. Gädechens, Glaukos d. Meergott S. 33 f. Bergk in Fleckeisens Jahrb. 1860. S. 385, Anm. 75. Die gemeinten Stellen sind: Aeschylos fr. 27: ὁ τὴν ἀείζων ἄφθιτον πόαν φαγών und καὶ γεύομαί πως τῆς ἀειζώου πόας. Paus. 9, 22. 7 ἐπεὶ τῆς (ἀειζώον Bergk) πόας ἔφαγε. Schol. Ap. Arg. 1, 1310 ἀθάνατος βοτάνη. Ovid. Met. 7, 232 vivax gramen. Claudian. nupt. Hon. et Mar. 158: immortales herbae. Vgl. auch Lobeck Aglaophamos 866 f.
 
@@ -571,7 +571,7 @@ womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götter
 
 *) Apollod. bibl. 3, 3, 1, 2.
 
-*) Kallim. hy. in Dian. 162: σοὶ δ᾽ Ἀμνισιάδες μὲν ὑπὸ ζεύγληφι λυθείσας || ψήχουσιν κεμάδας, παρὰ δὲ σφισι πουλὺ νέμεσθαι || Ἥρης ἐκ λειμῶνος ἀμησάμεναι φορέουσιν || ὠκύθοον τριπέτηλον, ὃ καὶ Διὸς ἵπποι ἔδουσιν. Über den λειμὼν τῆς Ἥρας im äußersten Westen vgl. Roscher, Juno u. Hera S. 82, Anm. 254. Bergk in Fleckeisens Jahrb. 1860. S. 414 f.
+*) Kallim. hy. in Dian. 162: σοὶ δ' Ἀμνισιάδες μὲν ὑπὸ ζεύγληφι λυθείσας || ψήχουσιν κεμάδας, παρὰ δὲ σφισι πουλὺ νέμεσθαι || Ἥρης ἐκ λειμῶνος ἀμησάμεναι φορέουσιν || ὠκύθοον τριπέτηλον, ὃ καὶ Διὸς ἵπποι ἔδουσιν. Über den λειμὼν τῆς Ἥρας im äußersten Westen vgl. Roscher, Juno u. Hera S. 82, Anm. 254. Bergk in Fleckeisens Jahrb. 1860. S. 414 f.
 
 *) Bei den ältesten Griechen lässt sich nicht wie bei den Indern eine gras oder krautartige Pflanze nachweisen, aus welcher man ein. berauschendes Getränk bereitete.
 
@@ -590,7 +590,7 @@ womit höchst wahrscheinlich wiederum auf die Inseln der Seligen und das Götter
 Schon seiner natürlichen Beschaffenheit nach lässt sich der Honig ebenso wohl als Speise wie als Getränk auffassen --- weshalb Porphyr. de antro n. 15 ihn βόσις und πόσις zugleich nennt --- daher er einerseits als Flüssigkeit bezeichnet* anderseits mit den Verben des Essens verbunden wird, welche sonst nur von konsistenter Nahrung (ξηρὰ τροφή Schol. Il. _T_ 352) gebraucht werden.* Und zwar verzehrte man den Honig teils rein, was namentlich außer von Kindern* auch von den Pythagoreern und von Demokritos* berichtet wird, teils unter andere Speisen, vor allen Dingen unter das süße Gebäck, gemischt, das ohne Honig nicht denkbar war, da derselbe vollständig die Stelle unseres Zuckers vertrat.*
 
 *) Aristot. de anim. hist. 5, 22, 5 (ed. Didot. 3, 97, 19): Συνίσταται δὲ τὸ μέλι πεττόμενον · ἐξ ἀρχῆς γὰρ οἷον ὕδωρ γίνεται, καὶ
-ἐφ᾽ ἡμέρας τινὰς ὑγρόν ἐστι... ἐν εἴκοσι δὲ μάλιστα συνίσταται. ib. Probl. anecd. 3, 21 (ed. Didot. 4, 328, 36): τὸ δὲ μέλι πάντων βαρύτατον καὶ ὑγρότατον τῶν ὑγρῶν. Ib. 3, 22 (ed. Didot 4, 328, 40) wird der Honig zu den ξηρά gerechnet: ξηρὸν τῇ φύσει ἐστίν (σημεῖον δὲ ὅτι ἑψόμενον παγύτερον γίνεται. Plin. h. n. 11, 31 nennt den Honig _saliva_ und _succus_. ib. 32: Est autem initio mel ut aqua dilutum... vicesimo die crassescit... Sorbetur optimum et minime fronde infectum e quercus, tiliae, arundinum foliis.
+ἐφ' ἡμέρας τινὰς ὑγρόν ἐστι... ἐν εἴκοσι δὲ μάλιστα συνίσταται. ib. Probl. anecd. 3, 21 (ed. Didot. 4, 328, 36): τὸ δὲ μέλι πάντων βαρύτατον καὶ ὑγρότατον τῶν ὑγρῶν. Ib. 3, 22 (ed. Didot 4, 328, 40) wird der Honig zu den ξηρά gerechnet: ξηρὸν τῇ φύσει ἐστίν (σημεῖον δὲ ὅτι ἑψόμενον παγύτερον γίνεται. Plin. h. n. 11, 31 nennt den Honig _saliva_ und _succus_. ib. 32: Est autem initio mel ut aqua dilutum... vicesimo die crassescit... Sorbetur optimum et minime fronde infectum e quercus, tiliae, arundinum foliis.
 
 *) Xen. Anab. 4, 8, 20: τῶν κηρίων ὅσοι ἔφαγον. Geopon. 15, 7, 3: πολλῷ δὲ τῷ χρόνῳ παντὸς μέλιτος ξηραινομένου (vgl. oben Aristot. Probl. anecd. 3, 22). ib. τὸ δὲ ἄριστον [μέλι] ἔσθιε ὠμόν. Hom. hy. in Merc. 560: ἐδηδυῖαι μέλι χλωρόν Kallim. hy. in Jov. 50: γλυκὺ κηρίον ἔβρως. Hippocr. 2, 424 ed. Kühn: τὸ μέλι... ἐσθιόμενον... καὶ τρέφει καὶ εὔχροιαν παρέχει. Sprüche Salom. 24, 13: Iss, mein Sohn, Honig, denn es ist gut und Honigseim ist süß in deinem Halse.
 
@@ -608,14 +608,14 @@ Erstens die Etymologie des Wortes μέθυ. Dasselbe bezeichnet zwar in historis
 
 Eine deutliche Ahnung von dieser Tatsache scheint noch Plutarch gehabt zu haben, wenn er Q. Symp. 4, 6, 2 sagt: καὶ μέλι σπονδὴ ἦν καὶ μέθυ πρὶν ἄμπελον φανῆναι. Außerdem kommen als faktisches Zeugnis die Verse aus der Thebais des Antimachos in Betracht, welche uns Athenaios 468 _a_ aufbewahrt hat:
 
-...ἐν μὲν ὕδωρ, ἐν δ᾽ ἀσκηθὲς μέλι χεῦεν  
+...ἐν μὲν ὕδωρ, ἐν δ' ἀσκηθὲς μέλι χεῦεν  
 ἀργυρέῳ κρητῆρι, περιφραδέως κερόωντες ·  
 νώμησαν δὲ δέπαστρα θοῶς βασιλεῦσιν Ἀχαιῶν κ. τ. λ.  
 καὶ τοῖς ἑξῆς δέ φησι  
 καὶ χρύσεια δέπαστρα καὶ ἀσκηθὲς κελέβειον  
 ἔμπλειον μέλιτος, τό ῥά οἱ προφερέστερον εἴη.
 
-Wir ersehen daraus, dass man in ältester Zeit den Meth aus einem Gemisch von Honig und Wasser herstellte, wie es noch Plinius h. n. 14, 113 zur Bereitung des sogenannten ὑδρόμελι empfiehlt: Fit vinum et ex aqua ac melle tantum. Quinquennio ad hoc servari caelestem [aquam] iubent; aliqui prudentiores statim ad tertias partes decoquunt et tertiam mellis veteris adiciunt; deinde 90 diebus Canis ortu in Sole habent. Hoc vocatur hydromeli et vetustate saporem vini assequitur, nusquam laudatius quam in Phrygia.* Ähnlich heißt es Geopon. 8, 28: ὑδρομέλιτος σκευασία. Λαβὼν ὄμβριον ὕδωρ παλαιὸν ἢ ἄλλως ἀφηψημένον ἐπὶ τρίτον μίξον μέλιτος τὸ ἀρκοῦν καὶ εἰς ἀγγεῖον ἐμβαλὼν ἀπόθου εἰς σκιὰν ἐπὶ ἡμέρας ι΄ ...παλαιούμενον δὲ κρεῖττον ἂν γένοιτο. Dieser Meth muss eine recht berauschende Wirkung gehabt haben; in einem interessanten Fragment des Orpheus, welches uns Porphyr. de a. nymph. p. 118 Barnes. (= Orphica ed. G. Hermann p. 500) aufbewahrt hat, wird uns erzählt, wie Zeus dem Kronos nachstellt, nachdem er ihn mittelst eines Honigtranks berauscht hat: Παρὰ τῷ Ὀρφεῖ ὁ Κρόνος μέλιτι ὑπὸ Διὸς ἐνεδρεύεται. πλησθεὶς γὰρ μέλιτος μεθύει καὶ σκοτοῦται, ὡς ἀπὸ οἴνου, καὶ ὑπνοῖ --- οὕπω γὰρ οἷνος ἦν. φησὶ γὰρ παρ᾽ Ὀρφεῖ ἡ Νὺξ τῷ Διὶ ὑποτιθεμένη τὸν διὰ μέλιτος δόλον ·
+Wir ersehen daraus, dass man in ältester Zeit den Meth aus einem Gemisch von Honig und Wasser herstellte, wie es noch Plinius h. n. 14, 113 zur Bereitung des sogenannten ὑδρόμελι empfiehlt: Fit vinum et ex aqua ac melle tantum. Quinquennio ad hoc servari caelestem [aquam] iubent; aliqui prudentiores statim ad tertias partes decoquunt et tertiam mellis veteris adiciunt; deinde 90 diebus Canis ortu in Sole habent. Hoc vocatur hydromeli et vetustate saporem vini assequitur, nusquam laudatius quam in Phrygia.* Ähnlich heißt es Geopon. 8, 28: ὑδρομέλιτος σκευασία. Λαβὼν ὄμβριον ὕδωρ παλαιὸν ἢ ἄλλως ἀφηψημένον ἐπὶ τρίτον μίξον μέλιτος τὸ ἀρκοῦν καὶ εἰς ἀγγεῖον ἐμβαλὼν ἀπόθου εἰς σκιὰν ἐπὶ ἡμέρας ι΄ ...παλαιούμενον δὲ κρεῖττον ἂν γένοιτο. Dieser Meth muss eine recht berauschende Wirkung gehabt haben; in einem interessanten Fragment des Orpheus, welches uns Porphyr. de a. nymph. p. 118 Barnes. (= Orphica ed. G. Hermann p. 500) aufbewahrt hat, wird uns erzählt, wie Zeus dem Kronos nachstellt, nachdem er ihn mittelst eines Honigtranks berauscht hat: Παρὰ τῷ Ὀρφεῖ ὁ Κρόνος μέλιτι ὑπὸ Διὸς ἐνεδρεύεται. πλησθεὶς γὰρ μέλιτος μεθύει καὶ σκοτοῦται, ὡς ἀπὸ οἴνου, καὶ ὑπνοῖ --- οὕπω γὰρ οἷνος ἦν. φησὶ γὰρ παρ' Ὀρφεῖ ἡ Νὺξ τῷ Διὶ ὑποτιθεμένη τὸν διὰ μέλιτος δόλον ·
 
 Εὖτ ἂν δή μιν ἴδηαι ὑπὸ δρυσὶν ὑψικόμοισιν  
 ἔργοισιν μεθύοντα μελισσάων ἐριβόμβων,  
@@ -625,9 +625,9 @@ Schon in der Zeit Alexanders d. Gr. scheint die Bereitung des berauschenden Honi
 
 *) Colum. 12, 12: Haec autem (aqua mulsa) non uno modo componitur. nam quidam multos ante annos caelestem aquam vasis includunt et sub dio in sola habent: deinde cum saepius eam in alia vasa transfuderint et eliquaverint... veteris aquae sextarium cum dodrante pondo mellis diluunt et ea portione repletam lagoenam gypsatamque patiuntur per Caniculae ortum in sole 90 diebus esse; tum demum in tabulatum, quod fumum accipit, reponunt etc. Vgl. auch Plin. h. n. 22, 110-112. Pallad. 8, 7. Oribas. 1. p. 360 ff.
 
-*) Aristot. mir. ausc. 22 (ed. Didot 4. 78, 16): ἐν Ἰλλυριοῖς φασι τοὺς Ταυλαντίους καλουμένους ἐκ τοῦ μέλιτος ποιεῖν οἷνον. Ὅταν δὲ τὰ κηρία ἐκθλίψωσιν, ὕδωρ ἐπιχέοντες ἔψουσιν ἐν λέβητι ἕως ἂν ἐκλίπῃ τὸ ἥμισυ, ἔπειτα εἰς κεράμια ἐκχέαντες καὶ ἡμίσεα ποιήσαντες τιθέασιν εἰς σανίδας. ἐν τούτοις δὲ φασι ζεῖν πολὺν χρόνον καὶ γίνεσθαι οἰνῶδες καὶ ἄλλως ἡδὺ καὶ εὔτονον. Ἤδη δὲ τισι καὶ τῶν ἐν Ἑλλάδι συμβεβηκέναι λέγουσι τοῦτο, ὥστε μηδὲν διαφέρειν οἴνου παλαιοῦ, καὶ ζητοῦντας ὕστερον τὴν κρᾶσιν μὴ δύνασθαι εὑρεῖν. Plut. Q. Symp. 4, 6, 2: καὶ μέχρι νῦν τῶν βαρβάρων οἱ μὴ ποιοῦντες οἶνον μελίτειον πίνουσιν, ὑποφαρμάσσοντες τὴν γλυκύτητα οἰνώδεσι ῥίζαις καὶ αὐστηραῖς. Hesych. μελέτιον. πόμα τι Σκυθικὸν μέλιτος ἑψομένου σὺν ὕδατι καὶ πόᾳ τινί. Vgl. Max. Tyr. 27, 6. Übrigens soll auch der frische Honig ungegohren eine berauschende Wirkung gehabt haben: Vgl. Long. Past. 1, 25: τὸ φίλημα... ὥσπερ τὸ νέον μέλι μαίνεσθαι ποιεῖ. Hy. in Merc. 556 ff. αἳ (Θριαὶ) δ᾽ ὅτε μὲν θυίωσιν ἐδηδυῖαι μέλι χλωρόν. Xen. Anab. 4, 8, 20: καὶ τῶν κηρίων ὅσοι ἔφαγον... πάντες ἄφρονες... ἐγίγνοντο... ἀλλ᾽ οἱ μὲν ὀλίγον ἐδηδοκότες σφόδρα μεθύουσιν ἐῴκεσαν, οἱ δὲ πολὺ μαινομένοις. Vgl. dagegen Galen. ed. K. 14, 12: τὸ γοῦν ἀπὸ Κνίδου [μέλι] κακέαν... ἐνδείκνυται χρονέζον, εἰς οἰνώδη μεταβάλλον ποιότητα. παραπλήσιον δέ τι πέπονθεν τὸ Ῥόδιον κ. τ. λ. Vgl. auch Diosc. 2, 103.
+*) Aristot. mir. ausc. 22 (ed. Didot 4. 78, 16): ἐν Ἰλλυριοῖς φασι τοὺς Ταυλαντίους καλουμένους ἐκ τοῦ μέλιτος ποιεῖν οἷνον. Ὅταν δὲ τὰ κηρία ἐκθλίψωσιν, ὕδωρ ἐπιχέοντες ἔψουσιν ἐν λέβητι ἕως ἂν ἐκλίπῃ τὸ ἥμισυ, ἔπειτα εἰς κεράμια ἐκχέαντες καὶ ἡμίσεα ποιήσαντες τιθέασιν εἰς σανίδας. ἐν τούτοις δὲ φασι ζεῖν πολὺν χρόνον καὶ γίνεσθαι οἰνῶδες καὶ ἄλλως ἡδὺ καὶ εὔτονον. Ἤδη δὲ τισι καὶ τῶν ἐν Ἑλλάδι συμβεβηκέναι λέγουσι τοῦτο, ὥστε μηδὲν διαφέρειν οἴνου παλαιοῦ, καὶ ζητοῦντας ὕστερον τὴν κρᾶσιν μὴ δύνασθαι εὑρεῖν. Plut. Q. Symp. 4, 6, 2: καὶ μέχρι νῦν τῶν βαρβάρων οἱ μὴ ποιοῦντες οἶνον μελίτειον πίνουσιν, ὑποφαρμάσσοντες τὴν γλυκύτητα οἰνώδεσι ῥίζαις καὶ αὐστηραῖς. Hesych. μελέτιον. πόμα τι Σκυθικὸν μέλιτος ἑψομένου σὺν ὕδατι καὶ πόᾳ τινί. Vgl. Max. Tyr. 27, 6. Übrigens soll auch der frische Honig ungegohren eine berauschende Wirkung gehabt haben: Vgl. Long. Past. 1, 25: τὸ φίλημα... ὥσπερ τὸ νέον μέλι μαίνεσθαι ποιεῖ. Hy. in Merc. 556 ff. αἳ (Θριαὶ) δ' ὅτε μὲν θυίωσιν ἐδηδυῖαι μέλι χλωρόν. Xen. Anab. 4, 8, 20: καὶ τῶν κηρίων ὅσοι ἔφαγον... πάντες ἄφρονες... ἐγίγνοντο... ἀλλ' οἱ μὲν ὀλίγον ἐδηδοκότες σφόδρα μεθύουσιν ἐῴκεσαν, οἱ δὲ πολὺ μαινομένοις. Vgl. dagegen Galen. ed. K. 14, 12: τὸ γοῦν ἀπὸ Κνίδου [μέλι] κακέαν... ἐνδείκνυται χρονέζον, εἰς οἰνώδη μεταβάλλον ποιότητα. παραπλήσιον δέ τι πέπονθεν τὸ Ῥόδιον κ. τ. λ. Vgl. auch Diosc. 2, 103.
 
-*) Eustath. ad. Od. κ. p. 411, 12: μελίκρατον δὲ οἱ παλαιοὶ μίγμα φασὶ μέλιτος καὶ γάλακτος ἐνταῦθα. οἱ μέντοι μεθ᾽ Ὅμηρον μέχρι καὶ ἐσάρτι τρᾶμα μέλιτος καὶ ὕδατος τὸ μελίκρατον οἴδασι. (Vgl. Od. κ 518 f.) Soph. Oed. Col. 482: ὕδατος, μελίσσης, μηδὲ προσφέρειν μέθυ. Schol. μελίκρατον. Moer. Att. p. 187 ed. Lips. μελίπκρατον, Ἀττικῶς. οἰνόμελι καὶ ὑδρόμελι Ἐλληνικῶς. Vgl. auch Eurip. Or. 114.
+*) Eustath. ad. Od. κ. p. 411, 12: μελίκρατον δὲ οἱ παλαιοὶ μίγμα φασὶ μέλιτος καὶ γάλακτος ἐνταῦθα. οἱ μέντοι μεθ' Ὅμηρον μέχρι καὶ ἐσάρτι τρᾶμα μέλιτος καὶ ὕδατος τὸ μελίκρατον οἴδασι. (Vgl. Od. κ 518 f.) Soph. Oed. Col. 482: ὕδατος, μελίσσης, μηδὲ προσφέρειν μέθυ. Schol. μελίκρατον. Moer. Att. p. 187 ed. Lips. μελίπκρατον, Ἀττικῶς. οἰνόμελι καὶ ὑδρόμελι Ἐλληνικῶς. Vgl. auch Eurip. Or. 114.
 
 Vermutungsweise sei hier erwähnt, dass Dionysos vor der Einführung des Weinbaus in Hellas und Thrakien ein Gott des Methes war. So erklären sich nämlich am einfachsten die deutlichen Beziehungen, welche er zum Honig hatte. Nach einer zwar nur von Ovid. Fast. 3, 735 ff. überlieferten, aber doch wahrscheinlich uralten Legende soll Dionysos in Thrakien den Genuss des Honigs erfunden haben (a Baccho mella reperta ferunt), man erzählte auch, dass die Thyrsosstäbe und die Bäume bei den schwärmerischen Feiern der Thyiaden von Honig getrieft hätten (s. oben Anm. 31). Ähnlich ist es wohl zu erklären, wenn dem italischen Liber Honigkuchen (liba) geopfert wurden. (Preller, r. Myth. 1 444. Ov. a. a. O.).
 
@@ -646,7 +646,7 @@ Schließlich kommt in diesem Zusammenhange der Honig auch als Reinigungsmittel (
 
 *) Aristot. Probl. ined. 1, 2 (= ed. Didot. 4, 291, 31): Ἔστι δὲ [τὸ σάκχαρ] ῤυπτικῆς... δυνάμεως ὡσαύτως τῷ μέλιτι τῷ μετέχειν ἰχωροειδοῦς τινος ῤύψεως. Galen. 10, 569 ed. K.: μετριώτατα μὲν οὖν ῥύπτει τό τε τῶν ὀρόβων ἄλευρον καὶ τὸ τῶν κριθῶν καὶ τὸ τῶν κυάμων ἔτι καὶ τὸ μελίκρατον τὸ ὑδαρὲς... γίνεται δὲ τοιοῦτο τῷ μέλιτι μιχθέντος ὕδατος βραχέως, ὡς χυθὲν τοῖς μικροῖς τοῦ δἐρματος εὐκόλως ἐνδῦναι πόροις. ib. 11, 744: ῥύπον δὲ ἑλκῶν ἢ καὶ τοῦ δέρματος οὐ ταῦτα μόνον ἀλλὰ καὶ τὰ μετριώτατα ταῖς δυνάμεσιν ἀφαιρεῖν πέφυκεν, οἶάπερ ἐστι τὰ λεπτομερὴ γλυκέα, καθάπερ τὸ μέλι καὶ τῶν σιτηρῶν σπερμάτων ἕνια, καθάπερ ὅροβοι κ. τ. λ. Cels. 5, 16: cutem mel purgat. Diosc. 2, 101.
 
-*) Porphyr. de antro. n. 15: καὶ καθαρτικῆς ἔστι δυνάμεως [τὸ μέλι]... Ὅταν μὲν οὖν τοῖς τὸ λεοντικὰ μυουμένοις εἰς τὰς χεῖρας ἀνθ᾽ ὕδατος μέλι νίψασθαι ἐγχέωσι, καθαρὰς ἔχειν τὰς χεῖρας παραγγέλλουσιν ἀπὸ παντὸς λυπηροῦ καὶ βλαπτικοῦ καὶ μυσαροῦ... Καθαίρουσι δὲ καὶ τὴν γλῶσσαν τῷ μέλιτι ἀπὸ παντὸς ἁμαρτωλοῦ.
+*) Porphyr. de antro. n. 15: καὶ καθαρτικῆς ἔστι δυνάμεως [τὸ μέλι]... Ὅταν μὲν οὖν τοῖς τὸ λεοντικὰ μυουμένοις εἰς τὰς χεῖρας ἀνθ' ὕδατος μέλι νίψασθαι ἐγχέωσι, καθαρὰς ἔχειν τὰς χεῖρας παραγγέλλουσιν ἀπὸ παντὸς λυπηροῦ καὶ βλαπτικοῦ καὶ μυσαροῦ... Καθαίρουσι δὲ καὶ τὴν γλῶσσαν τῷ μέλιτι ἀπὸ παντὸς ἁμαρτωλοῦ.
 
 *) Vgl. auch Ovid. Medic. fac. 66 u. 81, wo zur Erzielung einer schönen Farbe der Haut und der Lippen eine Salbe empfohlen wird, als deren wesentlichster Bestandteil Honig erscheint. Diosc. 2, 102.
 
@@ -659,12 +659,12 @@ Bereits im Abschnitte B des vorigen Kapitels haben wir gesehen, dass die Alten s
 Die ältesten Belege für diesen Gebrauch der Ambrosia finden sich schon in der Ilias. Ξ 170 heißt es von der Hera:
 
 ἀμβροσίῃ μὲν πρῶτον ἀπὸ χροὸς ἱμερόεντος  
-λύματα πάντα κάθηρεν, ἀλείψατο δὲ λίπ᾽ ἐλαίῳ  
+λύματα πάντα κάθηρεν, ἀλείψατο δὲ λίπ' ἐλαίῳ  
 ἀμβροσίῳ ἐδανῷ, τό ῥά οἱ τεθυωμένον ἦεν,  
 τοῦ καὶ κινυμένοιο Διὸς κατὰ χαλκοβατὲς δῶ  
-ἔμπης ἐς γαῖάν τε καὶ οὐρανὸν ἵκετ᾽ ἀυτμή.
+ἔμπης ἐς γαῖάν τε καὶ οὐρανὸν ἵκετ' ἀυτμή.
 
-Wie mir scheint müssen wir an dieser Stelle zwei Arten von Ambrosia annehmen, deren erste der Hera als Seife (σμῆγμα, ῥύμμα) diente, während unter dem ἔλαιον ἀμβρόσιον eine ölige Salbe (ἐλαιῶδες μύρον vgl. unten Anm. 87) zu verstehen ist, welche hauptsächlich den Zweck hatte dem Körper einen angenehmen Wohlgeruch und der Haut einen besonderen Glanz und größere Geschmeidigkeit zu verleihen. So entspricht die Handlung der Hera wohl am besten den beiden Manipulationen, welche Homer sonst den Menschen zuschreibt, ehe sie sich zum Mahle begeben, dem λοέσσασθαι und ἀλείψασθαι (Il. 10, 578. Od. 6, 96).* Freilich wäre es auch möglich die Begriffe ἀμβροσίη und ἔλαιον ἀμβρόσιον in diesem Falle für identisch zu halten, und anzunehmen, dass die Reinigung des Körpers eben in der Salbung mit ambrosischem Öle bestand, weil sich viele schon mit der bloßen Salbung begnügten und auf eine vorherige Abwaschung mittelst eines ῥύμμα (Reinigungsmittels) verzichteten (vgl. Hermann, Gr. Privatalt. 2 § 28, 4). In letzterem Falle würde also ἔλαιον ἀμβρόσιον ebenso wie anderwärts εἶδαρ ἄμβροτον oder ἀμβρόσιον für ἀμβροσίη stehen (S. 24). Der ersteren Auffassung scheint sich der Scholiast zu unserer Stelle angeschlossen zu haben, wenn er bemerkt: ἀμβροσίῃ · νῦν μὲν ὡς ἄλειμμα, ἄλλοτε δὲ ὡς ξηρὰν τροφήν, ἄλλοτε δὲ ὡς ἔλαιον · „ἀμβροσίην ὑπὸ ῥῖνα“ (Od. 4, 445) „Πατρόκλῳ δ᾽ αὖτ᾽ ἀμβροσίην“ (Il. 19, 38). ἡ διπλῆ, ὅτι ἐκ τούτου τοῦ τόπου πλανηθέντες τινὲς διέλαβον τὴν ἀμβροσίαν εἷναι ὑγρὰν τροφήν.*
+Wie mir scheint müssen wir an dieser Stelle zwei Arten von Ambrosia annehmen, deren erste der Hera als Seife (σμῆγμα, ῥύμμα) diente, während unter dem ἔλαιον ἀμβρόσιον eine ölige Salbe (ἐλαιῶδες μύρον vgl. unten Anm. 87) zu verstehen ist, welche hauptsächlich den Zweck hatte dem Körper einen angenehmen Wohlgeruch und der Haut einen besonderen Glanz und größere Geschmeidigkeit zu verleihen. So entspricht die Handlung der Hera wohl am besten den beiden Manipulationen, welche Homer sonst den Menschen zuschreibt, ehe sie sich zum Mahle begeben, dem λοέσσασθαι und ἀλείψασθαι (Il. 10, 578. Od. 6, 96).* Freilich wäre es auch möglich die Begriffe ἀμβροσίη und ἔλαιον ἀμβρόσιον in diesem Falle für identisch zu halten, und anzunehmen, dass die Reinigung des Körpers eben in der Salbung mit ambrosischem Öle bestand, weil sich viele schon mit der bloßen Salbung begnügten und auf eine vorherige Abwaschung mittelst eines ῥύμμα (Reinigungsmittels) verzichteten (vgl. Hermann, Gr. Privatalt. 2 § 28, 4). In letzterem Falle würde also ἔλαιον ἀμβρόσιον ebenso wie anderwärts εἶδαρ ἄμβροτον oder ἀμβρόσιον für ἀμβροσίη stehen (S. 24). Der ersteren Auffassung scheint sich der Scholiast zu unserer Stelle angeschlossen zu haben, wenn er bemerkt: ἀμβροσίῃ · νῦν μὲν ὡς ἄλειμμα, ἄλλοτε δὲ ὡς ξηρὰν τροφήν, ἄλλοτε δὲ ὡς ἔλαιον · „ἀμβροσίην ὑπὸ ῥῖνα“ (Od. 4, 445) „Πατρόκλῳ δ' αὖτ' ἀμβροσίην“ (Il. 19, 38). ἡ διπλῆ, ὅτι ἐκ τούτου τοῦ τόπου πλανηθέντες τινὲς διέλαβον τὴν ἀμβροσίαν εἷναι ὑγρὰν τροφήν.*
 
 *) Vgl. auch die übereinstimmenden Verse Od. θ 364 u. hy. in Ven. 61: ἔνθἁ δέ μιν Χάριτες λοῦσαν καὶ χρῖσαν ἐλαέῳ || ἀμβρότῳ, οἷα θεοὺς ἐπενήνοθεν αἰὲν ἐόντας, wo, wie es scheint, λούειν und χρίειν scharf zu scheiden ist. Od. ω 44 f. wird von dem Leichnam des Achilleus gesagt: κάτθεμεν ἐν λεχέεσσι, καθήραντες χρόα καλόν || ὕδατί τε λιαρῷ καὶ ἀλείφατι.
 
@@ -678,30 +678,30 @@ Dieselbe Bedeutung wie hier die Ambrosia hat Od. σ 192 das κάλλος ἀμβ
 
 Ähnlich wird das Wort auch Il. Π 667 f. gebraucht, wo Zeus dem Apollon befiehlt den blutigen Leichnam des Patroklos erst im Skamander zu waschen und alsdann mit Ambrosia zu salben:
 
-εἰ δ᾽ ἄγε νῦν, φίλε Φοῖβε, κελαινεφὲς αἷμα κάθηρον  
+εἰ δ' ἄγε νῦν, φίλε Φοῖβε, κελαινεφὲς αἷμα κάθηρον  
 ἐλθὼν ἐκ βελέων Σαρπηδόνα, καί μιν ἔπειτα  
 πολλὸν ἀποπρὸ φέρων λοῦσον ποταμοῖο ῥοῇσιν  
-χρῖσόν τ᾽ ἀμβροσίῃ...
+χρῖσόν τ' ἀμβροσίῃ...
 
 Diese ambrosische Salbe dient auch gelegentlich ebenso wie der Genuss der ambrosischen Speise dazu, Menschen unsterblich, d. i. zu Göttern zu machen. So heißt es Hy. in Cer. 234 vom kleinen Demophoon, den Demeter unsterblich machen will:
 
-Δημοφόωνθ᾽, ὃν ἔτικτεν ἐΰζωνος Μετάνειρα,  
-ἔτρεφεν ἐν μεγάροις · ὁ δ᾽ ἀέξετο δαίμονι ἶσος  
+Δημοφόωνθ', ὃν ἔτικτεν ἐΰζωνος Μετάνειρα,  
+ἔτρεφεν ἐν μεγάροις · ὁ δ' ἀέξετο δαίμονι ἶσος  
 ...  
-χρίεσκ᾽ ἀμβοοσίῃ, ὡσεὶ θεοῦ ἐκγεγαῶτα.
+χρίεσκ' ἀμβοοσίῃ, ὡσεὶ θεοῦ ἐκγεγαῶτα.
 
 Genau dasselbe erzählen Apollonios Rhodios und Apollodoros* von der Thetis, als sie den Achilles unsterblich zu machen gedachte.
 
 Apoll. Rh. 4, 869:
 
 ἢ μὲν γὰρ βροτέας αἰεὶ περὶ σάρκας ἔδαιεν  
-νύκτα διὰ μέσσην φλογμῷ πυρός · ἥματα δ᾽ αὖτε  
+νύκτα διὰ μέσσην φλογμῷ πυρός · ἥματα δ' αὖτε  
 ἀμβροσίῃ χρίεσκε τέρεν δέμας, ὄφρα πέλοιτο  
 ἀθάνατος, καί οἱ στυγερὸν χροῒ γῆρας ἀλάλκοι.
 
 *) Schol. z. d. St. Κάλλεῒ νῦν τὰ μύρα. Μυθικῶς θείῳ τινὶ χρίσματι.
 
-*) Vgl. Apollod. bibl. 3, 13, 6: Θέτις... ἀθάνατον θέλουσα ποιῆσαι τοῦτο [τὸ βρέφος] κρύφα Πηλέως εἰς τὸ πῦρ ἐγκρυβοῦσα τῆς νυκτὸς ἔφθειρεν ὃ ἦν αὐτῳ θνητὸν πατρῷον, μεθ᾽ ἡμέραν δὲ ἔχριεν ἀμβροσίᾳ.
+*) Vgl. Apollod. bibl. 3, 13, 6: Θέτις... ἀθάνατον θέλουσα ποιῆσαι τοῦτο [τὸ βρέφος] κρύφα Πηλέως εἰς τὸ πῦρ ἐγκρυβοῦσα τῆς νυκτὸς ἔφθειρεν ὃ ἦν αὐτῳ θνητὸν πατρῷον, μεθ' ἡμέραν δὲ ἔχριεν ἀμβροσίᾳ.
 
 Ebenso dachte man sich endlich Aphrodite den Adonis und Kyrene den Aristaios mit Nektar oder Ambrosia salbend.* Auch in letzterem Falle hat man sich die Ambrosia als eine Art Oel zu denken, weil es der Kyrene darauf ankommt ihren Sohn für den bevorstehenden Ringkampf mit dem Proteus zu stärken und vorzubereiten (vgl. Hermann, Gr. Privatalt. 2
 § 37, 19). Auch aus diesen Stellen geht veieder unwiderleglich hervor, dass man sich unter Ambrosia keineswegs immer eine feste Substanz zu denken hat.
@@ -722,7 +722,7 @@ Das ganze Altertum kannte keine süssere und lieblichere Speise als den Honig, w
 
 *) Galen. π. ἀντιδ. 1, 2 (vol. 14, p. 11 ed. K.) Vgl. auch Aristot. de an. 2, 9, 3: ἡ γλυκεῖα ὀσμὴ εἴληφε τὸ ὄνομα ἀπὸ τοῦ μέλιτος. Cic. de fin. 3, 34: Mel... dulcissimum est. Ecclesiast. 11, 3: μικρὰ ἐν πετεινοῖς μέλισσα καὶ ἀρχὴ γλυκυσμάτων ὁ καρπὸς αὐτῆς.
 
-*) Ath. 39 b: Ἴβυκος δὲ φησι τὴν ἀμβροσίαν τοῦ μέλιτος κατ᾽ ἐπίτασιν ἐνναπλασίαν ἔχειν γλυκύτητα, τὸ μέλι λέγων ἔνατον εἶναι μέρος τῆς ἀμβροσίας κατὰ τὴν ἡδονήν. Vgl. Schol. Pind. Pyth. 9, 113: ἔστε δὲ καὶ τοῦ μέλιτος εὑρετὴς ὁ Ἀρισταῖος, ὃ δὴ τῆς ἀθανασίας δέκατον μέρος ᾠήθησαν εἶναι. Anth. 2, 133, 6 ed. Brunck: ἀμβροσίων ἔαρος κηρῶν μέλι πολλὸν ἀμέλξας. Tzetz. Hist. 8, 984: οὑτοι (Epicurei) τιμῶντες ἡδονὴν καὶ τὰ γλυκέα πάντα τὸ μέλι μέρος δέκατον ἐκάλουν ἀμβροσίας.
+*) Ath. 39 b: Ἴβυκος δὲ φησι τὴν ἀμβροσίαν τοῦ μέλιτος κατ' ἐπίτασιν ἐνναπλασίαν ἔχειν γλυκύτητα, τὸ μέλι λέγων ἔνατον εἶναι μέρος τῆς ἀμβροσίας κατὰ τὴν ἡδονήν. Vgl. Schol. Pind. Pyth. 9, 113: ἔστε δὲ καὶ τοῦ μέλιτος εὑρετὴς ὁ Ἀρισταῖος, ὃ δὴ τῆς ἀθανασίας δέκατον μέρος ᾠήθησαν εἶναι. Anth. 2, 133, 6 ed. Brunck: ἀμβροσίων ἔαρος κηρῶν μέλι πολλὸν ἀμέλξας. Tzetz. Hist. 8, 984: οὑτοι (Epicurei) τιμῶντες ἡδονὴν καὶ τὰ γλυκέα πάντα τὸ μέλι μέρος δέκατον ἐκάλουν ἀμβροσίας.
 
 *) μέλι γλυκερόν Od. υ. 69 ω. 68. Orph. Lith. 500, 663. Theocr. Id. 15, 117. γλυκεῖαι μέλιτος ῥοαί. Eur. Bacch. 710. γλυκὺ κηρίον Callim. hy. in Jov. 50. Anth. Gr. ed. Brunck 3, 177, 30. γλυκερὴ ἐέρση Hesiod. Theog. 81. θεῶν ἡδεῖαν ἐδωδήν Hy. in Merc. 562. dulcia mella Verg. Geo. 4, 101. Pind. Isthm. 4, 60: ἐν ἐρατεινῷ μέλιτι. Orph. Lith. 729: ἐρατόν τε μελίσσης ἄνθιμον εἶδαρ.
 
@@ -768,11 +768,11 @@ Theogn. 5:
 
 Ar. Ach. 196:
 
-αὗται μὲν ὄζουσ᾽ ἀμβροσίας καὶ νέκταρος.
+αὗται μὲν ὄζουσ' ἀμβροσίας καὶ νέκταρος.
 
 Philoxenos b. Ath. 409 e (= Bergk fr. Lyr. Gr. 2 p. 990):
 
-...ἔπειτα δὲ παῖδες νίπτρ᾽ ἔδοσαν κατὰ χειρῶν  
+...ἔπειτα δὲ παῖδες νίπτρ' ἔδοσαν κατὰ χειρῶν  
 ...δίδοσαν δὲ χρίματα τ᾿ ἀμβροσίοδμα καὶ στεφάνους ἰοθαλέας.
 
 Nossis Anth. Gr. 6, 275:
@@ -783,7 +783,7 @@ Nossis Anth. Gr. 6, 275:
 Theokr. Id. 17, 28:
 
 τῷ [Ἡρακλεῖ] καὶ ἐπεὶ δαίτηθεν ἴοι κεκορημένος ἤδη  
-νέκταρος εὐόδμοιο φίλας ἐς δῶμ᾽ ἀλόχοιο,  
+νέκταρος εὐόδμοιο φίλας ἐς δῶμ' ἀλόχοιο,  
 τῷ μὲν τόξον ἔδωκεν ὑπωλένιόν τε φαρέτραν.
 
 Lucr. 2, 847:
@@ -816,21 +816,21 @@ Der Glaube an eine die Gesundheit des Menschen fördernde Kraft des Honigs war i
 
 Vor allem sind hier zwei ältere Philosophen, Pythagoras und Demokrit, zu nennen, welche nicht bloß ihren Anhängern den Genuss des Honigs empfahlen, sondern auch selbst in dieser Beziehung mit gutem Beispiele vorangegangen sein sollen. Dass sie hierin nur einer allgemein verbreiteten Volksmeinung folgten, wird aus später folgenden Zeugnissen klar werden.
 
-Die interessanteste und vollständigste Mitteilung in Betreff der Hochschätzung des Honiggenusses seitens des Demokrit und Pythagoras findet sich bei Athenaios 2, 46 e: Δημόκριτον δὲ τὸν Ἀβδηρίτην λόγος ἔχει διὰ γῇρας ἐξάξαι αὑτὸν διεγνωκότα τοῦ ζῆν, καὶ ὑφαιροῦντα τῆς τροφῆς καθ᾽ ἑκάστην ἡμέραν, ἐπεὶ αἱ τῶν Θεσμοφορίων ἡμέραι ἐνέστησαν, δεηθεισῶν τῶν οἰκείων γυναικῶν μὴ ἀποθανεῖν κατὰ τὴν πανήγυριν, ὅπως ἑορτάσωσι, πεισθῆναι κελεύσαντα μέλιτος ἀγγεῖον αὑτῷ πλησίον παρατεθῆναι, καὶ διαζῆσαι ἡμέρας ἱκανὰς τὸν ἄνδρα τῇ ἀπὸ τοῦ μέλιτος ἀναφορᾷ μόνῃ χρώμενον, καὶ μετὰ τὰς ἡμέρας βασταχθέντος τοῦ μέλιτος ἀποθανεῖν. ἔχαιρε δὲ ὁ Δημόκριτος ἀεὶ τῷ μέλιτι · καὶ πρὸς τὸν πυθόμενον πῶς ἂν ὑγιῶς τις διάγοι, · ἔφη, εἰ τὰ μὲν ἐντὸς μέλιτι βρέχοι τὰ δ᾽ ἐκτὸς ἐλαίῳ* καὶ τῶν Πυθαγορικῶν δὲ τροφὴ ἦν ἄρτος μετὰ μέλιτος, ὥς φησιν Ἀριστόξενος* τοὺς προσφερομένους ἀεὶ ἐπ' ἀρίστῳ λέγων ἀνόσους διατελεῖν. Nach Lykos sollten die Kyrnier (Korsen) ihre auffallend lange Lebensdauer dem fortwährenden Genüsse des massenhaft bei ihnen erzeugten Honigs verdanken.* Plinius berichtet, dass ein gewisser Pollio Romilius durch fortgesetzten Genuss des Honigmethes (mulsum) sein Leben über hundert Jahre gebracht und dem Kaiser Augustus, welcher ihn nach dem Grunde solcher Lebensfrische fragte, dieselbe Antwort wie Demokrit gegeben habe.* Galenos empfiehlt daher namentlich Greisen den Genuss des Honigs,* während Hippokrates seine Nahrhaftigkeit rühmt und hinzufügt, dass er namentlich eine gesunde Farbe des Körpers bewirke.* Letztere Ansicht hängt vielleicht mit der mehrfach bezeugten Erfahrung zusammen, dass Honig den menschlichen Körper innerlich durch gelinde Abführung* und äußerlich durch Salbungen und Waschungen reinige, für welche Tatsache ich schon oben eine Anzahl Zeugnisse gesammelt habe (s. Anm. 83). Dieselben Ansichten von der gesundheitsfördernden Wirkung des Honigs finden sich auch bei andern Völkern, z. B. den Semiten* und Germanen.*
+Die interessanteste und vollständigste Mitteilung in Betreff der Hochschätzung des Honiggenusses seitens des Demokrit und Pythagoras findet sich bei Athenaios 2, 46 e: Δημόκριτον δὲ τὸν Ἀβδηρίτην λόγος ἔχει διὰ γῇρας ἐξάξαι αὑτὸν διεγνωκότα τοῦ ζῆν, καὶ ὑφαιροῦντα τῆς τροφῆς καθ' ἑκάστην ἡμέραν, ἐπεὶ αἱ τῶν Θεσμοφορίων ἡμέραι ἐνέστησαν, δεηθεισῶν τῶν οἰκείων γυναικῶν μὴ ἀποθανεῖν κατὰ τὴν πανήγυριν, ὅπως ἑορτάσωσι, πεισθῆναι κελεύσαντα μέλιτος ἀγγεῖον αὑτῷ πλησίον παρατεθῆναι, καὶ διαζῆσαι ἡμέρας ἱκανὰς τὸν ἄνδρα τῇ ἀπὸ τοῦ μέλιτος ἀναφορᾷ μόνῃ χρώμενον, καὶ μετὰ τὰς ἡμέρας βασταχθέντος τοῦ μέλιτος ἀποθανεῖν. ἔχαιρε δὲ ὁ Δημόκριτος ἀεὶ τῷ μέλιτι · καὶ πρὸς τὸν πυθόμενον πῶς ἂν ὑγιῶς τις διάγοι, · ἔφη, εἰ τὰ μὲν ἐντὸς μέλιτι βρέχοι τὰ δ' ἐκτὸς ἐλαίῳ* καὶ τῶν Πυθαγορικῶν δὲ τροφὴ ἦν ἄρτος μετὰ μέλιτος, ὥς φησιν Ἀριστόξενος* τοὺς προσφερομένους ἀεὶ ἐπ' ἀρίστῳ λέγων ἀνόσους διατελεῖν. Nach Lykos sollten die Kyrnier (Korsen) ihre auffallend lange Lebensdauer dem fortwährenden Genüsse des massenhaft bei ihnen erzeugten Honigs verdanken.* Plinius berichtet, dass ein gewisser Pollio Romilius durch fortgesetzten Genuss des Honigmethes (mulsum) sein Leben über hundert Jahre gebracht und dem Kaiser Augustus, welcher ihn nach dem Grunde solcher Lebensfrische fragte, dieselbe Antwort wie Demokrit gegeben habe.* Galenos empfiehlt daher namentlich Greisen den Genuss des Honigs,* während Hippokrates seine Nahrhaftigkeit rühmt und hinzufügt, dass er namentlich eine gesunde Farbe des Körpers bewirke.* Letztere Ansicht hängt vielleicht mit der mehrfach bezeugten Erfahrung zusammen, dass Honig den menschlichen Körper innerlich durch gelinde Abführung* und äußerlich durch Salbungen und Waschungen reinige, für welche Tatsache ich schon oben eine Anzahl Zeugnisse gesammelt habe (s. Anm. 83). Dieselben Ansichten von der gesundheitsfördernden Wirkung des Honigs finden sich auch bei andern Völkern, z. B. den Semiten* und Germanen.*
 
 *) Noch ausführlicher berichten die Geopon. 15, 7: οὐ μόνον γὰρ ἡδὺ τοῖς χρωμένοις ἀλλὰ καὶ μακροβίους ποιεὶ. οἱ οὖν ἐν γήρᾳ μέλιτι μετὰ ἄρτου μόνον τρεφόμενοι ἐπὶ πλεῖστον βιοῦσι καὶ τὰς αἰσθήσεις δὲ φυλάττουσι πάσας ἐρρωμένας. Δημόκριτος δὲ ἐρωτηθεὶς πῶς ἂν ἄνοσοι καὶ μακραίωνες γίγνοιντο οἱ ἄνθρωποι, εἷπεν · εἰ τὰ μὲν κ. τ. λ.
 
 *) In Betreff des Pythagoras und seiner Schüler vgl. auch Laert. Diog. vita Pythag. 18, 19. Porphyrios v. Pyth. 34. Jamblich. v. Pyth. 97. Eustath. z. Il. Λ 680.
 
-*) Ath. 47 a: Λύκος δὲ πολυχρονίους φησὶν εἶναι τοὺς Κυρνίους, οἰκοῦσι δὲ οὗτοι περὶ Σαρδόνα, διὰ τὸ μέλιτι ἀεὶ χρῆσθαι. πλεῖστον δὲ τοῦτο γίνεται παρ᾽ αὐτοὶς.
+*) Ath. 47 a: Λύκος δὲ πολυχρονίους φησὶν εἶναι τοὺς Κυρνίους, οἰκοῦσι δὲ οὗτοι περὶ Σαρδόνα, διὰ τὸ μέλιτι ἀεὶ χρῆσθαι. πλεῖστον δὲ τοῦτο γίνεται παρ' αὐτοὶς.
 
 *) Plin. h. n. 22, 114: Multi senectam longam mulsi tantum nutritu toleravere, neque alio ullo cibo, celebri Pollionis Romilii exemplo. Centesimum annum excedentem eum Divus Augustus hospes interrogavit, quanam maxime ratione vigorem illum animi corporisque custodisset. At ille respondit: intus mulso, foris oleo.
 
-*) Galen. 6, 742 ed. K. κεφάλαιον δ᾽ αὐτῶν ἐστιν, γέρουσι μὲν καὶ ὅλως ψυχραῖς τοῦ σώματος κράσεσιν ἐπιτήδειον εἶναι [τὸ μέλι].
+*) Galen. 6, 742 ed. K. κεφάλαιον δ' αὐτῶν ἐστιν, γέρουσι μὲν καὶ ὅλως ψυχραῖς τοῦ σώματος κράσεσιν ἐπιτήδειον εἶναι [τὸ μέλι].
 
 *) Hippocr. 2, 424 ed. K. τὸ μέλι ξὺν μὲν ἑτέροις ἐσθιόμενον καὶ τρέφει καὶ εὔχροιαν παρέχει. Plin. h. n. 11, 11: [Apes] mella contrahunt sucumque dulcissimum atque subtilissimum ac saluberrimum.
 
-*) Galen. 6, 740 ed. K. λεπτομερὲς δ᾽ ὑπάρχον ἐξ ἀνάγκης ἔχει τι καὶ δριμύ · διὸ πρὸς ἔκκρισιν ἐπεγείρει τὴν γαστέρα. Sim. Seth. synt. alim. fac. ed. Langkavel p. 69: καθαίρει τοῦ ῥύπου τὸ σῶμα. Cels. 5, 5: purgat mel crudum. ib. 2, 19: alvum movet.
+*) Galen. 6, 740 ed. K. λεπτομερὲς δ' ὑπάρχον ἐξ ἀνάγκης ἔχει τι καὶ δριμύ · διὸ πρὸς ἔκκρισιν ἐπεγείρει τὴν γαστέρα. Sim. Seth. synt. alim. fac. ed. Langkavel p. 69: καθαίρει τοῦ ῥύπου τὸ σῶμα. Cels. 5, 5: purgat mel crudum. ib. 2, 19: alvum movet.
 
 *) Sprichw. Salom. 24, 13: Iss, mein Sohn, Honig, denn es ist gut, und Honigseim ist süß in deinem Halse. 1. Sam. 14, 27: Jonathan... reckte seinen Stab aus, den er in der Hand hatte, und tunkte mit der Spitze in den Honigseim und wandte seine Hand zu seinem Munde: da wurden seine Augen wacker. Vgl. auch Sirach 39, 31.
 
@@ -852,7 +852,7 @@ Wie alt zunächst der Gebrauch des Honigs als eines Arzneimittels ist, erkennt m
 
 *) Ib. 112: Aqua mulsa et tussientibus utilis traditur etc. Vgl. auch Galen. ed. Kühn 15, 651. 809. 17 _B_ 329. 369. 15, 650. 658. 787. 10, 733. 823.
 
-*) Arist. mir. ausc. 18 (vol. 4, 77, 33 D.): Ἐν Τραπεζοῦντι τῇ ἐν τῷ Πόντῳ γίνεται τὸ ἀπὸ τῆς πύξου μέλι βαρύοσμον, καί φασι τοῦτο τοὺς μὲν ὑγιαίνοντας ἐξιστάναι, τοὺς δ᾽ ἐπιλήπτους καὶ τελέως ἀπαλλάττειν. Vgl. Ael. v. h. 5, 42 u. Geopon. 15, 9, 4.
+*) Arist. mir. ausc. 18 (vol. 4, 77, 33 D.): Ἐν Τραπεζοῦντι τῇ ἐν τῷ Πόντῳ γίνεται τὸ ἀπὸ τῆς πύξου μέλι βαρύοσμον, καί φασι τοῦτο τοὺς μὲν ὑγιαίνοντας ἐξιστάναι, τοὺς δ' ἐπιλήπτους καὶ τελέως ἀπαλλάττειν. Vgl. Ael. v. h. 5, 42 u. Geopon. 15, 9, 4.
 
 *) Vgl. a. a. O. Z. 11: Αἷμα ἀναφέροντι Ἰουλιανῷ ἀφηλπισμένῳ ὑπὸ παντὸς ἀνθρώπου ἐχρημάτισεν ὁ θεὸς ἐλθεῖν καὶ ἐκ τοῦ τριβώμου ἆραι κόκκους στροβίλου καὶ φαγεῖν μετὰ μέλιτος διὰ τρεὶς ἡμέρας, καὶ ἐσώθη κ. τ. λ. Ib. Z. 15: Οὐαλερίῳ Ἄπρῳ στρατιώτῃ τυφλῷ ἐχρημάτισεν ὁ θεὸς ἐλθεῖν καὶ λαβεῖν αἷμα ἐξ ἀλεκτρυόνος λευκοῦ μετὰ μέλιτος κ. τ. λ. Auch in Zauberrecepten spielt der Honig eine Rolle: Parthey, Zwei griech. Zauberpapyri (Abh. d. Berl. Akademie. 1866) 1, 6 u. 20 u. 2, 19.
 
@@ -873,18 +873,18 @@ In seiner schon öfters erwähnten Abhandlung über die Geburt der Athene (Fleck
 30 τῷ μὲν ἐγὼ πειρήσω ἀλαλκεῖν ἄγρια φῦλα,  
 μυίας, αἵ ῥά τε φῶτας ἀρηιφάτους κατέδουσιν.  
 ἤν περ γὰρ κῆταί γε τελεσφόρον εἰς ἐνιαυτόν,  
-αἰεὶ τῷδ᾽ ἔσται χρὼς ἔμπεδος, ἢ καὶ ἀρείων.
+αἰεὶ τῷδ' ἔσται χρὼς ἔμπεδος, ἢ καὶ ἀρείων.
 
 Darauf heißt es 5. 38:
 
-Πατρόκλῳ δ᾽ αὖτ᾽ ἀμβροσίην καὶ νέκταρ ἐρυθρόν  
+Πατρόκλῳ δ' αὖτ' ἀμβροσίην καὶ νέκταρ ἐρυθρόν  
 στάξε κατὰ ῥινῶν, ἵνα οἱ χρὼς ἔμπεδος εἴη.
 
 *) Il. _E_ 340 wird das unsterbliche Blut der Götter (ἰχώρ) aus drücklich auf den Genuss himmlischer Nahrung zurückgeführt:  
 ἄμβροτον αἷμα θεοῖο,  
 ἰχὼρ, οἷός πὲρ τε ῥέει μακάρεσσι θεοῖσιν ·  
-οὐ γὰρ σῖτον ἔδουσ᾽, οὐ πίνουσ᾽ αἴθοπα οἷνον ·  
-τοὔνεκ᾽ ἀναίμονές εἰσι καὶ ἀθάνατοι καλέονται.
+οὐ γὰρ σῖτον ἔδουσ', οὐ πίνουσ' αἴθοπα οἷνον ·  
+τοὔνεκ' ἀναίμονές εἰσι καὶ ἀθάνατοι καλέονται.
 
 Zu dem nämlichen Zwecke, nämlich um den Körper des Sarpedon vor vorzeitiger Verwesung zu bewahren, beauftragt Zeus Il. Π, 670 den Apollon denselben mit Ambrosia zu salben. Il. Ψ 186 salbt dagegen Aphrodite den Leichnam des Hektor mit ambrosischem Öle, um dessen Haut fest zu machen, damit sie durch das Schleifen nicht beschädigt werde. Wie kann man schon angesichts dieser Stellen behaupten, dass Homer den Glauben an eine unsterblich machende Wirkung der Ambrosia und des Nektars nicht gekannt habe!
 
@@ -916,15 +916,15 @@ Dieselbe Anschauung des gesamten Altertums bezeugt endlich Aristoteles Met. 2, 4
 
 Auch als göttliche Pharmaka scheinen Ambrosia und Nektar gegolten zu haben, da Apollon nach Bion den verwundeten Hyakinthos damit salbt* und nach Vergil die Venus den schwerverwundeten Aeneas mit heilkräftiger Ambrosia und wohlriechender Panacee besprengt.* Die zugleich belebende und stärkende Wirkung des Nektars scheint aus den beiden Hesychischen Glossen νεκταροῦσιν · ἐλαφρίζουσιν und νεκτάρθη · ἐθυμίσθη sowie aus der Hesiodischen Sage zu folgen, dass die Götter sich zum Kampfe mit den Titanen durch den Genuss von Ambrosia und Nektar gestärkt hätten.*
 
-*) Hes. Theog. 793: ὅς κὲν τὴν ἐπίορκον ἀπολείψας ἐπομόσσῃ || ἀθανάτων, οἳ ἔχουσι κάρη νιφόεντος Ὀλύμπου, || κεῖται νήῢτμος τετελεσμένον εἰς ἐνιαυτόν, || οὐδὲ ποτ᾽ ἀμβροσίης καὶ νέκταρος ἔρχεται ἆσσον || βρώσιος ἀλλά τε κεῖται ἀνάπνευστος καὶ ἄναυδος || στρωτοῖς ἐν λεχέεσσι, κακὸν δ᾽ ἐπὶ κῶμα καλύπτει.
+*) Hes. Theog. 793: ὅς κὲν τὴν ἐπίορκον ἀπολείψας ἐπομόσσῃ || ἀθανάτων, οἳ ἔχουσι κάρη νιφόεντος Ὀλύμπου, || κεῖται νήῢτμος τετελεσμένον εἰς ἐνιαυτόν, || οὐδὲ ποτ' ἀμβροσίης καὶ νέκταρος ἔρχεται ἆσσον || βρώσιος ἀλλά τε κεῖται ἀνάπνευστος καὶ ἄναυδος || στρωτοῖς ἐν λεχέεσσι, κακὸν δ' ἐπὶ κῶμα καλύπτει.
 
 *) Hes. Theog. 401 u. 640 f. Anm. 140.
 
-*) Bion 11: Ἀμφασία δ᾽ ἄρα Φοῖβον ἕλεν τόσον ἄλγος ἔχοντα. || δίζετο φάρμακα πάντα σοφὰν δ᾽ ἐπεμαίετο τέχναν. || χρῖεν δ᾽ ἀμβροσίᾳ καὶ νέκταρι, χρῖεν ἅπασαν || ὠτειλάν. Μοιραῖα δ᾽ ἀναλθέα τραύματα πάντα.
+*) Bion 11: Ἀμφασία δ' ἄρα Φοῖβον ἕλεν τόσον ἄλγος ἔχοντα. || δίζετο φάρμακα πάντα σοφὰν δ' ἐπεμαίετο τέχναν. || χρῖεν δ' ἀμβροσίᾳ καὶ νέκταρι, χρῖεν ἅπασαν || ὠτειλάν. Μοιραῖα δ' ἀναλθέα τραύματα πάντα.
 
 *) Vergil. Aen. 12, 419: Spargitque salubris ambrosiae sucos et odoriferam panaceam.
 
-*) Hes. Theog. 639: ἀλλ᾽ ὅτε δὴ κείνοισι παρέσχεθεν ἄρμενα πάντα, || νέκταρ τ᾽ ἀμβροσίην τε, τόπερ θεοὶ αὐτοὶ ἔδουσι, || πάντων ἐν στήθεσσιν ἀέξετο θυμὸς ἀγήνωρ.
+*) Hes. Theog. 639: ἀλλ' ὅτε δὴ κείνοισι παρέσχεθεν ἄρμενα πάντα, || νέκταρ τ' ἀμβροσίην τε, τόπερ θεοὶ αὐτοὶ ἔδουσι, || πάντων ἐν στήθεσσιν ἀέξετο θυμὸς ἀγήνωρ.
 
 # Kapitel 5.
 
@@ -952,7 +952,7 @@ In Hellas wurde diese Einbalsamierungsart namentlich bei spartanischen Königen 
 
 *) Varro b. Non. Marc. 230, 26: Heraclides Ponticus plus sapit, qui praecipit ut comburerent quam Democritus, qui ut in melle servarent. Vgl. oben S. 47.
 
-*) Stob. Flor. 6, 3: Διογένης τοὺς πολλοὺς ἔφασκεν ζῶντας μὲν ἑαυτοὺς σήπειν λουτροῖς τέγγοντας καὶ ἀφροδισίοις τήκοντας, ἀποθνήσκοντας δὲ θυμιάμασι τὸ σῶμα κελεύειν ἀποτίθεσθαι τοὺς δ᾽ ἐν μέλιτι, ὑπὲρ τοῦ μὴ ταχέως κατασαπῆναι.
+*) Stob. Flor. 6, 3: Διογένης τοὺς πολλοὺς ἔφασκεν ζῶντας μὲν ἑαυτοὺς σήπειν λουτροῖς τέγγοντας καὶ ἀφροδισίοις τήκοντας, ἀποθνήσκοντας δὲ θυμιάμασι τὸ σῶμα κελεύειν ἀποτίθεσθαι τοὺς δ' ἐν μέλιτι, ὑπὲρ τοῦ μὴ ταχέως κατασαπῆναι.
 
 *) Stat. Silv. 3, 2, 117: Duc et ad Aematheos manes, ubi belliger urbis || Conditor Hyblaeo perfusus nectare durat. Auch nach mohammedanischer Überlieferung des Ebn Batrik bei Herbelot soll Alexander in einen goldenen mit Honig gefüllten Sarg gelegt worden sein (Menzel, Myth. Forschungen 1, 207). Joseph. Antt. 14, 7, 4: καὶ ὁ νεκρὸς [des Aristobulos] αὐτοῦ ἔκειτο ἐν μέλιτι κεκηδευμένος ἐπὶ χρόνον πολὺν. Coripp. laud. Iust. 3: Thura Sabaea cremant fragrantia mella locatis || Infudunt pateris et odoro balsama succo, || Centum aliae species unguenta quemira feruntur, || Tempus in aeternum sacrum servantia corpus.
 
@@ -966,7 +966,7 @@ Schließlich bleibt noch zu erwähnen, dass der Honig ebenso wie heutzutage der 
 
 Der konservierenden Kraft des Honigs entspricht es auf das genaueste, wenn auch der Ambrosia eine gleiche Wirkung auf den animalischen Körper zugeschrieben wird, so dass auch in dieser Beziehung die Bedeutung „Unsterblichkeitsspeise oder -substanz“ gerechtfertigt erscheint. Das älteste und wichtigste Zeugnis findet sich Il. _T_ 38, wo erzählt wird, wie Thetis den Körper des toten Patroklos durch Eintröpfeln von Ambrosia und Nektar vor Verwesung schützt:
 
-Πατρόκλῳ δ᾽ αὖτ᾽ ἀμβροσίην καὶ νέκταρ ἐρυθρὸν  
+Πατρόκλῳ δ' αὖτ' ἀμβροσίην καὶ νέκταρ ἐρυθρὸν  
 στάξε κατὰ ῥινῶν, ἵνα οἱ χρὼς ἔμπεδος εἴη.*
 
 *) Schon die Pythagoreer scheinen die an dieser Stelle bezeugte konservierende Wirkung der Ambrosia auf den Honig bezogen zu haben: Porphyr. de antro n. 16.
@@ -975,13 +975,13 @@ Dass es sich in der Tat um eine Art von Einbalsamierung handelt, er sieht man na
 
 Ein zweites kaum minder wichtiges Zeugnis für die in Rede stehende Anschauung findet sich Il. Π, 670. Hier befiehlt Zeus dem Apollon den Leichnam des Sarpedon erst im Skamander zu waschen und sodann mit Ambrosia zu salben, was, wie auch die meisten Erklärer annehmen, nur den Zweck haben kann, die Leiche vor Verwesung zu schützen. Π, 670:
 
-χρῖσόν τ᾿ ἀμβροσίῃ,* περὶ δ᾽ ἄμβροτα εἴματα ἕσσον,  
+χρῖσόν τ᾿ ἀμβροσίῃ,* περὶ δ' ἄμβροτα εἴματα ἕσσον,  
 πέμπε δέ μιν πομποῖσιν ἅμα κραιπνοῖσι φέρεσθαι,  
 Ὕπνῳ καὶ Θανάτῳ διδυμάοσιν, οἵ ῥά μιν ὦκα  
-θήσουσ᾽ ἐν Λυκίης εὐρείης πίονι δήμῳ,  
+θήσουσ' ἐν Λυκίης εὐρείης πίονι δήμῳ,  
 ἔνθα ἑ ταρχύσουσι κασίγνητοί τε ἔται τε κ. τ. λ.
 
-*) Ähnlich heißt es in einem Epigramme auf den in Ios bestatteten Homer Anth. 7, 1, 3: νέκταρι δ᾽ εἰνάλιαι Νηρηΐδες ἐχρίσαντο, || καὶ νέκυν ἀκταίῃ θῆκαν ὑπὸ σπιλάδι.
+*) Ähnlich heißt es in einem Epigramme auf den in Ios bestatteten Homer Anth. 7, 1, 3: νέκταρι δ' εἰνάλιαι Νηρηΐδες ἐχρίσαντο, || καὶ νέκυν ἀκταίῃ θῆκαν ὑπὸ σπιλάδι.
 
 Hier ist namentlich auf das Verbum ταρχύω zu achten, welches unsere im vorigen Abschnitt ausgesprochene Vermutung, dass das Einbalsamieren der Leichname einst auch in Griechenland ebenso wie in Babylon, Persien und Ägypten eine Rolle spielte, zu bestätigen scheint. Derselbe Ausdruck kommt noch Il. Η 85 vor, wo Hektor verspricht den Leichnam seines Gegners im Zweikampfe den Griechen zurückzugeben, ὄφρα ἑ ταρχύσωσι καρηκομόωντες Ἀχαιοί. Etymologisch hängt ταρχύω wohl zweifellos, wie auch Lobeck, El. 1, 463 und Curtius, Grundz. d. gr. Et. 5 729 annehmen, mit ταριχεύω einbalsamieren zusammen, indem hier ein ι eingeschoben ist.* Ist dies richtig, so leuchtet ein, dass ein solcher Ausdruck für „bestatten“ keinen rechten Sinn hätte, wenn nicht wirklich das Einbalsamieren vorgekommen wäre. Wahrscheinlich liegt diesem Einbalsamieren der nicht bloß bei den Ägyptern,* sondern auch bei vielen Naturvölkern* herrschende Glaube zu Grunde, dass die Seelen der Abgeschiedenen gern die Stätten besuchen, wo die Leichen ruhen, die man demnach, um den Seelen den schrecklichen Anblick der Zerstörung und Verwesung zu ersparen, in möglichst unversehrtem Zustande zu erhalten suchte. Wenn bei den Persern _hom_ (= haoma, soma) der Zubereiter der Leichname genannt wird,* so lässt dies vielleicht auf eine ähnliche Vorstellung von der erhaltenden Wirkung des Göttertrankes schließen.
 
@@ -1005,14 +1005,14 @@ Sicherlich beruht diese Bedeutung des Honigs auf jener das ganze Altertum beherr
 
 Das älteste Zeugnis für die Geltung des Honigs als Götterspeise findet sich im Hymnus auf Hermes 560 f. Hier heißt es von den in so vieler Hinsicht rätselhaften Thrien:
 
-αἱ δ᾽ ὅτε μὲν θυίωσιν ἐδηδυῖαι μέλι χλωρὸν,  
+αἱ δ' ὅτε μὲν θυίωσιν ἐδηδυῖαι μέλι χλωρὸν,  
 προφρονέως ἐθέλουσιν ἀληθείην ἀγορεύειν ·  
-ἣν δ᾽ ἀπονοσφισθῶσι θεῶν ἡδεῖαν ἐδωδὴν,  
-ψεύδονται δὴ ἔπειτα δι᾽ ἀλλήλων δονέουσαι.
+ἣν δ' ἀπονοσφισθῶσι θεῶν ἡδεῖαν ἐδωδὴν,  
+ψεύδονται δὴ ἔπειτα δι' ἀλλήλων δονέουσαι.
 
-Ferner kommt hier das schon oben erwähnte Fragment der Orphica bei Porphyrios de antro nymph. 16 in Betracht, wo erzählt wird, dass Zeus seinen Vater Kronos überwältigte, nachdem er ihn mit Honigmeth berauscht hatte. Die eigenen Worte des Porphyrios lauten: παρὰ δὲ τῷ Ὀρφεῖ ὁ Κρόνος μέλιτι ὑπὸ Διὸς ἐνεδρεύεται, πλησθεὶς γὰρ μέλιτος μεθύει καὶ σκοτοῦται ὡς ὑπὸ οἴνου καὶ ὑπνοῖ, ὡς παρὰ Πλάτωνι ὁ Πόρος τοῦ νέκταρος πλησθείς · οὔπω γὰρ οἷνος ἦν. Φησὶ γὰρ παρ᾽ Ὀρφεῖ ἡ Νύξ τῷ Διὶ ὑποτιθεμένη τὸν διὰ μέλιτος δόλον ·
+Ferner kommt hier das schon oben erwähnte Fragment der Orphica bei Porphyrios de antro nymph. 16 in Betracht, wo erzählt wird, dass Zeus seinen Vater Kronos überwältigte, nachdem er ihn mit Honigmeth berauscht hatte. Die eigenen Worte des Porphyrios lauten: παρὰ δὲ τῷ Ὀρφεῖ ὁ Κρόνος μέλιτι ὑπὸ Διὸς ἐνεδρεύεται, πλησθεὶς γὰρ μέλιτος μεθύει καὶ σκοτοῦται ὡς ὑπὸ οἴνου καὶ ὑπνοῖ, ὡς παρὰ Πλάτωνι ὁ Πόρος τοῦ νέκταρος πλησθείς · οὔπω γὰρ οἷνος ἦν. Φησὶ γὰρ παρ' Ὀρφεῖ ἡ Νύξ τῷ Διὶ ὑποτιθεμένη τὸν διὰ μέλιτος δόλον ·
 
-Εὖτ᾽ ἂν δή μιν ἴδηαι ὑπὸ δρυσὶν ὑψικόμοισιν  
+Εὖτ' ἂν δή μιν ἴδηαι ὑπὸ δρυσὶν ὑψικόμοισιν  
 Ἔργοισιν μεθύοντα μελισσάων ἐριβόμβων,  
 Δῆσον αὐτόν.
 
@@ -1036,7 +1036,7 @@ Endlich ist hier noch der Tatsache zu gedenken, dass der Honig als erste Nahrung
 
 *) Pind. a. a. O. δύο δὲ γλαυκώπες αὐτὸν || δαιμόνων βουλαῖσι ἐθρέ. ψαντο δράκοντες ἀμεμφεῖ || ἰῷ μελισσᾶν, καδόμενοι u. Schol. z. d. St.
 
-*) Die Worte Schneiders lauten: In Graecia infantes primum melle alebantur, quod ex Paulo et Aëtio monstrat Is. Vossius ad Barnabae Epist. p. 311, cui rei ollulam cum spongia adhibuerunt etc. Vgl. K. Fr. Hermann, Gr. Privatalt. 2 33, 9. Uebersehen hat Schneider die sehr schlagende Beweisstelle der griechischen Anthologie (Jacobs, Delect. epigr. gr. 10, 62): Τὸ βρέφος Ἑρμώνακτα διεχρήσασθε, μέλισσαι, || φεῦ κύνες, ἑρπυστήν, κηρία μαιόμενον. || πολλάκι δ᾽ ἐξ ὑμέων ἐψισμένον ὤλεσατ᾽, αἴ αἴ κ. τ. λ.
+*) Die Worte Schneiders lauten: In Graecia infantes primum melle alebantur, quod ex Paulo et Aëtio monstrat Is. Vossius ad Barnabae Epist. p. 311, cui rei ollulam cum spongia adhibuerunt etc. Vgl. K. Fr. Hermann, Gr. Privatalt. 2 33, 9. Uebersehen hat Schneider die sehr schlagende Beweisstelle der griechischen Anthologie (Jacobs, Delect. epigr. gr. 10, 62): Τὸ βρέφος Ἑρμώνακτα διεχρήσασθε, μέλισσαι, || φεῦ κύνες, ἑρπυστήν, κηρία μαιόμενον. || πολλάκι δ' ἐξ ὑμέων ἐψισμένον ὤλεσατ', αἴ αἴ κ. τ. λ.
 
 *) Bṛhadaraṇyaka 6, 4. Çatap. brâhm. b. Weber S. 1108: Indem der Vater seinen Mund an das rechte Ohr des Neugeborenen bringt, murmelt er dreimal; „rede, rede!“ Darauf gibt er ihm einen Namen: „du bist Veda,“ das ist sein Geheimname. Darauf mischt er geronnene Milch, Honig und Butter und füttert es damit aus reinem Golde. Kuhn, Herabk. 137.
 
@@ -1044,38 +1044,38 @@ Endlich ist hier noch der Tatsache zu gedenken, dass der Honig als erste Nahrung
 
 *) Mannhardt a. a. O. 311.
 
-*) Jesaias 7, 15: Butter und Honig wird er essen, dass er wisse Böses zu verwerfen und Gutes zu erwählen. Der heilige Basilius bemerkt dazu treffend: παιδικῇ τροφῇ χρῆται. Aphrodite zieht nach Od. υ 69 die verwaisten Töchter des Pandareos mit Käse, Honig und Wein auf (κόμισσε δὲ δῖ᾽ Ἀφροδίτη ἢ τυρῷ καὶ μέλιτι γλυκερῶ καὶ ἡδέι οἴνῳ). Vgl. auch Bochart, Hierozoic. 3, 388.
+*) Jesaias 7, 15: Butter und Honig wird er essen, dass er wisse Böses zu verwerfen und Gutes zu erwählen. Der heilige Basilius bemerkt dazu treffend: παιδικῇ τροφῇ χρῆται. Aphrodite zieht nach Od. υ 69 die verwaisten Töchter des Pandareos mit Käse, Honig und Wein auf (κόμισσε δὲ δῖ' Ἀφροδίτη ἢ τυρῷ καὶ μέλιτι γλυκερῶ καὶ ἡδέι οἴνῳ). Vgl. auch Bochart, Hierozoic. 3, 388.
 
 Den Vorstellungen von der himmlischen Herkunft des Honigs und seiner uralten Bedeutung als Götterspeise entspricht es ferner augenscheinlich, wenn wir ihn in zahlreichen Fällen als Opferspeise verwendet sehen. Man ging dabei offenbar von der nahe liegenden Voraussetzung aus, dass unter den sämtlichen Opferspeisen keine den Göttern willkommener sein könne als diejenige, welche nach der allge-meinen Vorstellung an und für sich schon die Nahrung der Unsterblichen bildete.
 
 Dass allen Göttern Honig auf den Altären geopfert wurde, bezeugt zunächst Varro de r. r. 3, 16 mit den Worten: quod [mel], dulcissimum quod est, et Diis et hominibus est acceptum: quod favus venit in altaria. Ebenso sagt Pausanias 5, 15, 10 von dem alten Opferritus der Eleer zu Olympia: ἑκάστου δὲ ἅπαξ τοῦ μηνὸς θύουσιν ἐπὶ πάντων Ἠλεῖοι τῶν κατειλεγμένων βωμῶν. θύουσι δὲ ἀρχαῖόν τινα τρόπον · λιβανωτὸν γὰρ ὁμοῦ πυροῖς μεμαγμένοις μέλιτι θυμιῶσιν ἐπὶ τῶν βωμῶν.* Zu diesen allgemeinen Zeugnissen kommen noch mehrere speziellere für die einzelnen Götter. So empfangen Honigopfer Hermes, Dionysos, Helios, Pan, Priapus, die Musen, Nymphen, Mithras etc.,* sowie die chthonischen Gottheiten Pluton, Hekate und die Erinyen, endlich der Hund Cerberus.*
 
-*) Vgl. auch Polemo bei Schol. Soph. Oed. Col. 100: Ἀθηναῖοί τε γὰρ τοῖς τοιούτοις ἐπιμελεῖς ὄντες καὶ τὰ πρὸς τοὺς θεοὺς ὅσιοι νηφάλια μὲν ἱερὰ θύουσι Μνημοσύνῃ, Μούσαις, Ἠοῖ, Ἡλίῳ, Σελήνῃ, Νύμφαις, Ἀφροδίτῃ Οὐρανίᾳ. Φιλόχορος δὲ καὶ περί τινων ἄλλων θυσιῶν τὸν αὐτὸν τρόπον δρωμένων φησὶν ἐν τῇ β τῶν Ἀτθίδων · Διονύσῳ τε καὶ ταῖς Ἐρεχθέως θυγατράσι. Dass man unter νηφάλια Honigopfer (μελίσπονδα) zu verstehen hat, lehrt Plut. Q. Symp. 4, 6, 2: Ἓλληνές τε νηφάλια τὰ αὐτὰ καὶ μελίσπονδα, θύουσιν. Orakel b. Euseb. Praep. ev. 4, 9, 6: Ὅσσοι δ᾽ ἀμφὶ γαῖαν ποτώμενοι αἰὲν ἔασι, || τοῖσδε φόνου πλήσας πάντη πυριπληθέα βωμὸν || ἐν πυρὶ βάλλε δέμας θύσας ζώοιο ποτανοῦ, || καὶ μέλι φυρήσας δηίῳ αλφίτῳ ἔνθεν, || ἀτμούς τε λιβάνοιο καὶ οὐλοχύτας ἐπίβαλλε.
+*) Vgl. auch Polemo bei Schol. Soph. Oed. Col. 100: Ἀθηναῖοί τε γὰρ τοῖς τοιούτοις ἐπιμελεῖς ὄντες καὶ τὰ πρὸς τοὺς θεοὺς ὅσιοι νηφάλια μὲν ἱερὰ θύουσι Μνημοσύνῃ, Μούσαις, Ἠοῖ, Ἡλίῳ, Σελήνῃ, Νύμφαις, Ἀφροδίτῃ Οὐρανίᾳ. Φιλόχορος δὲ καὶ περί τινων ἄλλων θυσιῶν τὸν αὐτὸν τρόπον δρωμένων φησὶν ἐν τῇ β τῶν Ἀτθίδων · Διονύσῳ τε καὶ ταῖς Ἐρεχθέως θυγατράσι. Dass man unter νηφάλια Honigopfer (μελίσπονδα) zu verstehen hat, lehrt Plut. Q. Symp. 4, 6, 2: Ἓλληνές τε νηφάλια τὰ αὐτὰ καὶ μελίσπονδα, θύουσιν. Orakel b. Euseb. Praep. ev. 4, 9, 6: Ὅσσοι δ' ἀμφὶ γαῖαν ποτώμενοι αἰὲν ἔασι, || τοῖσδε φόνου πλήσας πάντη πυριπληθέα βωμὸν || ἐν πυρὶ βάλλε δέμας θύσας ζώοιο ποτανοῦ, || καὶ μέλι φυρήσας δηίῳ αλφίτῳ ἔνθεν, || ἀτμούς τε λιβάνοιο καὶ οὐλοχύτας ἐπίβαλλε.
 
 *) Antip. Sidon. b. Brunck, Anal. 2, 13, 28: Εὔκολος Ἑρμείας, ὥ ποιμένες, ἔν τε γάλακτι || χαίρων καὶ δρυίνω σπενδόμενος μέλιτι. Ovid. Fast. 3, 735: Liba deo fiunt, succis quia dulcibus idem || Gaudet et a Baccho mella reperta ferunt. Phylarch. b. Athen. 693 f.: παρὰ δὲ τοὶς Ἕλλησιν οἱ θύοντες τῷ Ἡλίῳ, ὥς φησι Φύλαρχος... μέλι σπένδουσιν, οἷνον οὐ φέροντες τοῖς βωμοῖς κ. τ. λ. (vgl. Eustath. z. Od. 1668, 25). Calpurn. Sic. ecl. 2, 66: rorantesque favos damus et liquentia mella [Priapo]. Orakel b. Euseb. Praep. ev. 4, 9: Χεῦε μέλι Νύμφαις. Porphyr. de antro n. 16: ὅταν δὲ τῷ Πέρσῃ [Mithras] προσάγωσι μέλι ὡς φύλακι καρπῶν, τὸ φυλακτικὸν ἐν συμβόλῳ τίθενται. Vgl. auch die vorige Anm. Anth. 5, 226: νηφάλια σπείσω Κύπριδι Μειλιχίῃ. ib. 6, 232, 3: ἢ τε μελισσῶν || ἀμβροσίη... Πανὶ φιλοσκήπωνι, καὶ εὐστόρθυγγι Πριήπῳ || ἀντίθεται λιτὴν δαῖτα Φιλοξενίδης. Emp. b. Ath. 510 d.
 
-*) Sil. It. 13. 415: Duc praedicta sacris duro placamina Diti: || Mella simul tecum et puri fer dona Lyaei. Apoll. Rh. 3, 1035: μουνογενὴ δ᾽ Ἑκάτην Περσηίδα μειλίσσοιο || λείβων ἐκ δέπαος σιμβλήια ἔργα μελισσῶν. Aesch. Eum. 106: ἡ πολλὰ μὲν δὴ τῶν ἐμῶν ἐλείξατε, || χοὰς τ᾽ ἀοίνους, νηφάλια μειλίγματα (vgl. oben Anm. 167) Soph. Oed. Col. 481: καὶ τόνδε [κρωσσόν] πλήσας θῷ; δίδασκε καὶ τόδε. ΧΟΡ. ὕδατος, μελίσσης · μηδὲ προσφέρειν μέθυ. Schol. βούλεται δὲ λέγειν τὸ μελίκρατον. (Paus. 2, 11, 4). Vgl. auch ib. 5. 100. Verg. Aen. 6, 419: Cui [Cerbero] vates, horrere videns iam colla colubris, || Melle soporatam et medicatis frugibus offam || Objicit. Suid. s. v. μελιτοῦττα. Ἰστέον ὅτι ἡ μελιτοῦττα ἐδίδοτο τοῖς νεκροῖς, ὡς εἰς τὸν Κέρβερον (vgl. Schol. Arist. Nub. 507 u. 508).
+*) Sil. It. 13. 415: Duc praedicta sacris duro placamina Diti: || Mella simul tecum et puri fer dona Lyaei. Apoll. Rh. 3, 1035: μουνογενὴ δ' Ἑκάτην Περσηίδα μειλίσσοιο || λείβων ἐκ δέπαος σιμβλήια ἔργα μελισσῶν. Aesch. Eum. 106: ἡ πολλὰ μὲν δὴ τῶν ἐμῶν ἐλείξατε, || χοὰς τ' ἀοίνους, νηφάλια μειλίγματα (vgl. oben Anm. 167) Soph. Oed. Col. 481: καὶ τόνδε [κρωσσόν] πλήσας θῷ; δίδασκε καὶ τόδε. ΧΟΡ. ὕδατος, μελίσσης · μηδὲ προσφέρειν μέθυ. Schol. βούλεται δὲ λέγειν τὸ μελίκρατον. (Paus. 2, 11, 4). Vgl. auch ib. 5. 100. Verg. Aen. 6, 419: Cui [Cerbero] vates, horrere videns iam colla colubris, || Melle soporatam et medicatis frugibus offam || Objicit. Suid. s. v. μελιτοῦττα. Ἰστέον ὅτι ἡ μελιτοῦττα ἐδίδοτο τοῖς νεκροῖς, ὡς εἰς τὸν Κέρβερον (vgl. Schol. Arist. Nub. 507 u. 508).
 
-Hierher gehört endlich auch die Sitte den Seelen der Abgeschiedenen Honigopfer darzubringen. Die ältesten Zeugnisse hierfür bieten uns die homerischen Gedichte. So setzt Achilleus auf den Scheiterhaufen des Patroklos Krüge, welche mit Honig angefüllt waren, damit sie mit der Leiche zugleich verbrennen sollten (Il. Ψ 170: ἐν δ᾽ ἐτίθει μέλιτος καὶ ἀλείφατος ἀμφιφορῆας, πρὸς λέχεα κλίνων), Od. ω 36 erzählt die Seele des Agamemnon dem ebenfalls in der Unterwelt weilenden Achilleus die Geschichte von seiner Bestattung. Vers 67 heißt es:
+Hierher gehört endlich auch die Sitte den Seelen der Abgeschiedenen Honigopfer darzubringen. Die ältesten Zeugnisse hierfür bieten uns die homerischen Gedichte. So setzt Achilleus auf den Scheiterhaufen des Patroklos Krüge, welche mit Honig angefüllt waren, damit sie mit der Leiche zugleich verbrennen sollten (Il. Ψ 170: ἐν δ' ἐτίθει μέλιτος καὶ ἀλείφατος ἀμφιφορῆας, πρὸς λέχεα κλίνων), Od. ω 36 erzählt die Seele des Agamemnon dem ebenfalls in der Unterwelt weilenden Achilleus die Geschichte von seiner Bestattung. Vers 67 heißt es:
 
-καίεο δ᾽ ἔν τ᾿ ἐσθῆτι θεῶν καὶ ἀλείφατι πολλῷ  
+καίεο δ' ἔν τ᾿ ἐσθῆτι θεῶν καὶ ἀλείφατι πολλῷ  
 καὶ μέλιτι γλυκερῷ.
 
-Als Odysseus in das Totenreich gelangt, um den Teiresias zu befragen, bringt er allen Toten eine Spende dar bestehend aus Honigtrank, Wein und Wasser (Od. λ 26. ἀμφ᾽ αὐτῷ δὲ χοὴν χεόμην πᾶσιν νεκύεσσιν, || πρῶτα μελικρήτῳ, μετέπειτα δὲ ἡ δέι οἴνῳ, || τὸ τρίτον αὖθ᾽ ὕδατι: Vgl. κ 518). Derselbe Brauch erhielt sich bis in die historische Zeit hinein, wie schon aus Eurip. Iph. Taurica erhellt.* Als Iphigenia den vermeintlichen Tod ihres einzigen Bruders beklagt, will sie ihm als Spende darbringen: 5. 160
+Als Odysseus in das Totenreich gelangt, um den Teiresias zu befragen, bringt er allen Toten eine Spende dar bestehend aus Honigtrank, Wein und Wasser (Od. λ 26. ἀμφ' αὐτῷ δὲ χοὴν χεόμην πᾶσιν νεκύεσσιν, || πρῶτα μελικρήτῳ, μετέπειτα δὲ ἡ δέι οἴνῳ, || τὸ τρίτον αὖθ' ὕδατι: Vgl. κ 518). Derselbe Brauch erhielt sich bis in die historische Zeit hinein, wie schon aus Eurip. Iph. Taurica erhellt.* Als Iphigenia den vermeintlichen Tod ihres einzigen Bruders beklagt, will sie ihm als Spende darbringen: 5. 160
 
 μέλλω κρατῆρά τε τὸν φθιμένων  
 ὑδραίνειν γαίας ἐν νώτοις,  
-πηγάς τ᾽ οὐρείων ἐκ μόσχων  
-Βάκχου τ᾽ οἰνηρὰς λοιβὰς  
+πηγάς τ' οὐρείων ἐκ μόσχων  
+Βάκχου τ' οἰνηρὰς λοιβὰς  
 ξουθᾶν τε πόνημα μελισσᾶν,  
 ἃ νεκροῖς θελκτήρια κεῖται.
 
-*) Vgl. außerdem Aesch. Persae 607, wo als Totenspende (νεκροῖσι μειλικτήρια) angegeben wird: βοός τ᾿ ἀφ᾽ ἀγνῆς λευκὸν εὔποτον γάλα, || τῆς τ ἀνθεμουργοῦ στάγμα, παμφαὲς μέλι, || λιβάσιν ὑδρηλαῖς παρθένου πηγῆς μέτα, || ἀκήρατόν τε μητρὸς ἀγρίας ἄπο || ποτὸν παλαιᾶς ἀμπέλου γάνος τόδε. Eurip. Or. 115: μελίκρατ᾽ ἄφες γάλακτος οἴνωπον τ᾽ ἄχνην.
+*) Vgl. außerdem Aesch. Persae 607, wo als Totenspende (νεκροῖσι μειλικτήρια) angegeben wird: βοός τ᾿ ἀφ' ἀγνῆς λευκὸν εὔποτον γάλα, || τῆς τ ἀνθεμουργοῦ στάγμα, παμφαὲς μέλι, || λιβάσιν ὑδρηλαῖς παρθένου πηγῆς μέτα, || ἀκήρατόν τε μητρὸς ἀγρίας ἄπο || ποτὸν παλαιᾶς ἀμπέλου γάνος τόδε. Eurip. Or. 115: μελίκρατ' ἄφες γάλακτος οἴνωπον τ' ἄχνην.
 
 Später sagt sie ihrem Bruder zum Troste, sie werde ihm, wenn er den Opfertod erlitten, ein regelrechtes Leichenbegängnis nach hellenischer Sitte bereiten. 5. 632:
 
 πολύν τε γάρ σοι κόσμον ἐνθήσω τάφῳ,  
-ξανθῷ τ᾽ ἐλαίῳ σῶμα σὸν κατασβέδω,  
+ξανθῷ τ' ἐλαίῳ σῶμα σὸν κατασβέδω,  
 καὶ τῆς οὐρείας ἀνθεμόρρυτον γάνος  
 ξουθῆς μελίσσης εἰς πυρᾶν βαλῶ σέθεν.
 
@@ -1093,12 +1093,12 @@ Im vorstehenden Abschnitt unserer Untersuchung haben wir gesehen, dass der Honig
 
 Das älteste Beispiel für den uneigentlichen Gebrauch von νέκταρ = μέλι habe ich bei Euripides Bacch. 142 N. gefunden:
 
-ῥεῖ δὲ γάλακτι πέδον, ῥεῖ δ᾽ οἴνῳ, ῥεῖ δὲ μελισσᾶν νέκταρι κ. τ. λ.
+ῥεῖ δὲ γάλακτι πέδον, ῥεῖ δ' οἴνῳ, ῥεῖ δὲ μελισσᾶν νέκταρι κ. τ. λ.
 
 Dass freilich dieser Gebrauch von νέκταρ viel älter als Euripides ist, scheint ein schönes Pindarisches Fragment (No. 45 b. Böckh) zu lehren, wo 5. 14 der herannahende Frühling, welchen vor allen die honigspendenden Blumen spüren, mit den begeisterten Worten gepriesen wird:
 
 Ἐν Ἀργείᾳ Νεμέᾳ μάντιν οὐ λανθάνει  
-φοίνικος ἔρνος, ὁπότ᾽ οἰχθέντος Ὡρᾶν θαλάμου  
+φοίνικος ἔρνος, ὁπότ' οἰχθέντος Ὡρᾶν θαλάμου  
 εὔοδμον ἐπαΐωσιν ἔαρ φυτὰ νεκτάρεα.
 
 Mehrere hierhergehörende Beispiele bietet die griechische Anthologie.
@@ -1109,19 +1109,19 @@ Mehrere hierhergehörende Beispiele bietet die griechische Anthologie.
 γηραιὸς Κλείτων σπεῖσε μελισσοπόνος,  
 ἀμβροσίων ἔαρος κηρῶν μέλι πολλὸν ἀμέλξας,  
 δῶρον ἀποιμάντου τηλοπέτευς ἀγέλης.  
-θείης δ᾽ ἐσμοτόκον χορὸν ἄπλετον, εὖ δὲ μελιχροῦ  
+θείης δ' ἐσμοτόκον χορὸν ἄπλετον, εὖ δὲ μελιχροῦ  
 νέκταρος ἐμπλήσαις κηροπαγεῖς θαλάμας.
 
 ib. 6, 232: Κριναγόρου.
 
 3 καὶ δειλαὶ δάκνεσθαι ἀμυγδάλαι, ἥ τε μελισσῶν  
-ἀμβροσίη, πυκναί τ᾽ ἰτρινέαι ποπάδες.  
+ἀμβροσίη, πυκναί τ' ἰτρινέαι ποπάδες.  
 7 Πανὶ φιλοσκήπωνι καὶ εὐστόρθυγγι Πριήπῳ  
 ἀντίθεται λιτὴν δαῖτα Φιλοξενίδης.
 
 ib. 9, 404 Ἀντιφίλου.
 
-7 χαίροιτ᾽ εὐαγέες, καὶ ἐν ἄνθεσι ποιμαίνεσθε,  
+7 χαίροιτ' εὐαγέες, καὶ ἐν ἄνθεσι ποιμαίνεσθε,  
 αἰθερίου πτηναὶ νέκταρος ἐργάτιδες.
 
 Mehrfache Nachahmung hat sodann dieser Sprachgebrauch bei den römischen Dichtern gefunden.
@@ -1150,7 +1150,7 @@ Wie wir endlich im vorigen Abschnitt gesehen haben, dass Honig die erste Nahrung
 
 Hy. in Ap. Del. 123:
 
-οὐδ᾽ ἄρ᾽ Ἀπόλλωνα χρυσάορα θήσατο μήτηρ,  
+οὐδ' ἄρ' Ἀπόλλωνα χρυσάορα θήσατο μήτηρ,  
 ἀλλὰ Θέμις νέκταρ τε καὶ ἀμβροσίην ἐρατεινὴν  
 ἀθανάτοις χείλεσσιν ἐπήρξατο.
 
@@ -1158,7 +1158,7 @@ Von Aristaios sagt Pindar, dass er von Gaia und den Horen mit Nektar und Ambrosi
 
 Pind. Pyth. 9, 64 Böckh:
 
-ταὶ δ᾽ ἐπιγουνίδιον κατθηκάμεναι βρέφος αὑταῖς,  
+ταὶ δ' ἐπιγουνίδιον κατθηκάμεναι βρέφος αὑταῖς,  
 νέκταρ ἐν χείλεσσι καὶ ἀμβροσίαν στάξοισι, θήσονταί  
 τὲ νιν ἀθάνατον.
 
@@ -1177,9 +1177,9 @@ Dieser Vergleich hat später vielfachen Anklang und häufige Nachahmung gefunden
 Hes. Theog. 81:
 
 ὃντινα τιμήσουσι Διὸς κοῦραι μεγάλοιο  
-γεινόμενόν τ᾽ ἐσίδωσι διοτρεφέων βασιλήων,  
+γεινόμενόν τ' ἐσίδωσι διοτρεφέων βασιλήων,  
 τῷ μὲν ἐπὶ γλώσσῃ γλυκερὴν χείουσιν ἐέρσην,  
-τοῦ δ᾽ ἔπε᾽ ἐκ στόματος ῥεῖ μείλιχα κ. τ. λ.
+τοῦ δ' ἔπε' ἐκ στόματος ῥεῖ μείλιχα κ. τ. λ.
 
 Eur. fr. 891 N.
 
@@ -1199,7 +1199,7 @@ So schon bei Hesiod. Theog. 94:
 
 ἐκ γὰρ Μουσάων καὶ ἑκηβόλου Ἀπόλλωνος  
 ἄνδρες ἀοιδοὶ ἔασιν ἐπὶ χθόνα καὶ κιθαρισταί.  
-ἐκ δὲ Διὸς βασιλῆες · ὁ δ᾽ ὄλβιος ὄντινα Μοῦσαι  
+ἐκ δὲ Διὸς βασιλῆες · ὁ δ' ὄλβιος ὄντινα Μοῦσαι  
 φίλωνται · γλυκερή οἱ ἀπὸ στόματος ῥέει αὐδή.*
 
 *) Vgl. Hy. Hom. in Mus. et Apoll. No. 25, 2 ff.
@@ -1210,8 +1210,8 @@ Nem. 3, 74:
 
 ...ἐγὼ τόδε τοι  
 πέμπω μεμιγμένον μέλι λευκῷ  
-Σὺν γάλακτι, κιρναμένα δ᾽ ἔερσ᾽ ἀμφέπει,  
-πόμ᾽ ἀοίδιμον Αἰολῇσιν ἐν πνοαῖσιν αὐλῶν.
+Σὺν γάλακτι, κιρναμένα δ' ἔερσ' ἀμφέπει,  
+πόμ' ἀοίδιμον Αἰολῇσιν ἐν πνοαῖσιν αὐλῶν.
 
 Dass hier κιρναμένα ἔερσα (vgl. oben Hesiod. Theog. 83 γλυκερὴ ἐέρση) wiederum den Honig [der Poesie] bezeichnet, sagt ausdrücklich der Scholiast z. d. St. mit den Worten: ἡ δρόσος ἡ τοῦ μέλιτος κιρναμένη πρὸς τὸ γάλα ποιεῖ τὸ πόμα ἀοίδιμον καὶ τὸ ποίημα μιχθὲν αὐλοῖς γίνεται καὶ αὐτὸ θαυμάσιον.
 
@@ -1223,9 +1223,9 @@ Ol. 11, 101 vergleicht Pindar die Wirkung seines Gedichts auf die Bewohner von L
 
 Isthm. 4, 59 sagt der Dichter von seinem Hymnas auf den Pankratiasten Phylakidas:
 
-...ἐν δ᾽ ἐρατεινῷ  
+...ἐν δ' ἐρατεινῷ  
 μέλιτι καὶ τοιαίδε τιμαί  
-καλλίνικον χάρμ᾽ ἀγαπάζοντι, d. i. nach der Erklärung des Scholiasten: αἱ τῶν νικηφόρων τιμαὶ τὴν ἐπινίκιον ᾠδὴν ἀγαπῶσιν ὡς μέλι καὶ φιλοῦσιν. οἷον ὡς ἐν μέλιτι γλυκύτης ἐστὶν οὕτω καὶ τοῖς νικῶσιν αἱ ἐπινίκιοι ᾠδαί.
+καλλίνικον χάρμ' ἀγαπάζοντι, d. i. nach der Erklärung des Scholiasten: αἱ τῶν νικηφόρων τιμαὶ τὴν ἐπινίκιον ᾠδὴν ἀγαπῶσιν ὡς μέλι καὶ φιλοῦσιν. οἷον ὡς ἐν μέλιτι γλυκύτης ἐστὶν οὕτω καὶ τοῖς νικῶσιν αἱ ἐπινίκιοι ᾠδαί.
 
 Auch spätere Dichter vergleichen noch gern die Lieblichkeit der Poesie mit der Süßigkeit des Honigs. Vgl. Theocrit Id. 1, 146:
 
@@ -1244,7 +1244,7 @@ Te solum, tibi pulcher.
 Anth. 9, 190:
 
 Λέσβιον Ἠρίννης τόδε κηρίον · εἰ δέ τι μικρόν,  
-ἀλλ᾽ ὅλον ἐκ Μουσέων κιρνάμενον μέλιτι.
+ἀλλ' ὅλον ἐκ Μουσέων κιρνάμενον μέλιτι.
 
 Aus dem Vergleiche des Liedes mit Honig ergab sich sodann die weitere Vergleichung des Dichters mit der Biene. Wie die Biene aus Blumenkelchen den Honig so schlürft der Dichter Poesie aus den Blüten des Lebens. 
 Niemand hat diesen Gedanken, wenn auch zunächst in ironischer Weise, schöner ausgesprochen als Aristophanes, wenn er von Phrynichos sagt:
@@ -1255,20 +1255,20 @@ Av. 750:
 Φρύνιχος ἀμβροσίων μελέων ἀπεβόσκετο καρπόν,  
 ἀεὶ φέρων γλυκεῖαν ᾠδάν.*
 
-*) Vgl. auch Hor. ca. 4, 2, 27: ...ego apis Matinae || More modoque, || Grata carpentis thyma per laborem... || Carmina fingo. Vgl. auch Vita Soph. p. 132, 99: Σοφοκλῆς ἀφ᾽ ἑκάστου τὸ λαμπρὸν ἀπανθίζει, κθά ὃ καὶ μέλιττα ἐλέγετο. Mehr b. Schneidewin Einl. z. Sophokles Aias 1 p. 30 Anm.
+*) Vgl. auch Hor. ca. 4, 2, 27: ...ego apis Matinae || More modoque, || Grata carpentis thyma per laborem... || Carmina fingo. Vgl. auch Vita Soph. p. 132, 99: Σοφοκλῆς ἀφ' ἑκάστου τὸ λαμπρὸν ἀπανθίζει, κθά ὃ καὶ μέλιττα ἐλέγετο. Mehr b. Schneidewin Einl. z. Sophokles Aias 1 p. 30 Anm.
 
 Derselbe Aristophanes nennt Sophokles einen mit Honig Gesalbten:
 
 fr. 2, 1176 ed. Mein.
 
-Ὁ δ᾽ αὖ Σοφοκλέους τοῦ μέλιτι κεχρισμένου  
+Ὁ δ' αὖ Σοφοκλέους τοῦ μέλιτι κεχρισμένου  
 ὥσπερ καδίσκου περιέλειχε τὸ στόμα.
 
 Mehrfach werden Dichter und prosaische Schriftsteller, welche über eine schöne Sprache verfügen, geradezu Bienen (μέλισσαι) genannt, z. B. Erinna, Sophokles, Platon, Xenophon,* und es entstand die Legende, dass Bienen, die Vögel der Musen,* sich solchen Lieblingen der Göttinnen unmittelbar nach der Geburt auf die Lippen gesetzt und ihnen durch Zutragen von Honig gewissermaßen die musische Weihe erteilt hätten.* Die Musen selbst heißen μελίστακτοι in einem Epigramm der Anthologie (4, 1, 33):
 
-λείψανὰ τ᾽ εὐκαρπεῦντα μελιστάκτων ἀπὸ Μουσέων.
+λείψανὰ τ' εὐκαρπεῦντα μελιστάκτων ἀπὸ Μουσέων.
 
-*) Anth. 7, 13, 1: Παρθενικὴν νεαοιδὸν ἐν ὑμνοπόλοισι μέλισσαι || Ἤρινναν, Μουσῶν ἄνθεα δρεπτομέναν, || Ἅιδας εἰς ὑμέναιον ἀνάρπασεν. Hermesianax b. Ath. 598 c υ. 57: Ἀτθὶς δ᾽ οἷα μέλισσα πολυπρήωνα κολώνην || λείπουσ᾽ ἐν τραγικαὶς ᾖδε χοροστασίαις. (Vgl. Schol. z. Arist. Vesp. 462. Suid. s. v. Σοφοκλῆς. Vita Soph. ed. Gaisf.) Suid. s. v. Ξενοφῶν αὐτὸς δὲ Ἀττικὴ μέλισσα ἐπωνομάζετο. Wenn hie und da die Pythia μέλισσα genannt wurde (Pind. Pyth. 4, 106. Schol. Eurip. Hipp. 72), so scheint ihr diese Benennung mit Bezug auf ihre poetischen Orakelsprüche zu teil geworden zu sein.
+*) Anth. 7, 13, 1: Παρθενικὴν νεαοιδὸν ἐν ὑμνοπόλοισι μέλισσαι || Ἤρινναν, Μουσῶν ἄνθεα δρεπτομέναν, || Ἅιδας εἰς ὑμέναιον ἀνάρπασεν. Hermesianax b. Ath. 598 c υ. 57: Ἀτθὶς δ' οἷα μέλισσα πολυπρήωνα κολώνην || λείπουσ' ἐν τραγικαὶς ᾖδε χοροστασίαις. (Vgl. Schol. z. Arist. Vesp. 462. Suid. s. v. Σοφοκλῆς. Vita Soph. ed. Gaisf.) Suid. s. v. Ξενοφῶν αὐτὸς δὲ Ἀττικὴ μέλισσα ἐπωνομάζετο. Wenn hie und da die Pythia μέλισσα genannt wurde (Pind. Pyth. 4, 106. Schol. Eurip. Hipp. 72), so scheint ihr diese Benennung mit Bezug auf ihre poetischen Orakelsprüche zu teil geworden zu sein.
 
 *) Varro de r. r. 3, 16 nennt die Bienen Musarum volucres. Die Musen nehmen selbst Bienengestalt an b. Philostr. Ic. 2, 8, p. 823 Ol. Anthol. 9, 505, 6.
 
@@ -1308,12 +1308,12 @@ Zwei weitere Beispiele bietet uns die Anthologie.
 7, 29, 3:
 
 εὔδει καὶ Σμέρδις, τὸ Πόθων ἔαρ, ᾧ σὺ μελίσδων,  
-βαρβιτ᾽, ἀνεκρούου νέκταρ ἐναρμόνιον.
+βαρβιτ', ἀνεκρούου νέκταρ ἐναρμόνιον.
 
 4, 1, 35:
 
-ἐν δ᾽ ἃῥ Ἀνακρείοντα, τὸ μὲν γλυκὺ κεῖνο μέλισμα  
-νέκταρος, εἰς δ᾽ ἐλέγους εὔσπορον ἀνθέμιον.
+ἐν δ' ἃῥ Ἀνακρείοντα, τὸ μὲν γλυκὺ κεῖνο μέλισμα  
+νέκταρος, εἰς δ' ἐλέγους εὔσπορον ἀνθέμιον.
 
 In Nachahmung solcher Metaphern singt Persius Prol. 12:
 
@@ -1333,7 +1333,7 @@ Dass der ganze Mythus und Kultus der A., wie er uns überliefert und in den gang
 
 a\. Die orientalische A. Alle uns bekannten semitischen Völker mit einziger Ausnahme der Hebräer verehrten eine höchste weibliche Gottheit, die zugleich als Göttin des Mondes [oder Venussternes] und als Prinzip aller weiblichen und irdischen Fruchtbarkeit gedacht wurde. Beide Funktionen hängen auf das innigste miteinander zusammen, da der Mond einerseits durch die Katamenien das ganze weibliche Geschlechtsleben zu regeln, anderseits durch Spendung des für den Pflanzenwuchs in südlichen regenarmen Ländern, speziell im Orient, so notwendigen Taus die Fruchtbarkeit des Bodens zu fördern scheint (Vgl. die Stellen b. Roscher, Juno und Hera. Stud. z. vgl. Mythol. d. Gr. u. Römer Heft 2, S. 19 ff. Winer, Bibl. Realwörterb. unter Tau. v. Baudissin, Stud. z. Semit. Religionsgesch. 1, 241. 2, 151. Ders. Jahve et Moloch 23). Diese Göttin nun führte bei jedem der semitischen Stämme einen besonderen Namen: sie hieß z. B. bei den Phöniziern Astarte, bei den Assyrem Istar, bei den Syrern Aschera, in Babylon Mylitta (eigentl. Moledeth, d. i. die Gebärenmachende). Gehen wir genauer auf die einzelnen Funktionen, Mythen und Kulte ein, so ist Folgendes hervorzuheben.
 
-1\. Dass wir in den genannten Göttinnen in der Tat ursprüngliche Mondgöttinnen zu erkennen haben, erhellt zunächst aus den Überlieferungen des Altertums selbst. So sagt Herodian (5, 6, 10) von der mit der griechischen Aphrodite Urania identifizierten phönizischen Astarte: Οὐρανίαν Φοίνικες Ἀστροάρχην ὀνομάζουσι, σελήνην εἶναι θέλοντες. Vgl. auch Lucian de dea Syr. 4: Ἀστάρτην δ᾽ ἐγὼ δοκέω Σεληναίην ἔμμεναι und (hinsichtlich des Namens Ἀστροάρχη) die den Mond als Königin der Sterne feiernden Bezeichnungen _regina siderum_ (_caeli_) und Ἀστράρχη (Hor. ca. saec. 35. Appul. Met. 2, 254. Bip. Orph. hy. 9, 10). So erklären sich auch auf das einfachste die römischen Bezeichnungen der Karthagischen Hauptgöttin „_Virgo caelestis_“ oder „_Juno caelestis_,“ worunter man ebenso wie unter dem griechischen Οὐρανία in der eben angeführten Stelle des Herodian wahrscheinlich nur Uebersetzungen eines auf die Mondgöttin bezüglichen semitischen Namens zu verstehen hat. (Vgl. Jerem. 7, 18 u. 44, 17 ff.). Dass die römische Juno, mit der später die Karthagische Astarte identifiziert wurde, eine Mondgöttin sei, habe ich im zweiten Hefte meiner Studien zur vgl. Mythol, der Gr. u. R. nachgewiesen. Wenn Astarte gehörnt oder mit dem Attribut der Mondsichel dargestellt wurde (Gen. 14, 5. Sanchon. fr. ed. Orelli p. 34. Eckhel, Doctr. num. 1, 3, 369 ff. vgl. v. Baudissin, Stud. z. Semit. Rel. 2, 264), so scheint auch dies direkt aus ihrer Mondbedeutung zu folgen. In einer von Oppert mitgeteilten Beschwörungsformel endlich wird Istar geradezu die Erhellerin der Nächte genannt (Roscher a. a. O. S. 20).
+1\. Dass wir in den genannten Göttinnen in der Tat ursprüngliche Mondgöttinnen zu erkennen haben, erhellt zunächst aus den Überlieferungen des Altertums selbst. So sagt Herodian (5, 6, 10) von der mit der griechischen Aphrodite Urania identifizierten phönizischen Astarte: Οὐρανίαν Φοίνικες Ἀστροάρχην ὀνομάζουσι, σελήνην εἶναι θέλοντες. Vgl. auch Lucian de dea Syr. 4: Ἀστάρτην δ' ἐγὼ δοκέω Σεληναίην ἔμμεναι und (hinsichtlich des Namens Ἀστροάρχη) die den Mond als Königin der Sterne feiernden Bezeichnungen _regina siderum_ (_caeli_) und Ἀστράρχη (Hor. ca. saec. 35. Appul. Met. 2, 254. Bip. Orph. hy. 9, 10). So erklären sich auch auf das einfachste die römischen Bezeichnungen der Karthagischen Hauptgöttin „_Virgo caelestis_“ oder „_Juno caelestis_,“ worunter man ebenso wie unter dem griechischen Οὐρανία in der eben angeführten Stelle des Herodian wahrscheinlich nur Uebersetzungen eines auf die Mondgöttin bezüglichen semitischen Namens zu verstehen hat. (Vgl. Jerem. 7, 18 u. 44, 17 ff.). Dass die römische Juno, mit der später die Karthagische Astarte identifiziert wurde, eine Mondgöttin sei, habe ich im zweiten Hefte meiner Studien zur vgl. Mythol, der Gr. u. R. nachgewiesen. Wenn Astarte gehörnt oder mit dem Attribut der Mondsichel dargestellt wurde (Gen. 14, 5. Sanchon. fr. ed. Orelli p. 34. Eckhel, Doctr. num. 1, 3, 369 ff. vgl. v. Baudissin, Stud. z. Semit. Rel. 2, 264), so scheint auch dies direkt aus ihrer Mondbedeutung zu folgen. In einer von Oppert mitgeteilten Beschwörungsformel endlich wird Istar geradezu die Erhellerin der Nächte genannt (Roscher a. a. O. S. 20).
 
 2\. Wie schon oben angedeutet wurde, waren die genannten Mondgöttinnen zugleich, so viel wir wissen, die Förderinnen aller weiblichen und überhaupt aller animalischen und vegetativen Fruchtbarkeit. Hierher gehört vor allen Dingen der babylonische Name Mylitta oder Moledeth, welcher geradezu die Gebärenmachende bedeutet (Duncker, Gesch. d. Alt. 3 1, 220), ferner die Rolle, welche die altchaldäische Istar in einem von Schrader und Oppert behandelten Hymnus spielt, wo sie als Göttin der Fruchtbarkeit auftritt, insofern bei ihrem Hinabsteigen in die Unterwelt alle Zeugung und Befruchtung aufhörte (Haug, Beil. z. Augsb. allg. Ztg. 1875. S. 1092). Sicherlich hängt mit dieser Funktion auch die für Kypros, Karthago, Babylon u. s. w. bezeugte Sitte des Opfers der Jungfrauschaft und mancher andere anstößige Gebrauch auf das Innigste zusammen (Herod. 1, 93. 94. 196. 199. Strab. 745. Iust. 18, 5. 21, 3. August, c. D. 2, 4. 2, 26. 4, 10. Luc. D. S. 6. Athen. 572 f. Lactant. 1, 17. Val. Max. 2, 6, 15. Duncker a. a. O. 349).
 
@@ -1361,11 +1361,11 @@ b\. Die orientalische Aphrodite bei den Griechen. Diese soeben in ihren wesentli
 
 ἐρᾷ μὲν ἁγνὸς οὐρανὸς τρῶσαι χθόνα,  
 ἔρως δὲ γαῖαν λαμβάνει γάμου τυχεῖν,  
-ὄμβρος δ᾽ ἀπ᾽ εὐνάεντος οὐρανοῦ πεσὼν  
+ὄμβρος δ' ἀπ' εὐνάεντος οὐρανοῦ πεσὼν  
 ἔκυσε γαῖαν · ἡ δὲ τίκτεται βροτοῖς  
 μήλων τε βοσκὰς καὶ βίον Δημήτριον ·  
-δενδρῶτις ὥρα δ᾽ ἐκ νοτίζοντος γάμου  
-τέλειός ἐστι. τῶν δ᾽ ἐγὼ παραίτιος.
+δενδρῶτις ὥρα δ' ἐκ νοτίζοντος γάμου  
+τέλειός ἐστι. τῶν δ' ἐγὼ παραίτιος.
 
 Ähnlich feiert Lucrez in den begeisterten Eingangsworten seines philosophischen Gedichtes die Macht der großen Liebesgöttin im Bereiche der ganzen organischen Natur (φύσις) und viele andere Dichter sind ihm gefolgt von Vergil und Ovid an bis herab zu den Orphischen Hymnen (vgl. die Stellen b. Preller 1, 264 u. Welcker, G. 2, 700 ff.). Aber bereits die älteren Dichter und Philosophen, namentlich Parmenides und Empedokles, hatten die allgewaltige Göttin gepriesen, die fruchtbare Liebesgöttin, der schon beim ersten Betreten des festen Bodens, bald nach ihrem Emportauchen aus dem Meere, üppiges Gras unter den Füssen emporsprosst (Hes. Th. 194. Ath. 600). „In einem Chorliede der Medea des Euripides haucht A. aus des Kephissos Wellen schöpfend die Flur an mit lieblicher Lüfte sanft gemischtem Wehen, mit Rosen im Haar geschmückt, zugleich aber hier aussendend die der Weisheit gesellten zu allerlei Tugend wirkenden Eroten (Eurip. Med. 836 ff). Und im Hippolyt (447) sagt Euripides von ihr: sie wallt durch den Äther und in den Meereswogen, Alles entsteht durch sie, sie ist es, welche säet und welche Liebe eingibt.“ Auf die Göttin der vegetativen Fruchtbarkeit beziehen sich wohl die Beinamen ζείδωρος, ἠπιόδωρος, εὔκαρπος und δωρῖτις. A. ist ferner „die Göttin der Gärten, der Blumen, der Lusthaine, die reizende Göttin des Frühlings und der Frühlingslüfte.“ Ihr besonders war der Frühling geweiht, zur Nachtzeit bei Mondenschein dachte man sie sich im Frühling ihren Reigen anführend (Hor. ca. 1, 4, 5), ihre vornehmsten Feste scheinen Frühlingsfeste gewesen zu sein (K. Fr. Hermann, Gottesd. A. 52, 30). Man verehrte A. häufig in Gärten und feuchten, üppige Vegetation erzeugenden Niederungen gleich Artemis und den Nymphen. So hieß sie in Paphos ἱεροκηπίς, in Athen ist von einer Urania ἐν κήποις, zu Samos von einer A. ἐν καλάμοις oder ἐν ἕλει die Rede (vgl. Strab. 8, 343. Athen. 13, 31). „Anderswo wurde sie im Schmucke der Blumen als ἄνθεια verehrt (Preller 2 1, 271, 2), und immer ist sie mit Blumen bekränzt, die durch sie gedeihen und blühen, vor allen mit Myrten und Rosen, den Blumen der schönsten Jahreszeit.“ Eine ganz besonders innige Beziehung der A. zur Vegetation des Frühlings verrät der schöne tiefsinnige Mythus von Adonis. Wenn ferner die Horen häufig der A. gesellt erscheinen, z. B. zu Olympia (Paus. 5, 15, 3. Hom. hy. 6, 5), so deutet dies ebenfalls auf Aphrodites Beziehungen zum Frühling und zur Fruchtbarkeit der Vegetation hin. „Stasinos aus Cypern lässt der A., die auf dem Ida für Paris sich schmückt, die Hören und die Chariten farbige Kleider anlegen, getaucht in die Fülle der Frühlingsblumen und vom Dufte sämtlicher Horen durchhaucht. In einer andern Stelle des reizenden Gedichts winden A. und ihre Dienerinnen, Nymphen und Chariten, duftige Kränze aus den Blumen der Erde unter schönem Gesang im quellenreichen Gebirge des Ida“ (vgl. Epic. gr. fr. ed. Kinkel p. 22 f.).
 
@@ -1413,25 +1413,25 @@ Kult. Aus dem Kultus der A. ist hervorzuheben. dass ihr Stiere (Suid. s. v. Τα
 
 Zu S. 2 Anm. 2. Wenn, was kaum zu bezweifeln ist, die Höhle auf der Kyllene, in welcher Hermes geboren sein sollte, eine Windhöhle ist, durch deren Öffnung der Wind bald hinein-bald hinausbläst, so gewinnen die Verse Hy. in Merc. 145 ff.
 
-...Διὸς δ᾽ ἐριούνιος Ἑρμῆς  
+...Διὸς δ' ἐριούνιος Ἑρμῆς  
 δοχμωθεὶς μεγάροιο διὰ κλήΐθρον ἔδυνεν,  
-αὔρῃ ὀπωρινῇ ἐναλίγκιος, ἠΰτ᾽ ὀμίχλη.
+αὔρῃ ὀπωρινῇ ἐναλίγκιος, ἠΰτ' ὀμίχλη.
 
 in der Tat eine außerordentlich charakteristische Bedeutung für den Windgott Hermes, da alsdann das Schlüsselloch, ebenso wie die Türe (vgl. Hermes S. 92 A. 351) überhaupt, stets der Sitz eines besonders kräftigen Luftzuges ist. Vgl. auch Hermes der Windgott S. 47 und 64, wo nachgewiesen ist, dass auch die luftartig gedachten Maren der Germanen, sowie die εἴδωλα (Traumbilder) der Griechen durchs Schlüsselloch fahren (Od. δ 796: ὡς εἰπὸν σταθμοῖο παρὰ κληῖδα λιάσθη ἐς πνοιὰς ἀνέμων).
 
-Zu S. 4 Anm. 9. Für die Beziehungen des Windes zum Schlafe, welche ich Hermes S. 63 darzulegen versucht habe, ist nicht unwichtig die Stelle bei Sophokles Phil. 18 (vgl. 827 f.): ἐν θέρει δ᾽ ὕπνον δι᾽ ἀμφιτρῆτος αὐλίου πέμπει πνοή, woraus hervorgeht, dass man dem kühlenden Winde im Sommer eine einschläfernde Wirkung zuschrieb. Vgl. auch Arist. Probl. 3. 54 (Didot 4, 332, 40) in latein. Übersetzung: „Cur solis aestus aliis quidem somnum adducit, aliis autem non? ...Quia ...quod aridum caput fuerit impensius exsiccans ad experrectionem commovit.
+Zu S. 4 Anm. 9. Für die Beziehungen des Windes zum Schlafe, welche ich Hermes S. 63 darzulegen versucht habe, ist nicht unwichtig die Stelle bei Sophokles Phil. 18 (vgl. 827 f.): ἐν θέρει δ' ὕπνον δι' ἀμφιτρῆτος αὐλίου πέμπει πνοή, woraus hervorgeht, dass man dem kühlenden Winde im Sommer eine einschläfernde Wirkung zuschrieb. Vgl. auch Arist. Probl. 3. 54 (Didot 4, 332, 40) in latein. Übersetzung: „Cur solis aestus aliis quidem somnum adducit, aliis autem non? ...Quia ...quod aridum caput fuerit impensius exsiccans ad experrectionem commovit.
 
 S. 5 Zeile 9 v. u. lies πνεύματα statt πεύματα.
 
 S. 16 Zeile 9 v. o. lies werden statt worden.
 
-Zu S. 22. Wenn es Il. _T_ 352 heißt, Thetis habe dem aus Gram Trank und Speise verschmähenden Achilleus Nektar und Ambrosia eingeträufelt, „ἵνα μή μιν λιμὸς ἀτερπὴς γούναθ᾽ ἵκηται,“ so erinnert diese Vorstellung von der ernährenden und lebenerhaltenden Wirkung des Nektars und der Ambrosia lebhaft an die oben S. 47 mitgeteilte Erzählung vom Tode des Demokritos, welcher mehrere Tage lediglich von dem aus einem mit Honig gefüllten Gefäße aufsteigenden Dunste (τῇ ἀπὸ τοῦ μέλιτος ἀναφορᾷ μόνῃ χρώμενον) gelebt haben soll. Vgl. auch die S. 48 Anm. 112 angeführte Stelle des Hippokrates, welcher dem Honig bedeutende Nährkraft zuschreibt und Eustath. z. Il. Λ 630 (p. 868, 20).
+Zu S. 22. Wenn es Il. _T_ 352 heißt, Thetis habe dem aus Gram Trank und Speise verschmähenden Achilleus Nektar und Ambrosia eingeträufelt, „ἵνα μή μιν λιμὸς ἀτερπὴς γούναθ' ἵκηται,“ so erinnert diese Vorstellung von der ernährenden und lebenerhaltenden Wirkung des Nektars und der Ambrosia lebhaft an die oben S. 47 mitgeteilte Erzählung vom Tode des Demokritos, welcher mehrere Tage lediglich von dem aus einem mit Honig gefüllten Gefäße aufsteigenden Dunste (τῇ ἀπὸ τοῦ μέλιτος ἀναφορᾷ μόνῃ χρώμενον) gelebt haben soll. Vgl. auch die S. 48 Anm. 112 angeführte Stelle des Hippokrates, welcher dem Honig bedeutende Nährkraft zuschreibt und Eustath. z. Il. Λ 630 (p. 868, 20).
 
 Zu S. 26. Dass man sich den Nektar als ein berauschendes Getränk dachte, erhellt deutlich aus Plat. Symp. 203 B: ὁ οὖν Πόρος μεθυσθεὶς τοῦ νέκταρος --- οἶνος γὰρ οὔπω ἦν --- εἰς τὸν τοῦ Διὸς κῆπον εἰσελθὼν βεβαρημένος ηὗδεν, wo auch die Ahnung von einem weinlosen Zeitalter (wie bei Plut. Q. Symp. 4. 6, 2 und Porphyr. de antro n. 16) beachtenswert ist.
 
 Zu S. 28. Dem Mythus von den Zeus mit Ambrosia fütternden Peleiai nahe verwandt scheint die Legende von Kronos bei Plut. de facie in orbe lunae 26: αὐτὸν μὲν γὰρ τὸν Κρόνον ἐν ἄντρῳ βαθεῖ (auf einer paradiesischen Insel im westlichen Okeanos) περιέχεσθαι ἐπὶ πέτρας χρυσοειδοῦς καθεύδοντα, τὸν γὰρ ὕπνον αὐτῷ μεμηχανῆσθαι δεσμὸν ὑπὸ τοῦ Διὸς (vgl. Orph. fr. b. Porphyr. de antro n. 16 oben S. 61), ὄρνεθας δὲ τῆς πέτρας κατὰ κορυφὴν, οὖς πετομένους ἀμβροσίαν ἐπιφέρειν αὐτῷ, καὶ τὴν νῆσον εὐωδέᾳ κατέχεσθαι πᾶσαν, ὥσπερ ἐκ πῆγης σκιδναμένῃ τῆς πέτρας κ. τ. λ. Wahrscheinlich ist der tiefe Schlaf des Kronos eine Folge des durch die Ambrosia hervorgebrachten Rausches und die Ambrosia bringenden Vögel mit den Peleiai identisch. Nach dem oben angeführten Fragment der Orphika berauscht Zeus den Kronos mit Honig.
 
-Zu S. 36 A. 78. Wenn nach Longus Past. 1, 25 der frische Honig (τὸ νέον μέλι), nach Hy. in Merc. 556 das μέλι χλωρόν (vgl. Il. Λ 630. Od. κ 234) eine berauschende Wirkung haben soll, so stimmt das ziemlich mit folgenden Worten des Plinius h. n. 11, 22 überein: Est autem initio mel ut aqua dilutum et primis diebus fervet ut musta seque purgat, vicesimo die crassescit. Vgl. auch Aristot. de an. h. 5, 22, 5 (= 3, 97, 19 ed. Didot): συνίσταται δὲ τὸ μέλι πεττόμενον · ἐξ ἀρχῆς γὰρ οἷον ὕδωρ γίνεται, καὶ ἐφ᾽ ἡμέρας μέν τινας ὑγρόν ἐστι (διὸ, κἂν ἀφαιρεθῇ ἐν ταύταις ταῖς ἡμέραις, οὐκ ἔχει πάχος), ἐν εἴκοσι δὲ μάλιστα συνίσταται. Der Ausdruck χλωρόν kann demnach in diesem Falle ebenso wohl das blassgelbe, fast wasserhelle, farblose Aussehen (vgl. χλωραῖς ἐέρσαις Pind. Nem. 8, 68. χλωρὸν ὕδωρ Anth. 9, 669, 3 und Jacobs z. d. St.) als die Frische (τὸ πρόσφατον, νέον) oder die Flüssigkeit (τὸ ὑγρόν) des Honigs bezeichnen. Da alle diese Eigenschaften bei jungem Honig zusammentreffen , so begreift man das Hin- und Herschwanken der Erklärungen des homerischen μέλι χλωρόν. Vgl. Eustath. z. Il. Λ 630: Μέλι χλωρὸν ἢ τὸ ὠχρὸν, ἢ τὸ ὑγρὸν, ἢ τὸ πρόσφατον ἤτοι νεοτρύγητον. Apoll. Soph. lex. Homer. 168, 12 ed. B. ὅταν δὲ λέγῃ „πὰρ δὲ μέλι χλωρόν“ ἤτοι νέον ἢ ἀπὸ τοῦ χρώματος, καθὸ μελίχρουν (cod. μελάχρουν, Bekker: μελίχλωρον) τινα λέγομεν κ. τ. λ. Vgl. auch Schol. A. u. D. z. Il. Λ 630. Hesych. s. vv. χλοερόν. χλωρόν. χλωρός.
+Zu S. 36 A. 78. Wenn nach Longus Past. 1, 25 der frische Honig (τὸ νέον μέλι), nach Hy. in Merc. 556 das μέλι χλωρόν (vgl. Il. Λ 630. Od. κ 234) eine berauschende Wirkung haben soll, so stimmt das ziemlich mit folgenden Worten des Plinius h. n. 11, 22 überein: Est autem initio mel ut aqua dilutum et primis diebus fervet ut musta seque purgat, vicesimo die crassescit. Vgl. auch Aristot. de an. h. 5, 22, 5 (= 3, 97, 19 ed. Didot): συνίσταται δὲ τὸ μέλι πεττόμενον · ἐξ ἀρχῆς γὰρ οἷον ὕδωρ γίνεται, καὶ ἐφ' ἡμέρας μέν τινας ὑγρόν ἐστι (διὸ, κἂν ἀφαιρεθῇ ἐν ταύταις ταῖς ἡμέραις, οὐκ ἔχει πάχος), ἐν εἴκοσι δὲ μάλιστα συνίσταται. Der Ausdruck χλωρόν kann demnach in diesem Falle ebenso wohl das blassgelbe, fast wasserhelle, farblose Aussehen (vgl. χλωραῖς ἐέρσαις Pind. Nem. 8, 68. χλωρὸν ὕδωρ Anth. 9, 669, 3 und Jacobs z. d. St.) als die Frische (τὸ πρόσφατον, νέον) oder die Flüssigkeit (τὸ ὑγρόν) des Honigs bezeichnen. Da alle diese Eigenschaften bei jungem Honig zusammentreffen , so begreift man das Hin- und Herschwanken der Erklärungen des homerischen μέλι χλωρόν. Vgl. Eustath. z. Il. Λ 630: Μέλι χλωρὸν ἢ τὸ ὠχρὸν, ἢ τὸ ὑγρὸν, ἢ τὸ πρόσφατον ἤτοι νεοτρύγητον. Apoll. Soph. lex. Homer. 168, 12 ed. B. ὅταν δὲ λέγῃ „πὰρ δὲ μέλι χλωρόν“ ἤτοι νέον ἢ ἀπὸ τοῦ χρώματος, καθὸ μελίχρουν (cod. μελάχρουν, Bekker: μελίχλωρον) τινα λέγομεν κ. τ. λ. Vgl. auch Schol. A. u. D. z. Il. Λ 630. Hesych. s. vv. χλοερόν. χλωρόν. χλωρός.
 
 Zu S. 37. Außer dem μελίκρατον ist noch zu erwähnen der schon dem Homer bekannte κυκεῶν, wozu nach Od. κ 234 auch μέλι χλωρόν gehörte.
 
