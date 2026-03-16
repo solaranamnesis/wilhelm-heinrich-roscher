@@ -2,5 +2,5 @@
 
 English - Plain Text  
 English - PDF  
-[German - Plain Text](full-text-german.md)  
+[German - Plain Text](full-text-german.md) | [German - (GFM) Plain Text](full-text-german-gfm.md)  
 [German - PDF](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/roscher_omphalosgedanke_1918_german.pdf) | [Atkinson](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/roscher_omphalosgedanke_1918_german_atkinson.pdf) | [Biolinum](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/roscher_omphalosgedanke_1918_german_biolinum.pdf) | [Kerkis](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/roscher_omphalosgedanke_1918_german_kerkis.pdf) | [Fraktur](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/roscher_omphalosgedanke_1918_german_frak.pdf) | [Schwabacher](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/roscher_omphalosgedanke_1918_german_swab.pdf) | [Custom](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/roscher_omphalosgedanke_1918_german_custom.pdf) | [CustomBorder](https://cdn.solaranamnesis.com/WilhelmHeinrichRoscher/Omphalosgedanke/roscher_omphalosgedanke_1918_german_customborder.pdf)  
